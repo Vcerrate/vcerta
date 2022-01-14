@@ -1,0 +1,15 @@
+---
+title: "2 Small Lightweight Amazing Camcorders Sony CX405, Panasonic VX981"
+image: "https:\/\/i.ytimg.com\/vi\/KmZH3rGjjlQ\/hqdefault.jpg"
+vid_id: "KmZH3rGjjlQ"
+categories: "People-Blogs"
+tags: ["camcorder review","best camcorder","sony cx405"]
+date: "2022-01-14T17:20:04+03:00"
+vid_date: "2022-01-14T01:00:04Z"
+duration: "PT14M17S"
+viewcount: "4600"
+likeCount: "642"
+dislikeCount: ""
+channel: "MarkusPix"
+---
+{% raw %}I LOVE CAMCORDERS! They're so FUN and EASY to use. Here are 2 of my favorite LIGHTWEIGHT very small camcorders that are great for travel, hiking, backpacking etc. Why camcorders? Because they can run all day without overheating or shutting down, they are the easiest video cameras in the world to use, they automatically figure out everything for you, they are super durable, can handle extreme weather, and they are just so cool to hold in your hand and use. There's something about the shape and ergonomics of camcorders I just love. So much easier to use than a smart phone, I love it.<br />Anyway, one of the smallest, lightest camcorders in the world that produces nice video quality, has suprisingly nice stabilization and has an excellent stereo built in mics, is the Sony CX405. It only weighs 6.5 oz!  And it's cheap!  <br />For a step up in quality and features, I highly recommend the Panasonic VX981. It shoots 4K, has a mic jack, 5 axis hybrid stabilization, high dynamic range and can zoom up to 1500X!  Comparable to the Sony AX33, the VX981 costs less and weighs only 12 oz (less than half the weight of comparable cameras). It's sensor is bigger than that of the AX43, AX53 and even the $1,700 Panasonic X-1500! It's a super lightweight feature packed camcorder that is amazingly fun to use. There is a reason both of these cameras sell out fast and are often on backorder!<br />Sony HDR-CX405 HD Handycam B&amp;H <a rel="nofollow" target="blank" href="https://www.bhphotovideo.com/c/product/1109390-REG/sony_hdr_cx405_hd_camcorder.html">https://www.bhphotovideo.com/c/product/1109390-REG/sony_hdr_cx405_hd_camcorder.html</a><br />Sony  HDR-CX405 HD Handycam Amazon <a rel="nofollow" target="blank" href="https://www.amazon.com/Sony-HDRCX405-Recording-Handycam-Camcorder/dp/B00R5LH9HO/ref=pd_lutyp_ci_mcx_mr_typ_d_1/132-6304432-1623969?pd_rd_w=Mnq37&amp;pf_rd_p=f6afbe6e-f56a-4b64-9493-07a01722d421&amp;pf_rd_r=1JJPRQQERKRKF2TGWDJZ&amp;pd_rd_r=275a01c4-4184-40d0-8d05-e8bf83942639&amp;pd_rd_wg=1iluU&amp;pd_rd_i=B00R5LH9HO&amp;psc=1">https://www.amazon.com/Sony-HDRCX405-Recording-Handycam-Camcorder/dp/B00R5LH9HO/ref=pd_lutyp_ci_mcx_mr_typ_d_1/132-6304432-1623969?pd_rd_w=Mnq37&amp;pf_rd_p=f6afbe6e-f56a-4b64-9493-07a01722d421&amp;pf_rd_r=1JJPRQQERKRKF2TGWDJZ&amp;pd_rd_r=275a01c4-4184-40d0-8d05-e8bf83942639&amp;pd_rd_wg=1iluU&amp;pd_rd_i=B00R5LH9HO&amp;psc=1</a><br />Panasonic HC-VX981K 4K Ultra HD Camcorder  <a rel="nofollow" target="blank" href="https://www.bhphotovideo.com/c/product/1211806-REG/panasonic_hc_vx981k_4k_camcorder.html">https://www.bhphotovideo.com/c/product/1211806-REG/panasonic_hc_vx981k_4k_camcorder.html</a>{% endraw %}
