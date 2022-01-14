@@ -1,0 +1,15 @@
+---
+title: "Paulo Sousa • Dortmund’s tactics, 1996\/97 Champions League winners • Masterclass"
+image: "https:\/\/i.ytimg.com\/vi\/LZ6YdKtdwTU\/hqdefault.jpg"
+vid_id: "LZ6YdKtdwTU"
+categories: "Sports"
+tags: ["soccer","futbol","football"]
+date: "2022-01-14T08:06:11+03:00"
+vid_date: "2022-01-13T16:15:01Z"
+duration: "PT9M31S"
+viewcount: "1431"
+likeCount: "118"
+dislikeCount: ""
+channel: "The Coaches' Voice"
+---
+{% raw %}Subscribe to the CV Academy... <a rel="nofollow" target="blank" href="https://bit.ly/3DgUqAp">https://bit.ly/3DgUqAp</a><br /><br />0.18 - Intro<br />0.27 - Playing for Dortmund <br />1.08 - Goalkeeper and defence <br />2.14 - Two wide players <br />2.36 - Sousa’s role<br />3.08 - Paul Lambert <br />3.29 - Dortmund’s defence, and key attributes <br />4.08 - Andreas Möller<br />5.03 - Dortmund’s front two <br />6.26 - Tactics for the 1997 Champions League final against Juventus, and Lars Ricken’s goal<br />7.23 - Other key players <br /> <br />In his second exclusive Masterclass with The Coaches’ Voice, one-time Juventus and Borussia Dortmund midfielder Paulo Sousa gives his recollections into the many decorated teammates who featured alongside him when Dortmund beat his former team Juventus in the final of the 1997 Champions League.<br /><br />Victory that night meant the retired Portugal international, a prominent member of his country’s “golden generation”, achieved the unusual feat of winning successive Champions League titles with different teams. He reveals what Paul Lambert – who has also since entered management – and Andreas Möller brought alongside him in midfield to negate the great Zinedine Zidane, discusses the influence of the successful Ottmar Hitzfeld, and reflects on another of the greatest nights from his great career. <br /><br />The Coaches’ Voice<br /><br />Website: <a rel="nofollow" target="blank" href="https://coachesvoice.com">https://coachesvoice.com</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/CoachesVoice">https://twitter.com/CoachesVoice</a><br />Facebook: <a rel="nofollow" target="blank" href="https://facebook.com/CoachesVoice">https://facebook.com/CoachesVoice</a><br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/CoachesVoice">https://instagram.com/CoachesVoice</a><br /><br />The Coaches’ Voice Academy<br /><br />Subscribe today: <a rel="nofollow" target="blank" href="https://academy.coachesvoice.com/join">https://academy.coachesvoice.com/join</a><br />Website: <a rel="nofollow" target="blank" href="https://academy.coachesvoice.com">https://academy.coachesvoice.com</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/cv_academy">https://twitter.com/cv_academy</a><br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/cv_academy">https://instagram.com/cv_academy</a><br />Join our coaching forum: <a rel="nofollow" target="blank" href="http://bit.ly/31BuDA3">http://bit.ly/31BuDA3</a><br /><br />#PauloSousa #BVB #Dortmund{% endraw %}
