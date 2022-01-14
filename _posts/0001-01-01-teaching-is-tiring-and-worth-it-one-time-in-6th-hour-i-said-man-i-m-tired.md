@@ -1,0 +1,15 @@
+---
+title: "Teaching is Tiring (and worth it)"
+image: "https:\/\/i.ytimg.com\/vi\/ZSjIzi0SkjU\/hqdefault.jpg"
+vid_id: "ZSjIzi0SkjU"
+categories: "Education"
+tags: ["education","teacher","teaching"]
+date: "2022-01-14T14:38:10+03:00"
+vid_date: "2016-12-18T03:15:19Z"
+duration: "PT2M24S"
+viewcount: "91775"
+likeCount: "637"
+dislikeCount: ""
+channel: "Trevor Muir"
+---
+{% raw %}One time in 6th hour I said “Man I’m tired.”<br />A kid looked at me and said, “Teachers always say they’re tired.”<br />Yep, grading 160 papers within a week is tiring.<br />Composing and giving an original, 20 minute-long memorized speech in front of 30 people 6 times a day, everyday, 180 days a year is very tiring.<br />Especially when your speech is competing with iPhones, laptops, and Minecraft.<br />It’s tiring when parents tell you how to do your job.<br />And having to hold your bladder for an hour is tiring.<br />Stopping bullying is tiring.<br />So is feeling like you have to bring your best energy to work every single day.<br />Or feeling like politicians think you’re a waste of resources <br />And the media thinks you’re a glorified babysitter.<br />Cleaning up finger paint, glitter, and vomit is tiring. <br />Teaching discipline to 12 boys is tiring <br />Parent teacher conferences are tiring.<br />It’s tiring seeing kids come to your class hungry and tired themselves.<br />Reporting abuse is tiring.<br />Teaching grammar to a generation of texters and tweeters is tiring.<br />So is prepping kids for tests that will decide their future.<br />Renewing your license every few years to keep your job is tiring.<br />The month of May is tiring.<br />So is being trusted to help shape the future hundred’s of young people.<br /><br />Chaperoning dances, <br />Coaching soccer, <br />Professional development, <br />Writing lesson plans, <br />20 minute lunches, <br />Standing up all day<br />Being stern<br />Being goofy<br /><br />Is tiring.<br />Being a teacher is tiring. <br /><br />But when a student shows you their first college acceptance letter,<br />Or reads for the first time,<br />Or realizes the immense power of their words, <br />Or stands up to a bully in the hallway,<br />Or sits with the lonely kid at lunch,<br />Or geeks out about the ending of a novel,<br />Or bursts through the door of your classroom one morning to tell you they know what they want to do someday,<br />Or learns from their failure, <br />Or can finally solve this equation, <br />Or starts believing in themselves right before your eyes, <br />Or returns to your class years later to thank you,<br />Being tired---- is worth it. <br /><br /><br />That Feeling by HookSounds <a rel="nofollow" target="blank" href="http://www.hooksounds.com/">http://www.hooksounds.com/</a><br />Creative Commons — Attribution 4.0 International — CC BY 4.0<br /><a rel="nofollow" target="blank" href="https://creativecommons.org/licenses/...">https://creativecommons.org/licenses/...</a><br />Music provided by Audio Library <a rel="nofollow" target="blank" href="https://youtu.be/nRRDmrJ8YTs">https://youtu.be/nRRDmrJ8YTs</a>{% endraw %}
