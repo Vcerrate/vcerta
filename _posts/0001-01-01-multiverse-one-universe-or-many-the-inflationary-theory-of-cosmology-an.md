@@ -1,0 +1,15 @@
+---
+title: "Multiverse: One Universe or Many?"
+image: "https:\/\/i.ytimg.com\/vi\/aUW7patpm9s\/hqdefault.jpg"
+vid_id: "aUW7patpm9s"
+categories: "Science-Technology"
+tags: ["Multiverse","One Universe or Many","inflationary theory"]
+date: "2022-01-14T07:18:25+03:00"
+vid_date: "2014-08-07T22:03:12Z"
+duration: "PT1H22M35S"
+viewcount: "2855768"
+likeCount: "18598"
+dislikeCount: ""
+channel: "World Science Festival"
+---
+{% raw %}The inflationary theory of cosmology, an enduring theory about our universe and how it was formed, explains that just after the Big Bang, the universe went through a period of rapid expansion. This theory has been critical to understanding what’s going on in the cosmos today. But now, this long-held notion—which seems to suggest as-yet-unproven and perhaps unprovable features such as the multiverse—is under increasing attack. Through informed debate among architects of the inflationary theory and its prime competitors, this program explored our best attempts to understand where we came from.<br /><br />This program is part of the Big Ideas Series<br /><br />The World Science Festival gathers great minds in science and the arts to produce live and digital content that allows a broad general audience to engage with scientific discoveries. Our mission is to cultivate a general public informed by science, inspired by its wonder, convinced of its value, and prepared to engage with its implications for the future.<br /><br />Subscribe to our YouTube Channel for all the latest from WSF.<br />Visit our Website: <a rel="nofollow" target="blank" href="http://www.worldsciencefestival.com/">http://www.worldsciencefestival.com/</a><br />Like us on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/worldscience...">https://www.facebook.com/worldscience...</a><br />Follow us on twitter: <a rel="nofollow" target="blank" href="https://twitter.com/WorldSciFest">https://twitter.com/WorldSciFest</a><br /><br />Original Program Date: June 1, 2013<br />MODERATOR: John Hockenberry<br />PARTICIPANTS: Andreas Albrecht, Alan Guth, Andrei Linde, Neil Turok<br /><br />Multiverse: In the Beginning 00:00<br /><br />John Hockenberry's Introduction 4:33<br /><br />Participant Introductions 6:35<br /><br />The Big Bang theory. 8:34<br /><br />The vacuum of space and the Higgs field. 12:33<br /><br />What is inflationary theory? 15:40<br /><br />What does the inflationary model explain? 21:36<br /><br />What is the experimental evidence of the multiverse? 26:22<br /><br />What is so exciting about the Planck satellite?31:56<br /><br />The CMB and what it means to a multiverse. 40:43<br /><br />What came before the big bang? 46:45<br /><br />Does string theory help predict there is a multiverse? 53:45<br /><br />Having no choice is a hard choice to make. 1:00:33<br /><br />Is the horizon of a black hole is much like the edge of the universe? 1:05:11<br /><br />Is there a difference between a multiverse and two universes colliding? 1:11:23<br /><br />Depending on infinity for predictions. 1:16:15{% endraw %}
