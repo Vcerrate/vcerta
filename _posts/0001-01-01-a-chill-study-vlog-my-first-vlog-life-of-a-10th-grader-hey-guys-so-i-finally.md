@@ -1,0 +1,15 @@
+---
+title: "A Chill Study Vlog ✨ | My First Vlog 🤩  | Life of a 10th Grader"
+image: "https:\/\/i.ytimg.com\/vi\/4c5kt7AMpsY\/hqdefault.jpg"
+vid_id: "4c5kt7AMpsY"
+categories: "People-Blogs"
+tags: ["study with alena","Life of a 10th Grader","A Chill Study Vlog"]
+date: "2022-01-15T00:17:13+03:00"
+vid_date: "2021-03-04T12:10:30Z"
+duration: "PT7M27S"
+viewcount: "18228"
+likeCount: "606"
+dislikeCount: ""
+channel: "Study with Alena"
+---
+{% raw %}Hey Guys! So I finally uploaded a vlog! A study vlog basically.. I know it's a bit late, but it was my first time editing a vlog so it took me quite some time! I really hope you liked it. It was my first time doing this, so it might not be as good, but yeah I tried my best! Feel free to give me your feedback in the comments! <br />Do you guys want me to upload more vlogs? Should I make a vlog channel? Comment down below!<br /><br /> Copyright disclaimer undersection 107 of the copyright act 1976 allowance is made for &quot; fair use&quot; for purposes such as criticisms, comment, news, reporting, teaching, scholarship and research. Fair use is a permitted by copyright statute that might otherwise be infringing, non-profit educational or personal use tips the balance in favour of fair use.<br /><br />Music in the Video: <br />That's Cool - Days Like This <a rel="nofollow" target="blank" href="https://youtu.be/BhJLzp4xYdo">https://youtu.be/BhJLzp4xYdo</a><br />Spotify:  <a rel="nofollow" target="blank" href="https://spoti.fi/2T6JXEV​">https://spoti.fi/2T6JXEV​</a><br />Instagram: <a rel="nofollow" target="blank" href="https://bit.ly/2GSJIai​">https://bit.ly/2GSJIai​</a><br />YouTube: <a rel="nofollow" target="blank" href="https://bit.ly/2tFFsSI​">https://bit.ly/2tFFsSI​</a><br />SoundCloud: <a rel="nofollow" target="blank" href="https://bit.ly/2GOJh0F​">https://bit.ly/2GOJh0F​</a><br />Twitter: <a rel="nofollow" target="blank" href="https://bit.ly/2T5ATQU​">https://bit.ly/2T5ATQU​</a><br />Bandcamp: <a rel="nofollow" target="blank" href="https://thatscool.bandcamp.com​">https://thatscool.bandcamp.com​</a><br /><br />©℗ 2020 That’s Cool<br /><br />Mondo Loops - Morning Dreams <br /><a rel="nofollow" target="blank" href="https://soundcloud.com/mondoloops​">https://soundcloud.com/mondoloops​</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/mondoloops​">https://www.youtube.com/mondoloops​</a><br /><a rel="nofollow" target="blank" href="https://payhip.com/mondoloops​">https://payhip.com/mondoloops​</a><br /><a rel="nofollow" target="blank" href="https://spoti.fi/2kvdnwD​">https://spoti.fi/2kvdnwD​</a><br /><br />Joakim Karud - Canals<br />Joakim Karud:<br /><a rel="nofollow" target="blank" href="http://theartistunion.com/joakimkarud​">http://theartistunion.com/joakimkarud​</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/JoakimKarud​">https://twitter.com/JoakimKarud​</a><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/joakimkarud​">https://soundcloud.com/joakimkarud​</a>{% endraw %}
