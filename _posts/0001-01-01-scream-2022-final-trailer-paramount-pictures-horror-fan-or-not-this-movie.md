@@ -1,0 +1,15 @@
+---
+title: "Scream (2022) - Final Trailer - Paramount Pictures"
+image: "https:\/\/i.ytimg.com\/vi\/nRwLyKIBNU8\/hqdefault.jpg"
+vid_id: "nRwLyKIBNU8"
+categories: "Film-Animation"
+tags: ["Scream","Scream Movie","Scream 2022 Movie"]
+date: "2022-01-15T10:32:50+03:00"
+vid_date: "2022-01-11T14:00:01Z"
+duration: "PT1M11S"
+viewcount: "2667377"
+likeCount: "16517"
+dislikeCount: ""
+channel: "Paramount Pictures"
+---
+{% raw %}“Horror fan or not, this movie is just awesome.”<br /><br />Watch the final trailer for #ScreamMovie and see what critics are screaming about! Get your tickets now at <a rel="nofollow" target="blank" href="https://www.screammovie.com/">https://www.screammovie.com/</a> - Early shows Thursday night, in theatres everywhere Friday.<br /><br />Twenty-five years after a streak of brutal murders shocked the quiet town of Woodsboro, a new killer has donned the Ghostface mask and begins targeting a group of teenagers to resurrect secrets from the town’s deadly past. Neve Campbell (“Sidney Prescott”), Courteney Cox (“Gale Weathers”) and David Arquette (“Dewey Riley”) return to their iconic roles in Scream alongside Melissa Barrera, Kyle Gallner, Mason Gooding, Mikey Madison, Dylan Minnette, Jenna Ortega, Jack Quaid, Marley Shelton, Jasmin Savoy Brown, and Sonia Ammar.<br /> <br />#ScreamMovie #Scream #Ghostface<br /> <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/screammovies/">https://twitter.com/screammovies/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/ScreamMovies">https://www.facebook.com/ScreamMovies</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/screammovies/">https://www.instagram.com/screammovies/</a><br />Discord: discord.gg/ScreamMovies<br /> <br />Paramount Pictures Corporation (PPC), a major global producer and distributor of filmed entertainment, is a unit of Viacom (NASDAQ: VIAB, VIA), home to premier global media brands that create compelling television programs, motion pictures, short-form content, apps, games, consumer products, social media experiences, and other entertainment content for audiences in more than 180 countries.<br /> <br />Connect with Paramount Pictures Online:<br /> <br />Official Site: <a rel="nofollow" target="blank" href="http://www.paramount.com/">http://www.paramount.com/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/Paramount">https://www.facebook.com/Paramount</a><br />Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/ParamountPics">http://www.instagram.com/ParamountPics</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/paramountpics">https://twitter.com/paramountpics</a><br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/Paramount">https://www.youtube.com/user/Paramount</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@paramountpics">https://www.tiktok.com/@paramountpics</a>{% endraw %}
