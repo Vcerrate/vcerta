@@ -1,0 +1,15 @@
+---
+title: "Perception - Dripping Bubbles"
+image: "https:\/\/i.ytimg.com\/vi\/06XX_nIqNn0\/hqdefault.jpg"
+vid_id: "06XX_nIqNn0"
+categories: "Music"
+tags: ["tesseract studio","progressive","progressive trance"]
+date: "2022-01-15T07:05:25+03:00"
+vid_date: "2021-12-15T10:39:32Z"
+duration: "PT8M7S"
+viewcount: "2443"
+likeCount: "126"
+dislikeCount: ""
+channel: "TesseracTstudio"
+---
+{% raw %}Subscribe: <a rel="nofollow" target="blank" href="http://bit.ly/SubscribeTesseracTstudiorec">http://bit.ly/SubscribeTesseracTstudiorec</a><br />Perception - Dripping Bubbles, released on 2021-12-17, TesseracTstudio, TESD0440<br />'Dripping Bubbles' is brand new psychedelic prog journey made by Perception. Drip into the world of groovy, psychedelic bubbles.<br /><br />Get it: <a rel="nofollow" target="blank" href="https://www.beatport.com/release/dripping-bubbles/3577715">https://www.beatport.com/release/dripping-bubbles/3577715</a><br /><br />More TesseracTstudio:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/tesseract_std/">https://www.instagram.com/tesseract_std/</a><br />SPOTIFY: <a rel="nofollow" target="blank" href="http://spoti.fi/2F9wJNK">http://spoti.fi/2F9wJNK</a><br />SOUNDCLOUD: <a rel="nofollow" target="blank" href="https://soundcloud.com/tesseractstudio/">https://soundcloud.com/tesseractstudio/</a><br />FACEBOOK: <a rel="nofollow" target="blank" href="http://facebook.com/tesseractstudio/">http://facebook.com/tesseractstudio/</a><br />BEATPORT: <a rel="nofollow" target="blank" href="http://beatport.com/label/tesseractstudio/16032">http://beatport.com/label/tesseractstudio/16032</a><br />BANDCAMP: <a rel="nofollow" target="blank" href="http://tesseracstudio.bandcamp.com/">http://tesseracstudio.bandcamp.com/</a><br />CDs: <a rel="nofollow" target="blank" href="http://psyshop.com/shop/CDs/tes/">http://psyshop.com/shop/CDs/tes/</a><br /><br />BOOKINGS:<br /><a rel="nofollow" target="blank" href="https://tesseract.agency/">https://tesseract.agency/</a>  || booking@tesseract.agency<br /><br />TesseracTstudio info:<br />WEB: <a rel="nofollow" target="blank" href="https://tesseract.studio/">https://tesseract.studio/</a><br /><br />TesseracTstudio is one of the worldwide leading psytrance &amp; progressive trance music labels from Serbia.<br /><br />Launching on 2010, TesseracTstudio have become home major Serbian projects such as Zyce, Talpa, Flegma, Ectima, Sideform, Relativ, Vertex and many more.  It is also recognized as creator of #serbianstyle psy-progressive.<br /><br />Our artists have performed at most of the major psytrance festivals such as: BOOM, Ozora, Universo Paralelo, Rainbow Serpent, Psy Fi, Psychedelic Experience, Indian Spirit, One Love, Psychedelic Circus, Mandallah, S.U.N. &amp; many more.<br /><br />This channel is powered by Trancentral.<br />Subscribe for updates: <a rel="nofollow" target="blank" href="http://bit.ly/TrancentralSubscribe">http://bit.ly/TrancentralSubscribe</a><br /><br />#Psytrance #PsychedelicTrance #Trance #Perception{% endraw %}
