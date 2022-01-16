@@ -1,0 +1,15 @@
+---
+title: "Benny's Dispatch - In The Heights Motion Picture Soundtrack (Official Audio)"
+image: "https:\/\/i.ytimg.com\/vi\/mAVdcPBj16Q\/hqdefault.jpg"
+vid_id: "mAVdcPBj16Q"
+categories: "Music"
+tags: ["atlantic records","atlantic","music video"]
+date: "2022-01-17T00:47:12+03:00"
+vid_date: "2021-06-10T04:00:11Z"
+duration: "PT2M22S"
+viewcount: "738292"
+likeCount: "4591"
+dislikeCount: ""
+channel: "Atlantic Records"
+---
+{% raw %}The official audio for 'Benny's Dispatch' from the In The Heights Original Motion Picture Soundtrack.<br /><br />Download/Stream the &quot;In The Heights&quot; Soundtrack: <br /><a rel="nofollow" target="blank" href="https://InTheHeights.lnk.to/ITHSOUNDTRACK">https://InTheHeights.lnk.to/ITHSOUNDTRACK</a><br /><br />Follow In The Heights:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/intheheightsmovie/">https://www.instagram.com/intheheightsmovie/</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/intheheights">https://twitter.com/intheheights</a><br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@intheheightsmovie">https://www.tiktok.com/@intheheightsmovie</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/InTheHeightsMovie">https://www.facebook.com/InTheHeightsMovie</a><br /><br />Subscribe for more official content from Atlantic Records:<br /><a rel="nofollow" target="blank" href="https://Atlantic.lnk.to/subscribe">https://Atlantic.lnk.to/subscribe</a><br /><br />Follow Atlantic Records<br /><a rel="nofollow" target="blank" href="https://facebook.com/atlanticrecords">https://facebook.com/atlanticrecords</a><br /><a rel="nofollow" target="blank" href="https://instagram.com/atlanticrecords">https://instagram.com/atlanticrecords</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/AtlanticRecords">https://twitter.com/AtlanticRecords</a><br /><a rel="nofollow" target="blank" href="http://atlanticrecords.com">http://atlanticrecords.com</a><br /><br />The official Atlantic Records YouTube Channel is home to the hottest in hip-hop, rock, pop, R&amp;B, indie, musicals and soundtracks. <br /><br />With over 70 years of global recorded music history, Atlantic Records’ legacy and passion for artistry continues with Top 40 hitmakers like Wiz Khalifa, Sean Paul, Trey Songz, Bruno Mars, Charlie Puth, Janelle Monáe, and B.o.B. <br /><br />Atlantic Records prides itself for working on Motion Picture Soundtracks, such as “The Greatest Showman”, “Suicide Squad” and “The Fate of the Furious.” As well as Musical Soundtracks including “Dear Evan Hansen,” and Grammy and Tony Award Winning “Hamilton”.<br /> It is home to world-renowned record labels representing music from every genre, including Asylum, Big Beat, Canvasback, Elektra, Fueled By Ramen, Rhino, Roadrunner, and Sire.<br /> <br />Subscribe for the latest official music videos, official audio videos, performances, bts and more from our artists and projects.<br /><a rel="nofollow" target="blank" href="https://Atlantic.lnk.to/YTSubscribe">https://Atlantic.lnk.to/YTSubscribe</a><br /><br />#InTheHeights #BennysDispatch #OfficialAudio{% endraw %}
