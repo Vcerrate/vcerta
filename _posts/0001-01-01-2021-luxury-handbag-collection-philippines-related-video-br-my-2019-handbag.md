@@ -1,0 +1,15 @@
+---
+title: "2021 LUXURY HANDBAG COLLECTION | PHILIPPINES"
+image: "https:\/\/i.ytimg.com\/vi\/-Nandf2Me74\/hqdefault.jpg"
+vid_id: "-Nandf2Me74"
+categories: "People-Blogs"
+tags: ["luxuryhandbags","luxurybags","luxurybagsphilippines"]
+date: "2022-01-17T00:57:54+03:00"
+vid_date: "2022-01-16T11:06:32Z"
+duration: "PT25M34S"
+viewcount: "1473"
+likeCount: "53"
+dislikeCount: ""
+channel: "Kookoo Vlogs"
+---
+{% raw %}Related Video:<br /> My 2019 Handbag Collection  - <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ubdcQqNU4Hw">https://www.youtube.com/watch?v=ubdcQqNU4Hw</a><br />_________________________________________________________________________________<br />INSTAGRAM RESELLERS MENTIONED:<br />1. <a rel="nofollow" target="blank" href="https://www.instagram.com/___misscharm/">https://www.instagram.com/___misscharm/</a><br />2. <a rel="nofollow" target="blank" href="https://www.instagram.com/madeloveluxe/">https://www.instagram.com/madeloveluxe/</a><br />3. <a rel="nofollow" target="blank" href="https://www.instagram.com/japanluxxshop/">https://www.instagram.com/japanluxxshop/</a><br />4. <a rel="nofollow" target="blank" href="https://www.instagram.com/vintageclassiques/">https://www.instagram.com/vintageclassiques/</a><br />__________________________________________________________________________________<br />Apply for your CITIBANK credit card here and get FREE Php5,000 eGift: <br /><a rel="nofollow" target="blank" href="https://www.citibank.com.ph/share-rewards/?media=0836556993&amp;scode=RBSBMBAM&amp;ecid=MGCPBPHCCAENRF">https://www.citibank.com.ph/share-rewards/?media=0836556993&amp;scode=RBSBMBAM&amp;ecid=MGCPBPHCCAENRF</a><br /><br />Get your Young Living Premium Starter Kit here: <br /><a rel="nofollow" target="blank" href="https://www.youngliving.com/vo/#/signup/new-start?sponsorid=23491052&amp;enrollerid=23491052&amp;isocountrycode=PH&amp;culture=en-PH&amp;type=member">https://www.youngliving.com/vo/#/signup/new-start?sponsorid=23491052&amp;enrollerid=23491052&amp;isocountrycode=PH&amp;culture=en-PH&amp;type=member</a><br /><br />or use my Member ID (23491052) as a referral code when you purchase your starter kit.<br />_____________________________________________________________________________________<br />VLOGMAS DAY 13 WINNER - Julie Ann Fullantes<br />*please reach out to me on any of my social media accounts. KOOngratulations 🥳<br />_____________________________________________________________________________________<br />Find me at:<br /><br />FACEBOOK:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/kookoovlogs​​​​">https://www.facebook.com/kookoovlogs​​​​</a><br /><br />INSTAGRAM ACCOUNTS:<br />personal account: @zfipm<br />home/plants account: @bahay_koobo<br />furniture/fixture diy account: @donnthebuilder<br />pre-loved account: @trianandkoo_loset<br /><br />FOR BUSINESS INQUIRIES:<br />zyrellemacasaet@yahoo.com<br />__________________________________________________________________________________<br />#KOOmares #KOOllection #reKOOmendation{% endraw %}
