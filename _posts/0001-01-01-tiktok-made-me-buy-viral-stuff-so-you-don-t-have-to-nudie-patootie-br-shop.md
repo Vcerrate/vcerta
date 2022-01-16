@@ -1,0 +1,15 @@
+---
+title: "tiktok made me buy VIRAL stuff... so you don’t have to"
+image: "https:\/\/i.ytimg.com\/vi\/qh2P8d_BpKk\/hqdefault.jpg"
+vid_id: "qh2P8d_BpKk"
+categories: "Howto-Style"
+tags: ["LauraLee","tiktok made me buy it","tiktok made me buy it makeup"]
+date: "2022-01-16T18:38:45+03:00"
+vid_date: "2022-01-15T20:54:42Z"
+duration: "PT18M7S"
+viewcount: "94245"
+likeCount: "6050"
+dislikeCount: ""
+channel: "Laura Lee"
+---
+{% raw %}Nudie Patootie:<br />Shop my Clothing Boutique! <a rel="nofollow" target="blank" href="https://shopnudiepatootie.com/">https://shopnudiepatootie.com/</a><br /><br />My Makeup Line: LauraLeeLosAngeles: Use Code: LLLA20 for 20% off!<br /><a rel="nofollow" target="blank" href="https://www.lauraleelosangeles.com">https://www.lauraleelosangeles.com</a><br /><br />MY AMAZON STORE: <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/lauralee">https://www.amazon.com/shop/lauralee</a><br /><br />PRODUCTS MENTIONED:<br />Champagne sprayer <a rel="nofollow" target="blank" href="https://amzn.to/3npxNUX">https://amzn.to/3npxNUX</a><br />Egg cracker <a rel="nofollow" target="blank" href="https://amzn.to/3fsPgaB">https://amzn.to/3fsPgaB</a><br />back stretcher <a rel="nofollow" target="blank" href="https://amzn.to/3Kqb8BQ">https://amzn.to/3Kqb8BQ</a><br />Fragrance refill <a rel="nofollow" target="blank" href="https://amzn.to/3rgukZU">https://amzn.to/3rgukZU</a><br />shower phone holder <a rel="nofollow" target="blank" href="https://amzn.to/3qwbhvn">https://amzn.to/3qwbhvn</a><br />phone charger stand <a rel="nofollow" target="blank" href="https://amzn.to/3GA39j5">https://amzn.to/3GA39j5</a><br />Silicone bottle topper <a rel="nofollow" target="blank" href="https://amzn.to/3A0z9KI">https://amzn.to/3A0z9KI</a><br />Ab workout <a rel="nofollow" target="blank" href="https://amzn.to/3A1B2Hh">https://amzn.to/3A1B2Hh</a><br />Self Stirring mug <a rel="nofollow" target="blank" href="https://amzn.to/34Kz7Lu">https://amzn.to/34Kz7Lu</a><br /><br />*** D I S C O U N T  - C O D E S ***<br /><br />* OFRA: use code LAURALEE for 20% off!!<br /> <a rel="nofollow" target="blank" href="http://bit.ly/2bm3dGb">http://bit.ly/2bm3dGb</a><br /><br />LILLY LASHES: use code: LAURALEE for 10% off<br /><a rel="nofollow" target="blank" href="https://bit.ly/3k5rUZ5">https://bit.ly/3k5rUZ5</a><br /><br />ARTIST COUTURE: use code: LAURALEE for 10% off!<br /><a rel="nofollow" target="blank" href="https://www.artistcouture.com/">https://www.artistcouture.com/</a><br /><br />* JOUER: use code: LAURALEE for 15% off! <br /><a rel="nofollow" target="blank" href="https://www.jouercosmetics.com">https://www.jouercosmetics.com</a><br /><br /><br /><br />Disclaimer: All opinions in today’s video are my own! I will always state when a video is sponsored and I’ve partnered with a brand. I do earn a small commission when my code and links are used. Thank you guys for the support!<br /><br /><br />SOCIAL MEDIA:<br />INSTAGRAM:  Larlarlee<br />SNAPCHAT: Laura88lee<br />TWITTER: LAURA88LEE<br />TikTok: LAURA88LEE<br /><br />#Larlarlee #Tiktok<br /><br />All Rights Reserved © 2021,  Laura Lee{% endraw %}
