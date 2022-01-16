@@ -1,0 +1,15 @@
+---
+title: "The JingPad A1, Testing The World's First Consumer Linux Tablet!"
+image: "https:\/\/i.ytimg.com\/vi\/hcFwIB8KIgM\/hqdefault.jpg"
+vid_id: "hcFwIB8KIgM"
+categories: "Science-Technology"
+tags: ["sexycyborg","shenzhen","China"]
+date: "2022-01-16T18:02:52+03:00"
+vid_date: "2022-01-15T15:23:44Z"
+duration: "PT19M2S"
+viewcount: "64899"
+likeCount: "3368"
+dislikeCount: ""
+channel: "Naomi 'SexyCyborg' Wu"
+---
+{% raw %}I test the JingPad A1, a tablet with a stylus and trackpad keyboard running JingOS- a new tablet/desktop Linus distro.<br />Order my sample print, or have anything you like printed by my friends at JLC:<br /><a rel="nofollow" target="blank" href="https://jlcpcb.store/products/3d-printing-naomi-wu-statue?variant=42158130200832">https://jlcpcb.store/products/3d-printing-naomi-wu-statue?variant=42158130200832</a><br />When you support JLC, you support me.<br /><br />JingPad A1: <a rel="nofollow" target="blank" href="https://en.jingos.com/jingpad-a1/">https://en.jingos.com/jingpad-a1/</a><br />JingOS: <a rel="nofollow" target="blank" href="https://en.jingos.com">https://en.jingos.com</a><br /><br />Small tips are always appreciated🙏 or if you sponsor me monthly, you get to see my videos a week before anyone else and support my work (but only if you can without hardship because I'm probably going to spend it on beer and women😜):<br />►Ko-Fi: <a rel="nofollow" target="blank" href="https://ko-fi.com/naomiwu">https://ko-fi.com/naomiwu</a><br />►SubscribeStar:  <a rel="nofollow" target="blank" href="https://www.subscribestar.com/naomi-wu">https://www.subscribestar.com/naomi-wu</a><br />►YouTube: <a rel="nofollow" target="blank" href="http://www.youtube.com/c/SexyCyborg/join">http://www.youtube.com/c/SexyCyborg/join</a><br /><br />Cyptocurrency is really helpful:<br />►XMR: 43EeYf4DopsbqAv3CgFME8Sqdb4a5xJc84EiPnsGGViRSXW5VY64fQnJrgmBnQYBREPqZqJaNjG12B1hjiVPLCpMTgo2GY8<br />►BTC: 1JXG6pUMMuAzZmqRX5UPr29hYwanZSZ7NA<br />►BCH: qq349wffnxfma9u5v3al2zz306rwylyjjvm5t9k3fr<br />►LTC: LbjggcZzfXwwBY5S5fGWG1NcmSVVFP3iVr<br />►ETH: 0xf44c663Cc227F6731898c927DAEB36145fFa1085<br /><br />More from me:<br />►Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/ReallySexyCyborg/">https://www.instagram.com/ReallySexyCyborg/</a><br />►Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/reallysexycyborg">https://www.facebook.com/reallysexycyborg</a><br />►Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/RealSexyCyborg">https://twitter.com/RealSexyCyborg</a><br />►YouTube: <a rel="nofollow" target="blank" href="http://www.youtube.com/c/SexyCyborg/">http://www.youtube.com/c/SexyCyborg/</a><br />►Odysee: <a rel="nofollow" target="blank" href="https://odysee.com/@Naomi-SexyCyborg-Wu:b">https://odysee.com/@Naomi-SexyCyborg-Wu:b</a><br />►My FAQ: <a rel="nofollow" target="blank" href="http://pastebin.com/V3474kYs">http://pastebin.com/V3474kYs</a><br />►Merch: <a rel="nofollow" target="blank" href="https://teespring.com/stores/naomi-wus-store">https://teespring.com/stores/naomi-wus-store</a>{% endraw %}
