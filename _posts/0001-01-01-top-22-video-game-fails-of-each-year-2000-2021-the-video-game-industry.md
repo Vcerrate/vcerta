@@ -1,0 +1,15 @@
+---
+title: "Top 22 Video Game Fails of Each Year (2000 - 2021)"
+image: "https:\/\/i.ytimg.com\/vi\/uO3ysOFG3aM\/hqdefault.jpg"
+vid_id: "uO3ysOFG3aM"
+categories: "Entertainment"
+tags: ["Adventure Games","Apple","Conker"]
+date: "2022-01-16T22:58:02+03:00"
+vid_date: "2022-01-15T03:00:20Z"
+duration: "PT24M29S"
+viewcount: "91909"
+likeCount: "2377"
+dislikeCount: ""
+channel: "WatchMojo.com"
+---
+{% raw %}The video game industry is one of the most successful, but every year still sees a big fail. For this list, we’re primarily looking at the industry side of gaming rather than games that were just bad by themselves. Our countdown includes the Google Stadia in 2019, the PlayStation Network Hack in 2011, &quot;Wii Music&quot; in 2008, the Nokia N-Gage in 2003, and more! Let us know in the comments which you think is the most embarrassing.<br /><br />Watch more great gaming videos here:<br />Top 10 Video Game Controversies of 2021: <a rel="nofollow" target="blank" href="https://youtu.be/XH_dCybfcQg">https://youtu.be/XH_dCybfcQg</a><br />Top 10 Hidden Gem Video Games of 2021: <a rel="nofollow" target="blank" href="https://youtu.be/hm57D2DMvi4">https://youtu.be/hm57D2DMvi4</a><br />Top 10 Best Video Game Villains of 2021: <a rel="nofollow" target="blank" href="https://youtu.be/FvXl1RizcHs">https://youtu.be/FvXl1RizcHs</a><br /><br />Big thanks to all the channels featured in our video!<br />World of Longplays: <a rel="nofollow" target="blank" href="https://www.youtube.com/recordedamigagames">https://www.youtube.com/recordedamigagames</a><br /><br />10min Gameplay: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/10minGameplay1">https://www.youtube.com/c/10minGameplay1</a><br /><br />Mariofan98 Longplays: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/mariofan98">https://www.youtube.com/c/mariofan98</a><br /><br />TopZonelt: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/TopZonelt">https://www.youtube.com/user/TopZonelt</a><br /><br />Green Banana: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCYJ-Ip5mIWgB96jU5ROCLjA">https://www.youtube.com/channel/UCYJ-Ip5mIWgB96jU5ROCLjA</a><br /><br />astralstate:<a rel="nofollow" target="blank" href="https://www.youtube.com/c/astralstate">https://www.youtube.com/c/astralstate</a><br /><br /><br />Have Your Idea Become A Video!<br /><a rel="nofollow" target="blank" href="https://wmojo.com/suggest">https://wmojo.com/suggest</a><br /><br />Subscribe for more great content!<br /><a rel="nofollow" target="blank" href="https://wmojo.com/watchmojo-subscribe">https://wmojo.com/watchmojo-subscribe</a><br /><br />Visit WatchMojo Club for Great Deals!<br /><a rel="nofollow" target="blank" href="https://wmojo.com/WatchMojoClub">https://wmojo.com/WatchMojoClub</a><br /><br />Your trusted authority for Top 10 lists, reviews, tips and tricks, biographies, origins, and entertainment news on Film, TV, Video Games, Comics, Celeb, Music and Superheroes.<br /><br />#VideoGames #Gaming #Fails #Gamer #Games #Nintendo #Sony #Microsoft #Google{% endraw %}
