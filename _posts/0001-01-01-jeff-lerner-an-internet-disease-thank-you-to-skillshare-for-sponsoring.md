@@ -1,0 +1,15 @@
+---
+title: "Jeff Lerner - An Internet DISEASE"
+image: "https:\/\/i.ytimg.com\/vi\/bFu297dbc9k\/hqdefault.jpg"
+vid_id: "bFu297dbc9k"
+categories: "Gaming"
+tags: ["make money online","jeff lerner","millionaire secrets"]
+date: "2022-01-16T15:10:38+03:00"
+vid_date: "2022-01-11T22:21:06Z"
+duration: "PT15M36S"
+viewcount: "74535"
+likeCount: "6635"
+dislikeCount: ""
+channel: "Upper Echelon Gamers"
+---
+{% raw %}Thank you to Skillshare for sponsoring this video! The first 1,000 people to use this link will get a 1 month free trial of Skillshare: <a rel="nofollow" target="blank" href="https://skl.sh/upperechelongamers01221">https://skl.sh/upperechelongamers01221</a><br /><br />Jeff Lerner is a self professed multi-millionaire who broke the online world with &quot;digital real estate&quot; His grand claims would have you believe that millions of dollars are yours with a few clicks of a mouse. <br /><br />In reality? He has a history of promoting companies that were destroyed because of fraud and financial crime by the SEC and the FTC. His content has changed form many times... but it still follows the same patterns. <br /><br />You cannot earn millions of dollars on auto-pilot just by purchasing a few over priced e-guides. <br /><br /><br /><br />ODYSEE INVITE: <a rel="nofollow" target="blank" href="https://odysee.com/$/invite/@UpperEch...">https://odysee.com/$/invite/@UpperEch...</a><br /><br /><br /><br />PATREON: <a rel="nofollow" target="blank" href="https://www.patreon.com/UEG">https://www.patreon.com/UEG</a><br /><br /><br /><br />LOCALS: <a rel="nofollow" target="blank" href="https://upperechelon.locals.com/post/...">https://upperechelon.locals.com/post/...</a><br /><br /><a rel="nofollow" target="blank" href="https://upperechelon.locals.com/support">https://upperechelon.locals.com/support</a><br /><br /><br /><br />Axial GT's Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/AxialGaming...">https://www.youtube.com/c/AxialGaming...</a> Thank You. Subscribe to him please! <br /><br /><br /><br />⦁ MERCH: teespring.com/stores/upper-echelon<br /><br />⦁ UPPER ECHELON WEBSITE: <a rel="nofollow" target="blank" href="https://upperechelon.gg">https://upperechelon.gg</a><br /><br /> ⦁ UPPER ECHELON CUSTOM MERCH STORE: <a rel="nofollow" target="blank" href="https://agentink.gg/collections/ue">https://agentink.gg/collections/ue</a><br /><br /><br /><br /><br /><br /><br /> ⦁ DISCORD SERVER: <a rel="nofollow" target="blank" href="https://discord.gg/Uzfkf8m3nD">https://discord.gg/Uzfkf8m3nD</a><br /><br /> ⦁ Giraffe Video: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=R0uNb...">https://www.youtube.com/watch?v=R0uNb...</a><br /><br /> ⦁ Video Transitions: William Eklof<br /><br /> ⦁ Outtro Song: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=-k4az...">https://www.youtube.com/watch?v=-k4az...</a> <br /><br /><br />BUSINESS EMAIL: upperechelongamers@yahoo.com<br /><br />#earningmoney #earnmoney #internetscams{% endraw %}
