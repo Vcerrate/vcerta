@@ -1,0 +1,15 @@
+---
+title: "📨 Outlook Rules Tutorial"
+image: "https:\/\/i.ytimg.com\/vi\/87cqwadac6Y\/hqdefault.jpg"
+vid_id: "87cqwadac6Y"
+categories: "Science-Technology"
+tags: ["kevin stratvert","outlook","rules"]
+date: "2022-01-16T09:58:54+03:00"
+vid_date: "2021-04-26T07:00:02Z"
+duration: "PT16M35S"
+viewcount: "58323"
+likeCount: "1468"
+dislikeCount: ""
+channel: "Kevin Stratvert"
+---
+{% raw %}In this step-by-step tutorial, learn how to use Rules in Microsoft Outlook. Rules allow you to move, flag, and respond to email messages automatically. You can also use rules to play sounds, move messages to folders, or display new item alerts. The easiest and most common rule to create is one that allows you to move an item from a certain sender or with certain words in the subject line to another folder. You can create this rule directly from a message you've already received.<br /><br />👋 Additional resources<br />- Top 20 Outlook Tips &amp; Tricks: <a rel="nofollow" target="blank" href="https://youtu.be/edABo0VnHK8">https://youtu.be/edABo0VnHK8</a><br />- Top 14 Outlook Calendar Tips &amp; Tricks: <a rel="nofollow" target="blank" href="https://youtu.be/6BU_ELSsDLc">https://youtu.be/6BU_ELSsDLc</a><br /><br />⌚ Timestamps<br />0:00 Introduction<br />1:04 Set up basic rule<br />3:27 Set up more advanced rule<br />7:02 Manage rules<br />10:31 Set up most advanced rules<br />14:57 Activate rules<br />15:27 Import/export rules<br />15:48 Wrap up<br />  <br />📃 Watch related playlists<br />- Playlist with all my videos on Outlook: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLlKpQrBME6xJswJLJ69wbWWf6QlwZ84nA">https://youtube.com/playlist?list=PLlKpQrBME6xJswJLJ69wbWWf6QlwZ84nA</a><br /><br />🚩 Connect with me on social<br />- LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/in/kevinstratvert/">https://www.linkedin.com/in/kevinstratvert/</a><br />- Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/kevstrat">https://twitter.com/kevstrat</a><br />- Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/Kevin-Stratvert-101912218227818">https://www.facebook.com/Kevin-Stratvert-101912218227818</a><br />- TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@kevinstratvert">https://www.tiktok.com/@kevinstratvert</a><br /><br />🔔 Subscribe to my YouTube channel<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/kevlers?sub_confirmation=1">https://www.youtube.com/user/kevlers?sub_confirmation=1</a><br /><br />🎬 Want to watch again? Navigate back to my YouTube channel quickly<br /><a rel="nofollow" target="blank" href="http://www.kevinstratvert.com">http://www.kevinstratvert.com</a><br /><br />🛍 Support me with your Amazon purchases: <a rel="nofollow" target="blank" href="https://amzn.to/3kCP2yz">https://amzn.to/3kCP2yz</a><br /><br />⚖ As full disclosure, I use affiliate links above. Purchasing through these links gives me a small commission to support videos on this channel -- the price to you is the same.<br /><br />#stratvert{% endraw %}
