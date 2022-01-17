@@ -1,0 +1,15 @@
+---
+title: "A Ludicrous Investment | Audio Reading | Our Daily Bread Devotional |  January 13, 2022"
+image: "https:\/\/i.ytimg.com\/vi\/fHwdRIUTc2c\/hqdefault.jpg"
+vid_id: "fHwdRIUTc2c"
+categories: "Education"
+tags: ["Ludicrous","Investment","Audio"]
+date: "2022-01-18T00:08:23+03:00"
+vid_date: "2022-01-13T05:15:00Z"
+duration: "PT4M14S"
+viewcount: "5234"
+likeCount: "452"
+dislikeCount: ""
+channel: "Our Daily Bread"
+---
+{% raw %}Helping you connect with God. Every day. Every way. <br /><br /><br /><br /> Read along with today’s devotional: <a rel="nofollow" target="blank" href="https://odb.org/US/2022/01/13/a-ludicrous-investment">https://odb.org/US/2022/01/13/a-ludicrous-investment</a><br /><br /><br /><br />  <br /><br /><br /><br /> Want to get Our Daily Bread’s daily devotionals delivered to your inbox or mailbox? Subscribe for free here: <a rel="nofollow" target="blank" href="https://odb.org.">https://odb.org.</a> <br /><br /><br /><br />  <br /><br /><br /><br /> Our Daily Bread Ministries helps millions of people connect with God each day. For more than 75 years, our purpose has remained the same: to reach people with the life-changing wisdom of the Bible. <br /><br /><br /><br />  <br /><br /><br /><br /> All Scripture from the New International Version, unless otherwise noted.<br /><br /><br /><br />  <br /><br /><br /><br /> SUPPORT Our Daily Bread<br /><br /><br /><br /> Your generous support helps us make the life-changing wisdom of the Bible understandable and accessible to people around the world.  <a rel="nofollow" target="blank" href="https://donations.ourdailybread.org/intm9.html?motivation=INTM9">https://donations.ourdailybread.org/intm9.html?motivation=INTM9</a> <br /><br /><br /><br />  <br /><br /><br /><br /> More Podcasts from Our Daily Bread:<br /><br /><br /><br /> Discover the Word: <a rel="nofollow" target="blank" href="https://www.discovertheword.org">https://www.discovertheword.org</a> <br /><br /><br /><br /> God Hears Her: <a rel="nofollow" target="blank" href="https://www.godhearsher.org/podcast">https://www.godhearsher.org/podcast</a><br /><br /><br /><br />  <br /><br /><br /><br /> Ways To Connect With Us:<br /><br /><br /><br /> Facebook: <a rel="nofollow" target="blank" href="https://facebook.com/ourdailybread">https://facebook.com/ourdailybread</a> ​<br /><br /><br /><br /> Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/ourdailybread/">https://www.instagram.com/ourdailybread/</a> <br /><br /><br /><br /> Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/ourdailybread​">https://twitter.com/ourdailybread​</a> <br /><br /><br /><br /> Print Subscription: <a rel="nofollow" target="blank" href="https://odb.org/getprint​">https://odb.org/getprint​</a> <br /><br /><br /><br /> App: <a rel="nofollow" target="blank" href="https://odb.org/mobile-resources​">https://odb.org/mobile-resources​</a> <br /><br /><br /><br /> Web: <a rel="nofollow" target="blank" href="https://odb.org">https://odb.org</a><br /><br /><br /><br />  <br /><br /><br /><br /> #ourdailybread #dailydevotional #bible{% endraw %}
