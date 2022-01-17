@@ -1,0 +1,15 @@
+---
+title: "Bittersweet Pt. 3 MONSTROUS LIGHTENING SQUALL Turns Into Windless Doldrums, And FINALLY We MADE IT"
+image: "https:\/\/i.ytimg.com\/vi\/wxESYhMwuBk\/hqdefault.jpg"
+vid_id: "wxESYhMwuBk"
+categories: "People-Blogs"
+tags: ["Sailing","Cruising","Sailing girls"]
+date: "2022-01-17T05:44:09+03:00"
+vid_date: "2022-01-14T23:30:35Z"
+duration: "PT27M28S"
+viewcount: "34005"
+likeCount: "2216"
+dislikeCount: ""
+channel: "Sailing The Far Side"
+---
+{% raw %}Hey Everyone,<br /><br />Welcome to the last video of this sailing season! Hope you guys have enjoyed traveling with us as much as we have enjoyed sharing our adventure with all of YOU!! When you see a squall usually there is a way to avoid it, but there was no avoiding this monstrosity. See how we manage when we get hit with 30-40 knot gusts without a working engine. After a night full of turbulence we finally see land in site!! <br /><br />Want to support our travels and get an early peak at our videos?! Become a Patron for all that and more! <br /><a rel="nofollow" target="blank" href="https://www.patreon.com/sailingthefarside">https://www.patreon.com/sailingthefarside</a><br /><br />Thanks again for watching and please LIKE, SUBSCRIBE, and COMMENT. We love hearing what you guys have to say and looking forward to continuing to share our adventure.<br /><br />And if you would like a Calendar, email us at sailingthefarside@gmail.com or checkout our website <a rel="nofollow" target="blank" href="https://sailingthefarside.com/shop-gear">https://sailingthefarside.com/shop-gear</a><br /><br />Continue to follow along by subscribing to our channel or giving us a like or comment! Would love to hear any tips you have for our videos, or just hearing from everyone in general!<br /><br />Want to make a one time donation to our cruising kitty! Our Venmo:<br />@sailingthefarside <br />Paypal: paypal.me/sailingthefarside<br /><br />Want some FAR SIDE gear? Check out our teespring (more options coming)<br /><a rel="nofollow" target="blank" href="https://teespring.com/stores/sailing-the-far-side">https://teespring.com/stores/sailing-the-far-side</a><br /><br />BUY a Limited Edition Calendar!<br /><a rel="nofollow" target="blank" href="https://sailingthefarside.com/shop-gear?noredirect">https://sailingthefarside.com/shop-gear?noredirect</a><br /><br />Check out our Amazon wishlist:) <br /><a rel="nofollow" target="blank" href="https://www.amazon.com/hz/wishlist/ls/35BXSENANEQ3U?ref_=wl_share">https://www.amazon.com/hz/wishlist/ls/35BXSENANEQ3U?ref_=wl_share</a><br /><br />Check out our Amazon Store to see products we use!<br /><a rel="nofollow" target="blank" href="https://www.amazon.com/shop/sailingthefarside">https://www.amazon.com/shop/sailingthefarside</a><br /><br />All of our music is through Epidemic Sound<br /><a rel="nofollow" target="blank" href="https://www.epidemicsound.com/referra...">https://www.epidemicsound.com/referra...</a><br /><br />Go like us on Facebook!<br /><a rel="nofollow" target="blank" href="https://web.facebook.com/sailingthefarside">https://web.facebook.com/sailingthefarside</a>{% endraw %}
