@@ -1,0 +1,15 @@
+---
+title: "Sight Words | Ready to Read Sight Words | List 1 | Jack Hartmann"
+image: "https:\/\/i.ytimg.com\/vi\/0h1Q7SVKG0A\/hqdefault.jpg"
+vid_id: "0h1Q7SVKG0A"
+categories: "Education"
+tags: ["sight words","learn sight words","sight words for kindergarten"]
+date: "2022-01-18T17:35:57+03:00"
+vid_date: "2018-08-14T21:37:53Z"
+duration: "PT4M13S"
+viewcount: "902922"
+likeCount: "3915"
+dislikeCount: ""
+channel: "Jack Hartmann Kids Music Channel"
+---
+{% raw %}Ready to Read sight words. This sight word list, list 1, includes the following sight words: I, a, boy, like, the, see, is, am and to. The first time through we spell and say the sight word three times and then ask students to spell and say the sight word on their own three times.  The next time the sight words are shown and students are asked to say the sight word before Jack Hartmann gives the answer for higher order learning.  <br /><br />Lyrics<br />Sight words, sight words all around<br />Sight words, sight words learn them now<br />Look at the word and listen to me<br />Then you spell the word and repeat what you see<br /><br />I, I, I, I<br />A, a, a, a<br />Boy, boy, boy, boy<br />Girl, girl, girl, girl<br />Like, like, like, like<br />The, the, the, the<br />See, see, see, see<br />Is, is, is, is<br />Am, am, am, am<br />To, to, to, to<br /><br />Sight words, sight words all around<br />Sight words, sight words learn them now<br />Read the word and say it out loud before me<br /><br />I<br />A<br />Boy<br />Girl<br />Like<br />The<br />See<br />Is<br />Am<br />To<br /><br />Sight words, sight words all around<br />Sight words, sight words learn them now<br /><br />Jack Hartmann's website: <a rel="nofollow" target="blank" href="https://jackhartmann.com">https://jackhartmann.com</a><br /><br />Remember to connect with Jack Hartmann on his Social Networks:<br /><br />Facebook: <a rel="nofollow" target="blank" href="https://facebook.com/hop2itmusic">https://facebook.com/hop2itmusic</a><br />Pinterest: <a rel="nofollow" target="blank" href="https://pinterest.com/jackhartmann">https://pinterest.com/jackhartmann</a><br />YouTube: https:// youtube.com/user/JackHartmann<br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/Jack_Hartmann">https://twitter.com/Jack_Hartmann</a><br />Google+: <a rel="nofollow" target="blank" href="https://goo.gl/GW7SPs">https://goo.gl/GW7SPs</a><br /><br />You can find Jack Hartmann's Music on:<br /><br />Jack Hartmann Website: <a rel="nofollow" target="blank" href="https://jackhartmann.com">https://jackhartmann.com</a><br />iTunes: <a rel="nofollow" target="blank" href="https://goo.gl/GeDJeJ">https://goo.gl/GeDJeJ</a><br />Amazon: <a rel="nofollow" target="blank" href="https://goo.gl/Ei8C6B">https://goo.gl/Ei8C6B</a><br />Google Play: <a rel="nofollow" target="blank" href="https://goo.gl/doZpfS">https://goo.gl/doZpfS</a><br />CD Baby: <a rel="nofollow" target="blank" href="https://cdbaby.com/Artist/JackHartmann">https://cdbaby.com/Artist/JackHartmann</a>{% endraw %}
