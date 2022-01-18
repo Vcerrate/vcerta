@@ -1,0 +1,15 @@
+---
+title: "ranking KPOP thirst traps because we're freakY asf 😩 part 5*****"
+image: "https:\/\/i.ytimg.com\/vi\/6mFkq_wrJMk\/hqdefault.jpg"
+vid_id: "6mFkq_wrJMk"
+categories: "People-Blogs"
+tags: ["ranking","thirst","traps"]
+date: "2022-01-18T08:00:55+03:00"
+vid_date: "2022-01-17T00:48:39Z"
+duration: "PT18M"
+viewcount: "236391"
+likeCount: "42755"
+dislikeCount: ""
+channel: "deb smikle"
+---
+{% raw %}“i don’t care about your trauma” -our hero, lauren <br />-<br />hostage: <a rel="nofollow" target="blank" href="https://www.instagram.com/dexxtiny/">https://www.instagram.com/dexxtiny/</a><br />-<br />part 1: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=VUes8spTPzE&amp;t=122s">https://www.youtube.com/watch?v=VUes8spTPzE&amp;t=122s</a><br />part 2: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=xpHBPdMqJLA">https://www.youtube.com/watch?v=xpHBPdMqJLA</a><br />part 3: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=HzGjVNObnq0&amp;t=216s">https://www.youtube.com/watch?v=HzGjVNObnq0&amp;t=216s</a><br />part 4: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=B1zAIBGqZ44&amp;t=1056s">https://www.youtube.com/watch?v=B1zAIBGqZ44&amp;t=1056s</a><br />-<br />video editors!!!! (y’all are amazing pls accept my firstborn child as a token of my love) also, it’s in the order of the videos shown for anyone wondering! plus some notes because im still not over it???? bite me<br />-<br />@lino.kittyboy1 (started us off very well hehe)<br />@byemoa <br />@lino.kittyboy1<br />@hwangsenshi<br />@teezfilm <br />@kaynat_m<br />@denimtyun <br />@wotsuga (the smile i-)<br />@taniaeditss (the floor clip pls)<br />@girlcci (typing this from jimin’s shackles) <br />@pjmsweetbby<br />@sabine.s<br />@1997gguk<br />@hyukangchoi (the transition how) <br />@heavnlychan<br />@luvlunaaaaa(this one was so delicious, let’s get the bill purr)<br />@lupawat (chile this one was out of pocket!)<br />@bubbletae_y (pov u wish u were the floor)<br />@horizonembrace (his music is actually good wot)<br />-<br />꩜ contact <br />instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/debsmikle/?...">https://www.instagram.com/debsmikle/?...</a> (@debsmikle)<br />pinterest: <a rel="nofollow" target="blank" href="https://www.pinterest.ca/debsmikle/">https://www.pinterest.ca/debsmikle/</a> (@debsmikle) <br />tiktok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@deboobey">https://www.tiktok.com/@deboobey</a> (@deboobey)<br />spotfiy: <a rel="nofollow" target="blank" href="https://open.spotify.com/user/rrcipe967oecr22oipfiwsala?si=cb76fc902e5a4218">https://open.spotify.com/user/rrcipe967oecr22oipfiwsala?si=cb76fc902e5a4218</a><br />business email: smikledeborah@gmail.com<br />JOIN THE DISCORD FAMILIA: <a rel="nofollow" target="blank" href="https://discord.gg/jSTbG8n2">https://discord.gg/jSTbG8n2</a><br /><br />꩜ sub count: 350,399<br /><br />comment a 🐝 if you're reading this hehe <br />love u all x3000{% endraw %}
