@@ -1,0 +1,15 @@
+---
+title: "THIS CAN’T BE REAL???"
+image: "https:\/\/i.ytimg.com\/vi\/Fwg_VqEaSy8\/hqdefault.jpg"
+vid_id: "Fwg_VqEaSy8"
+categories: "People-Blogs"
+tags: ["grandpa adler farms","grandpa adler farms youtube","adler farm"]
+date: "2022-01-19T05:00:06+03:00"
+vid_date: "2022-01-16T21:08:16Z"
+duration: "PT34M31S"
+viewcount: "19060"
+likeCount: "4272"
+dislikeCount: ""
+channel: "Grandpa Adler Farms"
+---
+{% raw %}How did this happen????<br /><br /><br />My Family's Channels<br /> @K&amp;S Get Out @Adler Farms @Adler Farm's After Hours    <br /><br />NEW MIC! YES its pricey...but I get asked A LOT!<br /><a rel="nofollow" target="blank" href="https://amzn.to/33cMXpk">https://amzn.to/33cMXpk</a><br /><br />Lapel <br /><a rel="nofollow" target="blank" href="https://amzn.to/3EHTYfB">https://amzn.to/3EHTYfB</a><br /><br />Nesting Boxes<br /><a rel="nofollow" target="blank" href="https://amzn.to/30MKG2K">https://amzn.to/30MKG2K</a><br />Nesting Straw<br /><a rel="nofollow" target="blank" href="https://amzn.to/3bb6gzO">https://amzn.to/3bb6gzO</a><br /><br />My boots!<br /><a rel="nofollow" target="blank" href="https://amzn.to/3Fq28Ks">https://amzn.to/3Fq28Ks</a><br /><br />My favorite mousetrap! <br /><a rel="nofollow" target="blank" href="https://www.rinnecorp.com/?ref=ralphdoss">https://www.rinnecorp.com/?ref=ralphdoss</a><br /><br />Find them on Amazon as well!<br /><a rel="nofollow" target="blank" href="https://amzn.to/3zM0bog">https://amzn.to/3zM0bog</a><br /><br />New Saw from Grandma!<br /><a rel="nofollow" target="blank" href="https://amzn.to/2Xxuy4b">https://amzn.to/2Xxuy4b</a><br /><br />Garden Brought to You By our Friends at    @Hoss Tools    <br /><a rel="nofollow" target="blank" href="https://shrsl.com/33bdj">https://shrsl.com/33bdj</a><br /><br />My Boonie Hats!<br /><a rel="nofollow" target="blank" href="https://amzn.to/3udlpbN">https://amzn.to/3udlpbN</a><br /><br />Join Our Channel Membership!<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCNODE2HTE8kzIE3iA6l-5EA/join">https://www.youtube.com/channel/UCNODE2HTE8kzIE3iA6l-5EA/join</a><br /><br />Sincerely appreciate you all!<br /><br />🛒Shop for ANYTHING on Amazon &amp; SUPPORT our farm!(Costs you Nothing!)🛒<br /><a rel="nofollow" target="blank" href="http://bit.ly/GrandpaAmazon">http://bit.ly/GrandpaAmazon</a><br />🛒Send Me An Amazon Gift Card🛒<br /><a rel="nofollow" target="blank" href="http://bit.ly/SendGrandpaGiftCard">http://bit.ly/SendGrandpaGiftCard</a><br />**If you shop on Amazon clicking the above link will support our channel &amp; cost you nothing no matter what you buy! Thank you!<br /><br />*Using any of the above affiliate links may pay us a small commission and we greatly appreciate it. All proceeds go to supporting the channel and the videos we create.****<br /><br />Mail:<br />Grandpa Adler Farms<br />PO Box 509<br />Webb City, MO 64870<br /><br />Thank you<br />-Ralph &amp; Lea Ann<br /><br />#grandpaadlerfarms #grandpaadlerfarmsyoutube #homesteading #farmlife #homestead #homesteading #farmvlog #firstvlog #smallfarm #kubota #tarterusa{% endraw %}
