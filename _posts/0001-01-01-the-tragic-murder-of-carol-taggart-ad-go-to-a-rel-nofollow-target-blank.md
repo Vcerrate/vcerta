@@ -1,0 +1,15 @@
+---
+title: "THE TRAGIC MURDER OF CAROL TAGGART"
+image: "https:\/\/i.ytimg.com\/vi\/9py6dhTUhFM\/hqdefault.jpg"
+vid_id: "9py6dhTUhFM"
+categories: "Education"
+tags: ["eleanor","neale","eleanor neale"]
+date: "2022-01-20T01:51:46+03:00"
+vid_date: "2022-01-18T19:00:03Z"
+duration: "PT44M11S"
+viewcount: "368971"
+likeCount: "22335"
+dislikeCount: ""
+channel: "Eleanor Neale"
+---
+{% raw %}AD - Go to <a rel="nofollow" target="blank" href="https://www.casetify.com/eleanor">https://www.casetify.com/eleanor</a> to save 15% off your order!<br /><br />PLEASE SIGN THE PETITION! - <a rel="nofollow" target="blank" href="https://www.change.org/p/scottish-government-remove-prevent-convicted-murderers-from-being-executors-of-the-person-they-murdered-estate">https://www.change.org/p/scottish-government-remove-prevent-convicted-murderers-from-being-executors-of-the-person-they-murdered-estate</a><br /><br />Today's solved true crime case is on the murder of Carol Taggart from Fife, Scotland in 2014. After being groomed, manipulated and abused by her son Ross Taggart.<br /><br />My Merch is Available Here!! - <a rel="nofollow" target="blank" href="https://eleanorneale.shop/">https://eleanorneale.shop/</a><br /><br />Become a Member of My Channel! (you get cool perks!) - <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCFMbX7frWZfuWdjAML0babA/join">https://www.youtube.com/channel/UCFMbX7frWZfuWdjAML0babA/join</a><br /><br />My second channel - <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCr2FT6hGSDKIKVs7H2doZkw">https://www.youtube.com/channel/UCr2FT6hGSDKIKVs7H2doZkw</a><br /><br />FOLLOW ME ON MY SOCIALS !<br />Insta- eleanorneale <a rel="nofollow" target="blank" href="https://www.instagram.com/eleanorneale/">https://www.instagram.com/eleanorneale/</a><br />Twitter- EleanorXNeale <a rel="nofollow" target="blank" href="https://twitter.com/EleanorxNeale">https://twitter.com/EleanorxNeale</a><br />TikTok - EleanorNeale <a rel="nofollow" target="blank" href="http://vm.tiktok.com/51Heru/">http://vm.tiktok.com/51Heru/</a><br /><br />Email *BUSINESS ONLY* - EleanorNeale@sixteenth.co<br />Please do not email case requests as I will not see them! Leave them in the comments, I always read them :)<br /><br />The equipment I use:<br />Canon 80D camera body - <a rel="nofollow" target="blank" href="https://amzn.to/3g2cpj6">https://amzn.to/3g2cpj6</a><br />Sigma 18-35mm lens - <a rel="nofollow" target="blank" href="https://amzn.to/2WEnJue">https://amzn.to/2WEnJue</a><br />Ring light - <a rel="nofollow" target="blank" href="https://amzn.to/3g6HKS3">https://amzn.to/3g6HKS3</a><br />Soft box lights - <a rel="nofollow" target="blank" href="https://amzn.to/3bHIpWn">https://amzn.to/3bHIpWn</a><br />*SIMILAR* moon shelves to mine - <a rel="nofollow" target="blank" href="https://amzn.to/2zLgxn2">https://amzn.to/2zLgxn2</a> <a rel="nofollow" target="blank" href="https://amzn.to/2TjprPs">https://amzn.to/2TjprPs</a><br /><br />Amazon links are affiliate, thank you for supporting me!!{% endraw %}
