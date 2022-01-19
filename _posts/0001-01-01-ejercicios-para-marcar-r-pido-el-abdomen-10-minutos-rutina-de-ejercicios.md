@@ -1,0 +1,15 @@
+---
+title: "Ejercicios para Marcar Rápido el Abdomen \/\/ 10 MINUTOS"
+image: "https:\/\/i.ytimg.com\/vi\/jb_nImb4p48\/hqdefault.jpg"
+vid_id: "jb_nImb4p48"
+categories: "Sports"
+tags: ["fausto murillo","gym virtual","adrianfit"]
+date: "2022-01-19T23:47:00+03:00"
+vid_date: "2018-06-06T13:15:55Z"
+duration: "PT12M3S"
+viewcount: "439576"
+likeCount: "10059"
+dislikeCount: ""
+channel: "Adrián Fit"
+---
+{% raw %}Rutina de ejercicios para marcar el abdpomen en 10 minutos!!!<br />Mis sensores de monitoreo:<br />Adquierelos en Rook Motion con un descuento con el código ADRIANFIT: <a rel="nofollow" target="blank" href="https://rookmotion.com/productos.html">https://rookmotion.com/productos.html</a><br /><br />Mi equipo de entrenamiento:<br />Adquiereelo en Bold Tribe con un descuento con el código #ADRIANFIT10OFF: <a rel="nofollow" target="blank" href="https://es.boldtribe.com/collections/all">https://es.boldtribe.com/collections/all</a> <br />▼▼▼ RECUERDA LEERME ▼▼▼<br /><br />♦ COMPARTE CON LOS HASHTAGS:<br />#adrianfit #calendarioadrianfit<br /><br />♦ ¡SUSCRÍBETE!  ► <a rel="nofollow" target="blank" href="http://www.youtube.com/user/adrianfit">http://www.youtube.com/user/adrianfit</a> ◄<br /><br />♦ Asesoría Personalizada: nutrición@adrianfit.com<br /><br />****************<br /><br />♦ MIS REDES SOCIALES<br /><br />○ FACEBOOK: <a rel="nofollow" target="blank" href="http://www.facebook.com/adrianfit15">http://www.facebook.com/adrianfit15</a><br />○ INSTAGRAM: <a rel="nofollow" target="blank" href="http://www.instagram.com/adrianfit15">http://www.instagram.com/adrianfit15</a><br />○ TWITTER: <a rel="nofollow" target="blank" href="http://www.twitter.com/adrianfit15">http://www.twitter.com/adrianfit15</a><br /><br />****************<br /><br />♦ NO TE PIERDAS LAS MEJORES LISTAS DE REPRODUCCIÓN<br /><br />○ PARA BAJAR DE PESO: <a rel="nofollow" target="blank" href="https://goo.gl/tnawdB">https://goo.gl/tnawdB</a><br />○ GLÚTEOS Y PIERNAS: <a rel="nofollow" target="blank" href="https://goo.gl/sJSBHS">https://goo.gl/sJSBHS</a><br />○ ABDOMEN: <a rel="nofollow" target="blank" href="https://goo.gl/w8v9rb">https://goo.gl/w8v9rb</a><br />○ RETO PRINCIPIANTES: <a rel="nofollow" target="blank" href="https://goo.gl/MePEHR">https://goo.gl/MePEHR</a><br /><br />****************<br /><br />♦ DESCARGO DE RESPONSABILIDAD:<br /><br />AdrianFit y/o Luis Adrián Pérez Flores recomiendan que consulte con su médico antes de comenzar cualquier programa de ejercicios.<br /><br />Es importante estar en buena salud física para poder participar en el ejercicio.<br /><br />Debe comprender que al participar en cualquier ejercicio o programa de ejercicios, existe la posibilidad de lesiones físicas. Si participa en este ejercicio o programa de ejercicios, acepta que lo hace bajo su propio riesgo, participa voluntariamente en estas actividades, asume todo el riesgo de lesiones y acepta liberar y despedir a AdrianFit y/o Luis Adrián Pérez Flores de cualquier reclamo o causas de acción, conocidos o desconocidos, que surjan de la negligencia de AdrianFit y/o Luis Adrián Pérez Flores{% endraw %}
