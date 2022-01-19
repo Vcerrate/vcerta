@@ -1,0 +1,15 @@
+---
+title: "The Glendale Show! Incredible old toys, vintage signs, and antique advertising!"
+image: "https:\/\/i.ytimg.com\/vi\/hnkvzsgizvY\/hqdefault.jpg"
+vid_id: "hnkvzsgizvY"
+categories: "Entertainment"
+tags: ["randomland","justin scarred","5337"]
+date: "2022-01-19T19:02:49+03:00"
+vid_date: "2022-01-18T01:35:02Z"
+duration: "PT20M5S"
+viewcount: "18352"
+likeCount: "1680"
+dislikeCount: ""
+channel: "JustinScarred"
+---
+{% raw %}The Glendale show! Vintage Toys, antique signs and knick knacks  and every kind of advertising imaginable from old cans and bottles to porcelain signs and chewing gum packaging come to one place, the All American Collector show! Everything from 80s toys to atomic age Advertising, Tiki legends and Vintage Disney, along with a ton of Batman items, tin toys, and rare items galore make their appearance at the Glendale civic auditorium near Los Angeles on today's episode of Randomland...<br /><br /><br />Thanks for watching! Never miss an Adventure! Subscibe &amp; Tap the 🔔  to get notifications on new videos! <br /><br /><br />MERCH! Our online Store: <a rel="nofollow" target="blank" href="http://Store.Randomland.com">http://Store.Randomland.com</a><br /><br />Join the conversation! - Our Facebook group! shortcut- <a rel="nofollow" target="blank" href="http://sometimesmob.com">http://sometimesmob.com</a> <br /><br />SUPPORT! Become a contributor: <a rel="nofollow" target="blank" href="http://patreon.com/justinscarred">http://patreon.com/justinscarred</a><br />These adventures are not geared to analytics or clickbait precisely because they are primarily fan funded. Our collaborators are the people who make the show possible, almost like a PBS show, brought to you, by viewers like you!<br /><br />OTHER GREAT EPISODES:<br />Mysterious ruins 🌵 of CHACO CANYON: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=kpG2wqCMii4">https://www.youtube.com/watch?v=kpG2wqCMii4</a><br />See DISNEYLAND 🏰 in a BACKYARD!?  <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=4GcyEULXObU">https://www.youtube.com/watch?v=4GcyEULXObU</a><br />See the Creepy CLOWN MOTEL🤡  <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=JLvXS-17KsA">https://www.youtube.com/watch?v=JLvXS-17KsA</a><br />See ROSWELL New Mexico 👽 <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=TFNFiW8955s">https://www.youtube.com/watch?v=TFNFiW8955s</a><br />See BILLY THE KID, IRL! 🤠  <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=DJF3lkwTsykOr">https://www.youtube.com/watch?v=DJF3lkwTsykOr</a> Travel the FULL 🛣 ROUTE 66… 🏜 Twice! <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLvTfwkrdJqIqI8gR2CtmevXFq1wjqmo2O">https://www.youtube.com/playlist?list=PLvTfwkrdJqIqI8gR2CtmevXFq1wjqmo2O</a><br /><br /><br />INSTAGRAM - <a rel="nofollow" target="blank" href="https://www.instagram.com/justinscarred">https://www.instagram.com/justinscarred</a><br /><br />FACEBOOK! <a rel="nofollow" target="blank" href="http://Facebook.com/JustinScarred">http://Facebook.com/JustinScarred</a>{% endraw %}
