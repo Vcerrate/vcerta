@@ -1,0 +1,15 @@
+---
+title: "You Had to Be Strong Just to Wear the Armor as a Viking"
+image: "https:\/\/i.ytimg.com\/vi\/h4Uw1g5MU_U\/hqdefault.jpg"
+vid_id: "h4Uw1g5MU_U"
+categories: "Howto-Style"
+tags: ["Viking Armour","Museum Island","Berlin Germany"]
+date: "2022-01-20T02:48:38+03:00"
+vid_date: "2012-03-09T23:29:36Z"
+duration: "PT2M38S"
+viewcount: "1904158"
+likeCount: "20117"
+dislikeCount: ""
+channel: "Museum Secrets by Kensington Communications"
+---
+{% raw %}Learn from Viking Warfare experts (Kelle and Gernot Longbow) about their armour and the gear that they wear in combat: chain-mail, belt, arm gear, shield, and the sword. They name all the clothing elements, describing what they're made of and how they work. <br /><br />The Vikings claimed that their swords were indestructible.  That's probably a bit of a stretch.  But they must have been nearly indestructible to allow the Vikings to wreak so much havoc and destruction. This webisode is connected to our full episode Inside the Berlin Island Museums (Pergamon and Neues) where there is a longer segment on viking swords. <br /><br />Stream every episode of Museum Secrets at Vimeo On Demand: <a rel="nofollow" target="blank" href="http://vimeo.com/ondemand/museumsecrets">http://vimeo.com/ondemand/museumsecrets</a> and VHX: <a rel="nofollow" target="blank" href="http://museumsecrets.vhx.tv/">http://museumsecrets.vhx.tv/</a><br /><br />MUSEUM SECRETS is a hit TV series and rich media website that travels to the world's extraordinary museums, revealing the stories of irreplaceable treasures, probing familiar legends and assumptions, and using cutting edge research and technology to investigate the unknown. The series is produced by Kensington Communications Inc. for History (Canada) and is narrated by acclaimed actor, Colm Feore.<br /><br />You can also buy MUSEUM SECRETS Volume 1 on DVD: <a rel="nofollow" target="blank" href="http://kensingtontv.com/store/store_browse.php?projectdisplay=ms">http://kensingtontv.com/store/store_browse.php?projectdisplay=ms</a><br /><br />Website: <a rel="nofollow" target="blank" href="http://www.museumsecrets.tv">http://www.museumsecrets.tv</a><br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/museumsecrets">http://www.facebook.com/museumsecrets</a> <br />Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/museumsecrets">http://www.twitter.com/museumsecrets</a> <br />YouTube: <a rel="nofollow" target="blank" href="http://www.youtube.com/museumsecrets">http://www.youtube.com/museumsecrets</a> <br />Flickr: <a rel="nofollow" target="blank" href="http://www.flickr.com/photos/museumsecrets">http://www.flickr.com/photos/museumsecrets</a><br />Tumblr: <a rel="nofollow" target="blank" href="http://museumsecrets.tumblr.com/">http://museumsecrets.tumblr.com/</a><br />Google+: <a rel="nofollow" target="blank" href="https://plus.google.com/u/0/106512282068242238435/posts">https://plus.google.com/u/0/106512282068242238435/posts</a>{% endraw %}
