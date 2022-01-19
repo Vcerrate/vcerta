@@ -1,0 +1,15 @@
+---
+title: "The Superman Daily Diet Challenge..TRIPLED!"
+image: "https:\/\/i.ytimg.com\/vi\/JbsFvjxPQEg\/hqdefault.jpg"
+vid_id: "JbsFvjxPQEg"
+categories: "Entertainment"
+tags: ["erik the electric","eriktheelectric food challenge","erik the electric diet challenge"]
+date: "2022-01-19T10:02:49+03:00"
+vid_date: "2022-01-16T20:00:07Z"
+duration: "PT14M6S"
+viewcount: "191801"
+likeCount: "10569"
+dislikeCount: ""
+channel: "ErikTheElectric"
+---
+{% raw %}The Superman Daily Diet Challenge..TRIPLED! <br />Subscribe HERE: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/ErikTheElectric?sub_confirmation=1">https://www.youtube.com/c/ErikTheElectric?sub_confirmation=1</a> <br />ErikTheElectric Merch: <a rel="nofollow" target="blank" href="https://eriktheelectric.shop/">https://eriktheelectric.shop/</a><br /><br />#ErikTheElectric #FoodChallenge #Superman <br />In this week's food challenge, I attempted to take down the daily diet of superman.. times three! This challenge featured a TON of protein and fiber, so I was in for a tough time. Be sure to stick around until the end to see if I was able to complete this! <br /><br />Second Channel: <a rel="nofollow" target="blank" href="https://YouTube.com/ElectricTalks">https://YouTube.com/ElectricTalks</a> <br />Follow “The Electrics” ► <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCXox6wBzzmTB61UHsQUVoMA">https://www.youtube.com/channel/UCXox6wBzzmTB61UHsQUVoMA</a><br />Instagram: <a rel="nofollow" target="blank" href="https://Instagram.com/ErikTheElectric">https://Instagram.com/ErikTheElectric</a> <br />Facebook: <a rel="nofollow" target="blank" href="https://Facebook.com/ErikTheElectric">https://Facebook.com/ErikTheElectric</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://Twitter.com/ErikTheElectric">https://Twitter.com/ErikTheElectric</a> <br />Twitch: <a rel="nofollow" target="blank" href="https://Twitch.tv/ErikTheElectric">https://Twitch.tv/ErikTheElectric</a> <br />Follow Me on Strava! <a rel="nofollow" target="blank" href="https://www.strava.com/athletes/702924">https://www.strava.com/athletes/702924</a><br /><br /><br /><br />Watch More Erik TheElectric:<br />Cheat Days: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLEutRp8s1YDjTOlEXWa-tCw9B2YphwzjO">https://youtube.com/playlist?list=PLEutRp8s1YDjTOlEXWa-tCw9B2YphwzjO</a><br />Restaurant Challenges: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLEutRp8s1YDg88pWYAlnX_tnpL9yvIhC5">https://youtube.com/playlist?list=PLEutRp8s1YDg88pWYAlnX_tnpL9yvIhC5</a><br />Popular Videos: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLEutRp8s1YDjcT2LlO0NA-_AjJ4ZLpUS2">https://www.youtube.com/playlist?list=PLEutRp8s1YDjcT2LlO0NA-_AjJ4ZLpUS2</a><br />Latest Uploads: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLEutRp8s1YDjjOfhb-poGHsykhkZyrEKw">https://www.youtube.com/playlist?list=PLEutRp8s1YDjjOfhb-poGHsykhkZyrEKw</a>{% endraw %}
