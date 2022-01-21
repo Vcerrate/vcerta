@@ -1,0 +1,15 @@
+---
+title: "Barely Legal - The Strokes (cover by Pacifica)"
+image: "https:\/\/i.ytimg.com\/vi\/jtqZMVCcyno\/hqdefault.jpg"
+vid_id: "jtqZMVCcyno"
+categories: "Music"
+tags: ["the strokes","barely legal","is this it"]
+date: "2022-01-21T22:17:37+03:00"
+vid_date: "2021-12-03T16:00:17Z"
+duration: "PT3M45S"
+viewcount: "777140"
+likeCount: "31393"
+dislikeCount: ""
+channel: "Inés Adam"
+---
+{% raw %}you can support us at<br /><a rel="nofollow" target="blank" href="https://www.buymeacoffee.com/pacificabanda`">https://www.buymeacoffee.com/pacificabanda`</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/pacificabanda/">https://www.instagram.com/pacificabanda/</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCFV0u8C9DKze273yCv3W6-A">https://www.youtube.com/channel/UCFV0u8C9DKze273yCv3W6-A</a><br /><br />:)<br /><br />lyrics: <br /><br />I didn't take no shortcuts<br />I spent the money that I saved up<br />Oh, Momma running out of luck<br />Like my sister, don't give a fuck<br /><br />I wanna steal your innocence<br />To me, my life, it don't make sense<br />Those strange manners, I loved 'em so<br />&quot;Why won't you wear your new trench coat?&quot;<br /><br />I should've worked much harder<br />I should've just not bothered<br />I never show up on weekdays<br />Something that you learned yesterday<br /><br />&quot;Drive you to work; you'll be on time<br />These little problems they're not yours and mine,&quot;<br />&quot;Come on and listen to what I say<br />I've got some secrets that'll make you stay&quot;<br /><br />I just want to turn you down<br />I just want to turn you around<br />Oh, you ain't never had nothin' I wanted, but...<br />I want it all<br />I just can't figure out...<br />Nothing<br /><br />And all together it went well<br />We made pretend we were best friends<br />Then she said, &quot;Oh, you're a freak&quot;<br />&quot;They ordered me to make mistakes&quot;<br />Together again, like the beginning<br />It all works somehow in the end<br />The things we did, the things you hide<br />For the record it's between you and I<br /><br />Oh, I didn't take no shortcuts<br />I spent the money that I saved up<br />Oh, Momma running out of luck<br />Like my sister, don't give a fuck<br /><br />I wanna steal your innocence<br />To me my life, it just don't make any sense<br />Those strange manners, I loved 'em so<br />&quot;Why won't you wear your new trench coat?&quot;<br /><br />I just want to misbehave<br />I just want to be your slave<br />Oh, you ain't never had nothing I wanted, but...<br />I want it all<br />I just can't figure out...<br />Nothin'<br /><br />And all together it went well<br />We made pretend we were best friends<br />Then she said, &quot;Oh, I can wait&quot;<br />They ordered me to make mistakes<br />Together again like the beginning<br />It all works somehow in the end<br />The things we did, the things you hide<br />And for the record, it's between you and I{% endraw %}
