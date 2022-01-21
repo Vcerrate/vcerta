@@ -1,0 +1,15 @@
+---
+title: "VANS SNOWBOARDING PRESENTS: ELLES | Snow | VANS"
+image: "https:\/\/i.ytimg.com\/vi\/-fdiyluIM8I\/hqdefault.jpg"
+vid_id: "-fdiyluIM8I"
+categories: "Sports"
+tags: ["Vans","Van shoes","vans off the wall"]
+date: "2022-01-21T15:12:01+03:00"
+vid_date: "2021-12-03T02:00:13Z"
+duration: "PT18M27S"
+viewcount: "381100"
+likeCount: "5502"
+dislikeCount: ""
+channel: "Vans"
+---
+{% raw %}A short film featuring Arthur Longo, made with friends near and far during winter 2021. Featuring Arthur Longo, Dan Liedahl, Mary Rand, Blake Paul, and more. Filmed by Jake Price, Harry Hagan, and Olivier Gittler. Directed and edited by Tanner Pendleton.<br /><br />Music Credits: <br />“Instrumentals Vol. 1 Pt. 3” by Arthur Russel<br />“It Takes a Muscle” by Spectral Display<br />&quot;Raum&quot; by Grauzone<br />“The Camp” by Trisomi 24<br />“I So Liked Spring” by Linda Smith<br /><br />About Vans Snow:<br />For more than 20 years, Vans Snow has stood for one thing: pushing the limits of what’s possible through progression and innovation. Founded in our rich heritage and evolved through purpose-built products, Vans Snow is dedicated to unlocking your most genuine expression of style.<br /><br />Vans Global Snow Team: <br />Arthur Longo, Benny Urban, Blake Paul, Bryan Iguchi, Cole Navin, Dan Liedahl, Darrell Mathes, Dillon Ojo, Hana Beaman, Jake Kuzyk, Jamie Lynn, Kennedi Deck, Mary Rand, Mike Ravelson, Parker Szumowski, Pat Moore, Sam Taxwood, and Wolle Nyvelt.<br /><br />Discover more Vans Snow Content:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL1BBD39C847F5D5B4">https://youtube.com/playlist?list=PL1BBD39C847F5D5B4</a><br /> <br />Learn more about Vans Snow:<br /><a rel="nofollow" target="blank" href="https://www.vans.com/snow.html?icn=subnav">https://www.vans.com/snow.html?icn=subnav</a> <br /><br />About Vans:<br />Vans®, a VF Corporation (NYSE: VFC) brand, is the original action sports footwear, apparel, and accessories brand. Vans® authentic collections are sold in 97 countries through a network of subsidiaries, distributors, and international offices. Vans® has over 2,000 retail locations globally including owned, concession and partnership doors. The Vans® brand promotes creative self-expression in youth culture across action sports, art, music, and street culture and delivers progressive platforms such as Vans Checkerboard Day, Vans Park Series, Vans Triple Crown of Surfing®, Vans Custom Culture, and Vans’ cultural hub and international music venue, House of Vans.<br /><br />Connect with Vans:<br /><a rel="nofollow" target="blank" href="http://www.vans.com/snow">http://www.vans.com/snow</a><br /><a rel="nofollow" target="blank" href="http://www.instagram.com/vanssnow">http://www.instagram.com/vanssnow</a><br /><a rel="nofollow" target="blank" href="http://www.tiktok.com/@vans">http://www.tiktok.com/@vans</a><br /> <br />Subscribe now at: <br /><a rel="nofollow" target="blank" href="http://www.youtube.com/vans">http://www.youtube.com/vans</a>{% endraw %}
