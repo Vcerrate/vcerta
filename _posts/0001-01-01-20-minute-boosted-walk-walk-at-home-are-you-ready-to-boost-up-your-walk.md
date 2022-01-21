@@ -1,0 +1,15 @@
+---
+title: "20 Minute Boosted Walk | Walk at Home"
+image: "https:\/\/i.ytimg.com\/vi\/m9yI2LGZRE0\/hqdefault.jpg"
+vid_id: "m9yI2LGZRE0"
+categories: "Film-Animation"
+tags: ["leslie sansone","walk at home","leslie walk"]
+date: "2022-01-22T00:38:01+03:00"
+vid_date: "2018-11-12T14:00:09Z"
+duration: "PT21M36S"
+viewcount: "11474739"
+likeCount: "63615"
+dislikeCount: ""
+channel: "Walk at Home by Leslie Sansone"
+---
+{% raw %}Are you ready to boost up your WALK today? This 20 minute boosted workout takes you through segments of the 5 Boosted Miles workout. Happy Walking!<br />The full 5 Boosted Miles is available on MyWalkTV along with our full library for only $8.99 a month! Subscriber Here: <a rel="nofollow" target="blank" href="https://mywalk.tv/">https://mywalk.tv/</a><br /><br />5 Boosted Miles DVD: <a rel="nofollow" target="blank" href="https://store.walkathome.com/product/5-boosted-miles?product_id=WA63698">https://store.walkathome.com/product/5-boosted-miles?product_id=WA63698</a><br />5 Boosted Miles Download: <a rel="nofollow" target="blank" href="https://digital.walkathome.com/shop/136607">https://digital.walkathome.com/shop/136607</a><br /><br />------<br /><br />Download, stream, or purchase our latest workouts and accessories!<br />🚶‍♀️Subscribe to our best-selling app at <a rel="nofollow" target="blank" href="https://walkathome.com">https://walkathome.com</a><br />➡️ Check out our store on Amazon: <a rel="nofollow" target="blank" href="https://www.amazon.com/walkathome">https://www.amazon.com/walkathome</a><br />💻 Visit our official website: <a rel="nofollow" target="blank" href="http://walkathome.com/">http://walkathome.com/</a><br />📺 Subscribe to our YouTube channel!<br /><br />About Walk at Home by Leslie Sansone ®:<br /><br />🔹 Walk at Home is the world's leading fitness walking brand. Created by Leslie Sansone, Walk at Home has helped MILLIONS of people live active and healthy lives for over 30 years. Walk at Home is one of the top-selling fitness brands at mass retail, including Walmart, Target, and QVC. Walk at Home's popular YouTube channel has over 2 Million subscribers and is ranked as one of the TOP FITNESS CHANNELS on YouTube. Walk at Home's best selling app offers a fresh, new set of workouts every month! Learn more at <a rel="nofollow" target="blank" href="https://walkathome.com">https://walkathome.com</a> 🔹<br /><br />Follow Walk at Home by Leslie Sansone®:<br />📸 Instagram: @WalkAtHome<br />👍 Facebook: @LeslieSansone<br />🐦 Twitter: @WalkAtHome<br />📺 YouTube: @WalkAtHomebyLeslieSansone<br /><br />Walk at Home by Leslie Sansone® is a YouTube channel for at home walking workouts and fitness exercises. Join the Walk at Home crew on mile walk workouts, fat burning workouts, workout plans and more. We also love to post videos on strength training, cardio exercises, fast and easy workouts, firming routines, and more! Make sure you hit the subscribe button and turn on the &quot;bell&quot; icon 🔔 for notifications on new workout videos. Say hello in the comments too! 👋Happy walking!<br /><br />#walkathome #fitness #workouts{% endraw %}
