@@ -1,0 +1,15 @@
+---
+title: "5 Apologetics Questions Every Christian Should Learn How to Answer"
+image: "https:\/\/i.ytimg.com\/vi\/ETyzqrM3tB8\/hqdefault.jpg"
+vid_id: "ETyzqrM3tB8"
+categories: "People-Blogs"
+tags: ["apologetics"]
+date: "2022-01-21T22:53:42+03:00"
+vid_date: "2021-07-18T20:43:07Z"
+duration: "PT9M22S"
+viewcount: "155498"
+likeCount: "7938"
+dislikeCount: ""
+channel: "Alisa Childers"
+---
+{% raw %}Are you ready to make a defense for the Christian worldview? This video will help you get started! Resources mentioned in the video: <br /><br />Dr. Daniel Wallace Textual Criticism Class: <a rel="nofollow" target="blank" href="https://www.credocourses.com/product/textual-criticism/">https://www.credocourses.com/product/textual-criticism/</a><br /><br />Dr. Gary Habermas and the Evidence for the Resurrection: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=kWSG5okmUr8">https://www.youtube.com/watch?v=kWSG5okmUr8</a><br /><br />Dr. Peter Williams on Slavery in the Bible: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=EUOsBQYuZ9g">https://www.youtube.com/watch?v=EUOsBQYuZ9g</a><br /><br />Real Historian Responds to &quot;Jesus Was a Myth&quot; Claims: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=8dQuw1g428c">https://www.youtube.com/watch?v=8dQuw1g428c</a><br /><br />Undeniable Historical Evidence for the Existence of Jesus: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=iKcWgqsqJGg">https://www.youtube.com/watch?v=iKcWgqsqJGg</a><br /><br />Books mentioned:<br /><br />Myths and Mistakes in New Testament Textual Criticism: <a rel="nofollow" target="blank" href="https://amzn.to/2TqnQec">https://amzn.to/2TqnQec</a><br />The Case for the Resurrection of Jesus: <a rel="nofollow" target="blank" href="https://amzn.to/2VXg1gV">https://amzn.to/2VXg1gV</a><br />The Resurrection of the Son of God: <a rel="nofollow" target="blank" href="https://amzn.to/36K8Cnd">https://amzn.to/36K8Cnd</a><br />God's Undertaker: Has Science Buried God?: <a rel="nofollow" target="blank" href="https://amzn.to/36MfHUo">https://amzn.to/36MfHUo</a><br />Is God a Moral Monster?: <a rel="nofollow" target="blank" href="https://amzn.to/2Uqmf8z">https://amzn.to/2Uqmf8z</a><br />I Don't Have Enough Faith to be an Atheist: <a rel="nofollow" target="blank" href="https://amzn.to/3hNJJxi">https://amzn.to/3hNJJxi</a><br /><br />To order Alisa’s book, “Another Gospel”:  <a rel="nofollow" target="blank" href="https://www.alisachilders.com/anothergospel">https://www.alisachilders.com/anothergospel</a><br /><br />This video is not sponsored.  Product links are affiliate links which means if you buy something we'll receive a small commission. <br /><br />For all links to Alisa’s recommended reading, podcast studio gear and other items, <br />visit the Alisa Childers Amazon Store at <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/alisachilders">https://www.amazon.com/shop/alisachilders</a>{% endraw %}
