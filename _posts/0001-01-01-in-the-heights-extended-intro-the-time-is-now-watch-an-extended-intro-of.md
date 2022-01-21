@@ -1,0 +1,15 @@
+---
+title: "In the Heights: Extended Intro"
+image: "https:\/\/i.ytimg.com\/vi\/NpHpzslzA6Q\/hqdefault.jpg"
+vid_id: "NpHpzslzA6Q"
+categories: "Film-Animation"
+tags: ["Heights:","Extended","Intro"]
+date: "2022-01-21T10:18:02+03:00"
+vid_date: "2021-06-08T00:53:34Z"
+duration: "PT8M32S"
+viewcount: "4073885"
+likeCount: "63514"
+dislikeCount: ""
+channel: "Warner Bros. Australia"
+---
+{% raw %}The time is now! Watch an extended intro of #InTheHeightsMovie<br />and see it only in cinemas June 24.<br /><br />The creator of “Hamilton” and the director of “Crazy Rich Asians” invite you to a cinematic event, where the streets are made of music and little dreams become big... “In the Heights.”<br />Lights up on Washington Heights...The scent of a cafecito caliente hangs in the air just outside of the 181st Street subway stop, where a kaleidoscope of dreams rallies this vibrant and tight-knit community. At the intersection of it all is the likeable, magnetic bodega owner Usnavi (Anthony Ramos), who saves every penny from his daily grind as he hopes, imagines and sings about a better life.<br />“In the Heights” fuses Lin-Manuel Miranda’s kinetic music and lyrics with director Jon M. Chu’s lively and authentic eye for storytelling to capture a world very much of its place, but universal in its experience.<br />“In the Heights” stars Anthony Ramos (“A Star is Born,” Broadway’s “Hamilton”), Corey Hawkins (“Straight Outta Compton,” “BlacKkKlansman”), singer/songwriter Leslie Grace, Melissa Barrera (TV’s “Vida”), Olga Merediz (Broadway’s “In the Heights”), Daphne Rubin-Vega (Broadway’s “Rent”), Gregory Diaz IV (Broadway’s “Matilda the Musical”), Stephanie Beatriz (TV’s “Brooklyn Nine-Nine”), Dascha Polanco (TV’s “Orange is the New Black”) and Jimmy Smits (the “Star Wars” films).<br />Chu directed the film from a screenplay by Quiara Alegría Hudes, based on the musical stage play, music and lyrics by Lin-Manuel Miranda, book by Quiara Alegría Hudes and concept by Miranda. Miranda, Hudes, Scott Sanders, Anthony Bregman and Mara Jacobs produced the film, with David Nicksay and Kevin McCormick serving as executive producers.<br />Behind the camera, Chu reunited with his “Crazy Rich Asians” production designer, Nelson Coates, and editor, Myron Kerstein. He also collaborated with director of photography Alice Brooks (TV’s “The Walking Dead”) and costume designer Mitchell Travers (“Eighth Grade”). Original songs by Miranda. Alex Lacamoire (“Fosse/Verdon”) and Bill Sherman (“Sesame Street”) served as executive music producers. The choreography is by Christopher Scott, who previously teamed with Chu on the award-winning “The Legion of Extraordinary Dancers.”<br />“In the Heights” was filmed in New York, primarily on location in the dynamic community of Washington Heights.<br />Warner Bros. Pictures presents a 5000 Broadway / Barrio Grrrl! / Likely Story / SGS Pictures Production, A Jon M. Chu Film, “In the Heights.”, the film will be distributed worldwide by Warner Bros. Pictures.{% endraw %}
