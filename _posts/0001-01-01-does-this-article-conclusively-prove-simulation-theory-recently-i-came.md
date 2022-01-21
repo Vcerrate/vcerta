@@ -1,0 +1,15 @@
+---
+title: "Does This Article Conclusively Prove Simulation Theory?"
+image: "https:\/\/i.ytimg.com\/vi\/buDighdzKJY\/hqdefault.jpg"
+vid_id: "buDighdzKJY"
+categories: "Science-Technology"
+tags: ["why simulation theory is so misunderstood","the simulation argument","simulation theory"]
+date: "2022-01-21T03:57:47+03:00"
+vid_date: "2021-04-22T02:38:59Z"
+duration: "PT10M21S"
+viewcount: "14396"
+likeCount: "945"
+dislikeCount: ""
+channel: "Open Your Reality"
+---
+{% raw %}Recently I came across an article in Scientific American with the title: Confirmed We Live In A Simulation and the subtitle, We Must Never Doubt Elon Musk Again. This article was published April 1 on scientificamerican.com and I’ll post the link to it below. It’s a fairly technical article and a bit difficult to understand. I had to read it twice to fully comprehend it. But what’s said in this article may just be the final proof we need to finally quiet any skeptics of simulation theory. <br /><br />Please Support My Channel On Patreon at:<br />patreon.com/openyourreality <br /><br />One Time Donation PayPal Button:<br /><a rel="nofollow" target="blank" href="https://cutt.ly/OkvhBqP">https://cutt.ly/OkvhBqP</a><br /><br />Subscribe for more:  <a rel="nofollow" target="blank" href="https://rb.gy/oat1tc">https://rb.gy/oat1tc</a> <br /><br />If you're looking to start or improve your meditation practice, click here for Zen 12 Meditation:   <a rel="nofollow" target="blank" href="https://zen12.com/gift/a/Chad">https://zen12.com/gift/a/Chad</a><br /><br />Share This Video With A Friend:  <a rel="nofollow" target="blank" href="https://youtu.be/buDighdzKJY">https://youtu.be/buDighdzKJY</a> <br /><br />Article Mentioned In This Video:  <a rel="nofollow" target="blank" href="https://www.scientificamerican.com/article/confirmed-we-live-in-a-simulation/">https://www.scientificamerican.com/article/confirmed-we-live-in-a-simulation/</a><br /> <br />Contact Me Here For Collaborations, Sponsorship, Or Any Other Important Reason:  openyourreality@gmail.com<br /><br /><br />Similar Videos:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=J0KHiiTtt4w">https://www.youtube.com/watch?v=J0KHiiTtt4w</a><br /><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=cxy-BAaYeqA">https://www.youtube.com/watch?v=cxy-BAaYeqA</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=RVMZxH1TIIQ&amp;t=57s">https://www.youtube.com/watch?v=RVMZxH1TIIQ&amp;t=57s</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=wpG_LcTAxx8">https://www.youtube.com/watch?v=wpG_LcTAxx8</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=jHrbBYE0PrA">https://www.youtube.com/watch?v=jHrbBYE0PrA</a><br /><br /><br />#simulationtheoryexplained<br />#simulationargument<br />#arewesimulated<br />#simulationhypothesis<br />#openyourreality<br />#isourworldsimulated<br />#howdoessimulateduniversework<br />#whyistheworldsimulated<br />#simulationtheoryproof{% endraw %}
