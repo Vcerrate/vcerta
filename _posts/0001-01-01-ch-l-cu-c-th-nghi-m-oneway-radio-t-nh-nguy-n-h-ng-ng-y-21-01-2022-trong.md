@@ -1,0 +1,15 @@
+---
+title: "Chỉ Là Cuộc Thử Nghiệm | Oneway Radio - Tĩnh Nguyện Hằng Ngày 21\/01\/2022"
+image: "https:\/\/i.ytimg.com\/vi\/4vMGL9mzNGY\/hqdefault.jpg"
+vid_id: "4vMGL9mzNGY"
+categories: "Nonprofits-Activism"
+tags: ["oneway","oneway media","one way radio"]
+date: "2022-01-21T21:31:23+03:00"
+vid_date: "2022-01-20T22:00:05Z"
+duration: "PT9M51S"
+viewcount: "4531"
+likeCount: "381"
+dislikeCount: ""
+channel: "Oneway Radio"
+---
+{% raw %}Trong cuộc sống, chắc hẳn không ít lần chúng ta đối mặt với những thách thức, khó khăn. Là người thuộc về Chúa, chúng ta cần hiểu rằng Đức Chúa Trời có thể làm được mọi sự, giải quyết mọi nan đề. Những khó khăn mà chúng ta đối diện chẳng qua chỉ là một cuộc thử nghiệm của Chúa, để xem chúng ta có thực sự tin cậy và vâng lời Ngài hay không.<br /><br />Hôm nay, ngày 21/01/2022, chương trình Tĩnh Nguyện Hằng Ngày thân mời quý thính giả cùng suy gẫm Lời Chúa với tác giả Missey Butler qua chủ đề CHỈ LÀ CUỘC THỬ NGHIỆM<br />---<br />Đọc nội dung đầy đủ tại: <a rel="nofollow" target="blank" href="https://oneway.vn/radio/tinh-nguyen-hang-ngay-2101-chi-la-cuoc-thu-nghiem-84212.html">https://oneway.vn/radio/tinh-nguyen-hang-ngay-2101-chi-la-cuoc-thu-nghiem-84212.html</a><br />Link bài tiếng Hoa: <a rel="nofollow" target="blank" href="https://oneway.vn/radio/121-84218.html">https://oneway.vn/radio/121-84218.html</a><br />Link bài tiếng H'Mông: <a rel="nofollow" target="blank" href="https://oneway.vn/radio/thov-vajtswv-txhua-hnub-2101-tsuas-yog-kev-sim-siab-xwb-84219.html">https://oneway.vn/radio/thov-vajtswv-txhua-hnub-2101-tsuas-yog-kev-sim-siab-xwb-84219.html</a><br />Link bài tiếng K'Ho: <a rel="nofollow" target="blank" href="https://oneway.vn/radio/tonggume-ming-la-bota-long-sen-ngai-2112022-84220.html">https://oneway.vn/radio/tonggume-ming-la-bota-long-sen-ngai-2112022-84220.html</a><br />Link bài tiếng Jarai: <a rel="nofollow" target="blank" href="https://oneway.vn/radio/lo-21012022-konong-jing-toloi-long-lang-84221.html">https://oneway.vn/radio/lo-21012022-konong-jing-toloi-long-lang-84221.html</a><br /><br /><br /><br />Hãy giữ kết nối với chúng tôi tại:<br />Facebook: <a rel="nofollow" target="blank" href="https://facebook.com/www.oneway.vn">https://facebook.com/www.oneway.vn</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/onewayradio">https://www.instagram.com/onewayradio</a><br />Website: <a rel="nofollow" target="blank" href="https://www.oneway.vn">https://www.oneway.vn</a><br />Messenger: <a rel="nofollow" target="blank" href="https://m.me/www.oneway.vn">https://m.me/www.oneway.vn</a><br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/OnewayRadioOnline">https://www.youtube.com/c/OnewayRadioOnline</a><br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/show/2cLKW2JcAKaGsu9kJrACPj">https://open.spotify.com/show/2cLKW2JcAKaGsu9kJrACPj</a><br />Apple Podcast: <a rel="nofollow" target="blank" href="https://podcasts.apple.com/vn/channel/oneway-media/id6442608866">https://podcasts.apple.com/vn/channel/oneway-media/id6442608866</a><br />Hotline: 0896 164 199{% endraw %}
