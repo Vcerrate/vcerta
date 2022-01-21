@@ -1,0 +1,15 @@
+---
+title: "√ The Critical Analysis of The Fiftieth Gate by Mark Raphael Baker in Detail. Watch this video!"
+image: "https:\/\/i.ytimg.com\/vi\/O2NB0LRmZq4\/hqdefault.jpg"
+vid_id: "O2NB0LRmZq4"
+categories: "Education"
+tags: ["The Fiftieth Gate","Mark Baker","Mark Raphael Baker"]
+date: "2022-01-22T02:38:14+03:00"
+vid_date: "2013-11-19T03:16:22Z"
+duration: "PT19M40S"
+viewcount: "2704"
+likeCount: "21"
+dislikeCount: ""
+channel: "iitutor.com"
+---
+{% raw %}<a rel="nofollow" target="blank" href="https://iitutor.com">https://iitutor.com</a><br />You can also watch The Fiftieth Part 2:  <a rel="nofollow" target="blank" href="https://youtu.be/AgsXWoF0Wek">https://youtu.be/AgsXWoF0Wek</a><br />The Fiftieth Gate by Mark Baker is an untraditional style of non-fiction story. It follows a personal journey that investigates the history of Baker's parents' life in Poland in World War II, and the Nazi persecution and incarceration of the Jews.  The Fiftieth Gate follows the personal history of Yossi (Joe) and Genia, as told through the author's efforts to investigate their past.  Yossi and Genia Baker (Bekiermaszyn) were Polish Jews forced to survive the horrors of Nazi occupation. They migrated to Australia after the war ended.  Yossi was a prisoner at Auschwitz, the infamous German prisoner camp where many thousands of Jews were executed. Genia was the lone survivor of a town where the citizens were massacred. She was forced to spend her childhood on the run to escape the Germans.  The story re-tells the experiences of Genia and Yossl using a variety of forms. The story weaves between Baker's own life being the child of holocaust survivors as well as through the historical records he acquires.  The text is also a personal account of the research process and recounts the return of Genia and Yossl upon visiting their hometowns, as well as other important places from their childhood.  It uses songs, historical records, personal testimonies as well as narratives in order to give an emotional account of events.  The Fiftieth Gate uses a variety of methods of story-telling. It attempts to use voice.   It is a contrast between history and memory; between historical documents and recorded accounts of his parents.  Baker chooses to integrate the gulf between a modern re-telling of events based on memory and one which is informed by research.  Also represents the journey and the resistance to parts of the journey from his parents.  Rather than base the account entirely on historical sources, Baker focuses on giving an account that reflects his 'family' as much as 'their history'.  One could consider this style a form of a family diary.  Yet, it also tries to connect the family to values that are more relatable to us.  The text's loose and unconventional structure is interrupted by references to Jewish culture and history, along with emotional and sensory language. Australian, Polish and Jewish perspectives are represented, particularly in contrasts and juxtapositions.  <br />ETBMF1<br /><a rel="nofollow" target="blank" href="http://youtu.be/O2NB0LRmZq4">http://youtu.be/O2NB0LRmZq4</a>{% endraw %}
