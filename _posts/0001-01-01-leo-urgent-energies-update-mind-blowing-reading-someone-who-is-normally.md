@@ -1,0 +1,15 @@
+---
+title: "LEO URGENT Energies Update - MIND BLOWING Reading!!!  Someone who is normally fake, is getting REAL!"
+image: "https:\/\/i.ytimg.com\/vi\/bw_j8Zq-wrg\/hqdefault.jpg"
+vid_id: "bw_j8Zq-wrg"
+categories: "People-Blogs"
+tags: ["twin flame","twin flames","tarot reading"]
+date: "2022-01-21T23:09:25+03:00"
+vid_date: "2022-01-19T21:47:38Z"
+duration: "PT55M55S"
+viewcount: "14090"
+likeCount: ""
+dislikeCount: ""
+channel: "Steve's Love Tarot"
+---
+{% raw %}EXTENDED READING:  To dive DEEP into how your person feels about you &amp; what happened on their end check out the extended reading -- <a rel="nofollow" target="blank" href="https://vimeo.com/ondemand/leoenergupdate01192227">https://vimeo.com/ondemand/leoenergupdate01192227</a><br /><br />Also check out my BLOG for articles, channel news. and more.  The official SLT (Steve's Love Tarot) blog can be found at <a rel="nofollow" target="blank" href="https://sltblog.com">https://sltblog.com</a><br /><br />Donations are always appreciated.  They really help me grow the channel.  If you're so inclined to make a PayPal donation here's the link, <a rel="nofollow" target="blank" href="https://www.paypal.com/donate?hosted_button_id=BDW76LK5E85W6&amp;source=url">https://www.paypal.com/donate?hosted_button_id=BDW76LK5E85W6&amp;source=url</a><br /><br />Comments are always off on this channel to conserve my energy a bit but you're always welcome to come say hello on Twitter at <a rel="nofollow" target="blank" href="https://twitter.com/steveslovetarot">https://twitter.com/steveslovetarot</a><br /><br />These are GENERAL/LOVE and in most cases Timeless tarot readings for your sun, moon, rising, or Venus signs. Be sure and check my playlists for a mix of ALL monthly and timeless readings available.  I WANT TO REMIND EVERYONE THAT TAROT IS FOR ENTERTAINMENT PURPOSES ONLY AND ONLY THOSE 18 AND OVER!  MAKE YOUR OWN DECISIONS, BE YOUR OWN PERSON!  I'm just reading energies and translating them through the cards, nothing more!<br /><br />I read the cards intuitively by the energies around them.  Remember these are general readings so they may not resonate with you but it is always a good idea to stick around even if it seems like it doesn't because you did find the reading which means it's possible there's just one little thing in it that you need or needed to hear.<br /><br />If my readings resonate with you or even if you're just entertained by them I'd really appreciate it if you'd &quot;like&quot; and &quot;share&quot; and of course hit that &quot;subscribe&quot; button.  <br /><br />As I said earlier comments are always off on this channel.  I need to conserve my energy and I don't have time to police a bunch of comments and approve this or approve that.  I'd rather focus on giving all of you (those who want them) good, thorough readings.  <br /><br />Always remember you have free-will, make your own decisions in life.  Tarot, especially general tarot readings like these here online are for entertainment purposes only.  Opinions expressed are my own.{% endraw %}
