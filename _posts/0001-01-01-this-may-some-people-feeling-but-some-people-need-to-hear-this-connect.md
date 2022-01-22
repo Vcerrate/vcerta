@@ -1,0 +1,15 @@
+---
+title: "This May Some People Feeling But Some People Need To Hear This..."
+image: "https:\/\/i.ytimg.com\/vi\/AwOMBqxnOEU\/hqdefault.jpg"
+vid_id: "AwOMBqxnOEU"
+categories: "People-Blogs"
+tags: ["People","Feeling","People"]
+date: "2022-01-22T05:04:43+03:00"
+vid_date: "2022-01-21T01:53:02Z"
+duration: "PT9M17S"
+viewcount: "15287"
+likeCount: "1345"
+dislikeCount: ""
+channel: "Papa Duck"
+---
+{% raw %}Connect with Papa Duck and everything he do by clicking this link<br /><a rel="nofollow" target="blank" href="https://linktr.ee/papaducktlc">https://linktr.ee/papaducktlc</a><br />*<br />People ask how to start a Youtube Channel here's how &quot;Tube Buddy&quot;...click the link below and get the tools to help you start TODAY.. <a rel="nofollow" target="blank" href="https://www.tubebuddy.com/Papaduck">https://www.tubebuddy.com/Papaduck</a><br />*<br />Fix Your Credit ... Call 754-755-9774..... and get thousands of dollars $$$ of debt took off your credit score....become debt FREE ....we deal with Child Support, Student Loans, Repos, Evictions, Medical Bills, Tax Liens, Foreclosures, Repossessions and more.....Start Today<br />*<br />Click this link <a rel="nofollow" target="blank" href="https://anchor.fm/papaduck">https://anchor.fm/papaduck</a>  and subscribe to The Papa Duck Podcast each and every Wednesday @8:30 live on Youtube &amp; Facebook<br />*<br />Wanna help and be apart of the movement...please donate.... anything is greatly appreciated donations helps us to pay to promote the channel which helps us out alot ⬇️⬇️⬇️<br />Cash: app:$streetlootduck<br />PayPal: streetlootinfo@gmail.com<br />*<br />PLEASE SUPPORT PAPA DUCK by Subscribing to his Patreon link ⬇️⬇️<br /><a rel="nofollow" target="blank" href="https://www.patreon.com/user">https://www.patreon.com/user</a><br />*<br />To download all Papa Duck's New &amp; Old Mixtapes and videos please click this link <a rel="nofollow" target="blank" href="https://linktr.ee/papaduck561">https://linktr.ee/papaduck561</a><br />thank you all for the support<br />*<br />To get your music on Tik Tok, Itunes, Spotify, Apple Music, Soundcloud, Tidal and more for only 20$ a year ...click this link and sign up NOW <a rel="nofollow" target="blank" href="https://distrokid.com/vip/seven/959382">https://distrokid.com/vip/seven/959382</a> .....<br />Do It Today and you get 7% off the 20$  today...have your music up as fast as 48hours<br />*<br />Follow Papa Duck on Social Media<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/papaduck561">https://www.instagram.com/papaduck561</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/papaduckfanp...">https://www.facebook.com/papaduckfanp...</a><br />Snapchat: <a rel="nofollow" target="blank" href="https://www.snapchat.com/@papaduckslmg">https://www.snapchat.com/@papaduckslmg</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/papaduck1">https://twitter.com/papaduck1</a><br />*<br />© 2022 Street Loot Music{% endraw %}
