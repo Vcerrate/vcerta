@@ -1,0 +1,15 @@
+---
+title: "Ender-2 Pro - How to convert into a fantastic minis printer!"
+image: "https:\/\/i.ytimg.com\/vi\/iEdCTuK7ZW0\/hqdefault.jpg"
+vid_id: "iEdCTuK7ZW0"
+categories: "Gaming"
+tags: ["Ender-2 pro","3d printer","3d printing"]
+date: "2022-01-22T19:06:18+03:00"
+vid_date: "2022-01-20T19:22:29Z"
+duration: "PT15M27S"
+viewcount: "3639"
+likeCount: "200"
+dislikeCount: ""
+channel: "Tomb of 3D Printed Horrors"
+---
+{% raw %}See how I turned Creality's new Ender-2 Pro into a fantastic gaming minis printer!<br />LINKS:<br /><br />Get our FDM optimized fantasy terrain and miniatures here:<br /><br /><a rel="nofollow" target="blank" href="http://www.fatdragongames.com">http://www.fatdragongames.com</a><br /><br />Cura profiles:<br /><br /><a rel="nofollow" target="blank" href="http://www.fatdragongames.com/fdgfiles/?p=4934">http://www.fatdragongames.com/fdgfiles/?p=4934</a><br /><br />Supplies Links:<br /><br /><a rel="nofollow" target="blank" href="http://www.fatdragongames.com/fdgfiles/?p=5863">http://www.fatdragongames.com/fdgfiles/?p=5863</a><br /><br />**************************************************************************************************<br /><br />Amazon Links<br /><br />(As an Amazon Associate I earn from qualifying purchases):<br /><br />Ender-2 Pro from Amazon:<br /><br /><a rel="nofollow" target="blank" href="https://amzn.to/3nLKGsv">https://amzn.to/3nLKGsv</a><br /><br />.3mm Nozzles:<br /><br /><a rel="nofollow" target="blank" href="https://amzn.to/3GMI8C7">https://amzn.to/3GMI8C7</a><br /><br />PC4-M6 Fittings and PC4-M10 Fitting Connector for bowden tube:<br /><br /><a rel="nofollow" target="blank" href="https://amzn.to/2LzF2JC">https://amzn.to/2LzF2JC</a><br /><br /><a rel="nofollow" target="blank" href="https://amzn.to/2Xv7AHm">https://amzn.to/2Xv7AHm</a><br /><br />Micro SD to SD Card Extension Cable Adapter:<br /><br /><a rel="nofollow" target="blank" href="https://amzn.to/31is0og">https://amzn.to/31is0og</a><br /><br />8mm OD 20mm Long Light Load Compression Mould Die Spring Yellow <br /><br /><a rel="nofollow" target="blank" href="https://amzn.to/39YPSBe">https://amzn.to/39YPSBe</a><br /><br /><br />***********************************************************<br /><br />Join our Dragonlock Facebook group for help with troubleshooting printing your DRAGONLOCK models on your 3D printer, see Dragonlock D&amp;D tabletop terrain builds others have made, and much more!<br /><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/groups/528423924186756/">https://www.facebook.com/groups/528423924186756/</a><br /><br />***********************************************************<br /><br />Sign up for the Fat Dragon Games Newsletter here for previews of our Dragonlock D&amp;D terrain and miniatures:<br /><br /><a rel="nofollow" target="blank" href="https://fatdragongames.us3.list-manage.com/subscribe?u=0bdc1e39fa803889e49968ff6&amp;id=f814cb8452">https://fatdragongames.us3.list-manage.com/subscribe?u=0bdc1e39fa803889e49968ff6&amp;id=f814cb8452</a><br /><br />***********************************************************{% endraw %}
