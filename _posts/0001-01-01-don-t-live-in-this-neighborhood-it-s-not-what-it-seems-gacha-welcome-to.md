@@ -1,0 +1,15 @@
+---
+title: "DON'T Live in this Neighborhood it's NOT WHAT IT SEEMS Gacha"
+image: "https:\/\/i.ytimg.com\/vi\/LnpqAm8N9FU\/hqdefault.jpg"
+vid_id: "LnpqAm8N9FU"
+categories: "Gaming"
+tags: ["cheridet","gacha","gacha club"]
+date: "2022-01-22T16:59:04+03:00"
+vid_date: "2022-01-16T08:00:08Z"
+duration: "PT12M49S"
+viewcount: "47254"
+likeCount: "2468"
+dislikeCount: ""
+channel: "Cheridet"
+---
+{% raw %}Welcome to the Gacha world and today I react to The Neighborhood! DON'T Live in this Neighborhood it's NOT WHAT IT SEEMS! Moving to a new home is always exciting but not when your neighbours are SUPER CREEPY!<br />✨ Original Gacha: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=vlfm3jfugIw">https://www.youtube.com/watch?v=vlfm3jfugIw</a><br /><br />#gacha #gachahorror #cheridet<br /><br />🌸 Subscribe Today: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/Cheridet?sub_confirmation=1">https://www.youtube.com/user/Cheridet?sub_confirmation=1</a><br /><br />🌸 Social Media 🌸<br />♡ Merch Store: <a rel="nofollow" target="blank" href="https://cheridet.com">https://cheridet.com</a><br />♡ Pokemon Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCqHfbBGQseHN2sSBW4ckE3g/featured">https://www.youtube.com/channel/UCqHfbBGQseHN2sSBW4ckE3g/featured</a><br />♡ Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/Cheridet">https://twitter.com/Cheridet</a><br />♡ Tik Tok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@cheritree">https://www.tiktok.com/@cheritree</a><br />♡ Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/cheridet">https://www.instagram.com/cheridet</a><br /><br />🌸 Watch Next:<br />🌻She Wouldnt Stay DEAD and NOW I'm Being HAUNTED <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=dTZTLMxJeFk&amp;list=PLLNUvGRre31xAxvJKRrnyccUSq5xkPto4&amp;index=1&amp;ab_channel=Cheridet">https://www.youtube.com/watch?v=dTZTLMxJeFk&amp;list=PLLNUvGRre31xAxvJKRrnyccUSq5xkPto4&amp;index=1&amp;ab_channel=Cheridet</a><br />🌻 I Tried to be Fair BUT I sent them to HELL <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=XRk8RZjYrds&amp;list=PLLNUvGRre31yFyRHCArX7xL3rC2XECDw9&amp;index=1&amp;t=14s&amp;ab_channel=Cheridet">https://www.youtube.com/watch?v=XRk8RZjYrds&amp;list=PLLNUvGRre31yFyRHCArX7xL3rC2XECDw9&amp;index=1&amp;t=14s&amp;ab_channel=Cheridet</a><br />🌻 How Did I Not KNOW About These TikToks <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=MWFxz_nutco&amp;list=PLLNUvGRre31yENdxJJSyVVZkyw7SMDm46&amp;index=1&amp;t=1s&amp;ab_channel=Cheridet">https://www.youtube.com/watch?v=MWFxz_nutco&amp;list=PLLNUvGRre31yENdxJJSyVVZkyw7SMDm46&amp;index=1&amp;t=1s&amp;ab_channel=Cheridet</a><br />🌻 Huggy Wuggy has a SECRET <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ERHsSJhKlr8&amp;list=PLLNUvGRre31xAxvJKRrnyccUSq5xkPto4&amp;index=2&amp;ab_channel=Cheridet">https://www.youtube.com/watch?v=ERHsSJhKlr8&amp;list=PLLNUvGRre31xAxvJKRrnyccUSq5xkPto4&amp;index=2&amp;ab_channel=Cheridet</a>{% endraw %}
