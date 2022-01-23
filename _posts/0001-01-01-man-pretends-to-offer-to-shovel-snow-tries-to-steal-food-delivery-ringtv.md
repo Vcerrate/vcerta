@@ -1,0 +1,15 @@
+---
+title: "Man Pretends to Offer to Shovel Snow, Tries to Steal Food Delivery | RingTV"
+image: "https:\/\/i.ytimg.com\/vi\/lZt4LliMwr0\/hqdefault.jpg"
+vid_id: "lZt4LliMwr0"
+categories: "Science-Technology"
+tags: ["security system","food theft","food thief"]
+date: "2022-01-23T18:04:27+03:00"
+vid_date: "2022-01-19T18:00:32Z"
+duration: "PT59S"
+viewcount: "83651"
+likeCount: "935"
+dislikeCount: ""
+channel: "Ring"
+---
+{% raw %}Diamond got caught up in something and didn’t come to the door when her lunch was delivered on a snowy day. Five minutes later, a man with a shovel rang her Ring Video Doorbell. But it turned out he wasn’t there to shovel the snow off her porch, he was there to coop up her food delivery. <br /><br />“Here I am thinking he’s trying to do something good but he ended up trying to steal from me,” says Diamond. Thankfully, she used Two-Way Talk on her doorbell to call the man out and he brought her food back. <br /><br />If you have videos you’d like to share with us, please send them to stories@ring.com.<br /><br />Build your Ring of Security: _<a rel="nofollow" target="blank" href="http://to.ring.com/ytbundles_">http://to.ring.com/ytbundles_</a> (<a rel="nofollow" target="blank" href="http://to.ring.com/ytbundles)">http://to.ring.com/ytbundles)</a><br />Get Ring for your whole home: _<a rel="nofollow" target="blank" href="http://to.ring.com/ytcollections_">http://to.ring.com/ytcollections_</a> (<a rel="nofollow" target="blank" href="http://to.ring.com/ytcollections)">http://to.ring.com/ytcollections)</a><br />Tweet us at _<a rel="nofollow" target="blank" href="https://twitter.com/ring_">https://twitter.com/ring_</a> (<a rel="nofollow" target="blank" href="https://twitter.com/ring)">https://twitter.com/ring)</a><br />See more Ring stories at _<a rel="nofollow" target="blank" href="https://facebook.com/ring_">https://facebook.com/ring_</a> (<a rel="nofollow" target="blank" href="https://facebook.com/ring)">https://facebook.com/ring)</a><br />Follow us on _<a rel="nofollow" target="blank" href="https://instagram.com/ring_">https://instagram.com/ring_</a> (<a rel="nofollow" target="blank" href="https://instagram.com/ring)">https://instagram.com/ring)</a><br />For the latest news and tips on home security, visit _<a rel="nofollow" target="blank" href="https://blog.ring.com_">https://blog.ring.com_</a> (<a rel="nofollow" target="blank" href="https://blog.ring.com/)">https://blog.ring.com/)</a><br /><br />Ring provides effective, affordable whole-home security that works together to give you peace of mind. Upgrade your home security with Ring Video Doorbells, Security Cameras, Alarm system, Smart Lighting and more. And with a Ring Protect subscription, you can opt-in to 24/7 professional monitoring. So no matter where you are, with Ring you’re always home. Check out the full line of Ring smart home security products at _ring.com_ (<a rel="nofollow" target="blank" href="http://ring.com/).">http://ring.com/).</a><br /><br />#PreventTheft #FoodThief #SnowDay #Fake{% endraw %}
