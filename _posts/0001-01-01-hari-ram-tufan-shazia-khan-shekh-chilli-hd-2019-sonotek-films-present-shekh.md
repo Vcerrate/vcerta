@@ -1,0 +1,15 @@
+---
+title: "शेखचिल्ली का इंतकाल | Hari Ram Tufan & Shazia Khan | Shekh Chilli HD 2019"
+image: "https:\/\/i.ytimg.com\/vi\/2gMPYreMxOQ\/hqdefault.jpg"
+vid_id: "2gMPYreMxOQ"
+categories: "Comedy"
+tags: ["sonotek films","sonotek film","sonotek movie"]
+date: "2022-01-24T02:35:52+03:00"
+vid_date: "2019-05-16T08:41:46Z"
+duration: "PT58M49S"
+viewcount: "7752133"
+likeCount: "26102"
+dislikeCount: ""
+channel: "Sonotek Films"
+---
+{% raw %}Sonotek हरियाणवी Films Present “ Shekh Chilli Ka Intqal ” a Latest New Haryanvi Movies. We present to you “Sonotek Films” Song by  &quot; Sushil Thakur &quot; Asif Ali Aiwazz &quot; Name &quot; Hari Ram Tufan &amp; Shazia Khan&quot; exclusively on Sonotek Haryanvi Films. <br /><br />Video credits :--------------------------------------------------------------------------<br /><br />Movie Names :- Shekh Chilli Ka Intqal<br />Singer :-  Sushil Thakur<br />Music Director  :-  Brij Chawla<br />Story / Writer :- Tariq Jamal<br />Movie Directer :- Asif Ali Aiwazz 9211487437<br />Star Cast  :-  Hari Ram Tufan &amp; Shazia Khan, Pankaj, Prince Sharma, Tabbu, Rajkumar<br /><br />Digital Work:- Sonotek Studio<br /><br />Label &amp; Copyrights :- Sonotek Cassettes<br />Mail Us :-sonotekaudio@gmail.com<br /><br />Sonotek Onwer:- Hansraj Railhan <br />Office Number:- 011-23268079<br />Contact Company (Person) :- Leela Krishan Ji (+919212183337)<br /><br />------------------------------------------------------------------------------------------------<br /><br />Enjoy and stay connected with us!!<br /><br />Subscribe Sonotek Cassettes Haryanvi channel for unlimited entertainment :- <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/SonotekFilms">https://www.youtube.com/SonotekFilms</a><br /><br />Like us on Facebook :-<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/SonotekFilms">https://www.facebook.com/SonotekFilms</a><br /><br />Circle us on G+ :-<br /><a rel="nofollow" target="blank" href="https://plus.google.com/+SonotekVideo">https://plus.google.com/+SonotekVideo</a><br /><br />Follow us on Instagram :-<br /><a rel="nofollow" target="blank" href="https://instagram.com/SonotekFilms">https://instagram.com/SonotekFilms</a><br /><br />Follow us on Twitter :-<br /><a rel="nofollow" target="blank" href="https://twitter.com/SonotekFilms">https://twitter.com/SonotekFilms</a><br /><br />Follow us on Dailymotion :-<br /><a rel="nofollow" target="blank" href="https://www.dailymotion.com/SonotekFilms">https://www.dailymotion.com/SonotekFilms</a><br /><br />Follow us on Pinterest :-<br /><a rel="nofollow" target="blank" href="https://in.pinterest.com/SonotekFilms">https://in.pinterest.com/SonotekFilms</a><br /><br />Click Here My Blog:-<br /><a rel="nofollow" target="blank" href="http://www.sonotekvideo.blogspot.com">http://www.sonotekvideo.blogspot.com</a><br /><br />Click Here Website :-<br /><a rel="nofollow" target="blank" href="http://www.sonotekcassette.com">http://www.sonotekcassette.com</a>{% endraw %}
