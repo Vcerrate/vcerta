@@ -1,0 +1,15 @@
+---
+title: "The #1 Thing Every Business Needs To Add to Their Strategy This Year | Creative Industry Summit"
+image: "https:\/\/i.ytimg.com\/vi\/Od-2xtAdaa0\/hqdefault.jpg"
+vid_id: "Od-2xtAdaa0"
+categories: "People-Blogs"
+tags: ["Gary Vaynerchuk","Garyvee business","gary vee"]
+date: "2022-01-24T14:05:08+03:00"
+vid_date: "2021-06-21T17:12:01Z"
+duration: "PT54M40S"
+viewcount: "172157"
+likeCount: "2998"
+dislikeCount: ""
+channel: "GaryVee"
+---
+{% raw %}Today's episode is an interview from the Creative Industry Summit Egypt. We discuss NFTs and business top to bottom ranging from the origins of my NFT journey, Veefriends, how to create your own NFT, when should brands think about implementing an NFT strategy, businesses with great potential in 2021, and why kids are more prepared to accomplish their dream jobs then they've ever been.<br /><br />Enjoy! Let me know what you thought.<br /><br />Timestamps:<br />0:00 Intro<br />0:30 What are NFTs?<br />18:30 What businesses have the potential for growth in the next 5 years<br />23:14 Advice for content creators<br />28:00 What does it take to run a modern-day agency <br />36:25 The value of listening<br />41:40 How to handle difficult times?<br />45:11 Thoughts on Dubai<br />49:04 Rapid-fire Q&amp;A<br />54:00 Outro<br /><br />—<br />Thanks for watching!<br />Check out another series on my channel:<br />Tea With GaryVee (Fan Q&amp;A Series): <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLfA33-E9P7FBahSYlSAjOMGsuRPLMWWEO">https://youtube.com/playlist?list=PLfA33-E9P7FBahSYlSAjOMGsuRPLMWWEO</a><br />Overrated Underrated (Hot-takes on Culture): <a rel="nofollow" target="blank" href="https://youtu.be/TUSNSqA62uI">https://youtu.be/TUSNSqA62uI</a><br />Gary Vaynerchuk Original Films: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLfA33-E9P7FAvnrOcgy4MvIcCXxoyjuku">https://youtube.com/playlist?list=PLfA33-E9P7FAvnrOcgy4MvIcCXxoyjuku</a><br />Trash Talk: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLfA33-E9P7FDelN4bXFgtJuczC9HHmm2-">https://youtube.com/playlist?list=PLfA33-E9P7FDelN4bXFgtJuczC9HHmm2-</a><br />WeeklyVee: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLfA33-E9P7FBPjdQcF6uedz9fdk8XKn-b">https://youtube.com/playlist?list=PLfA33-E9P7FBPjdQcF6uedz9fdk8XKn-b</a><br />— <br />Gary Vaynerchuk is one of the world’s leading marketing experts, a New York Times bestselling author, and the chairman of VaynerX, a modern day communications company and the active CEO of VaynerMedia, a contemporary global creative and media agency built to drive business outcomes for their partners. He is a highly popular public speaker, and a prolific investor with investments in companies such as Facebook, Twitter, Tumblr, Venmo, Coinbase, Slack, and Uber. Gary is a board/advisory member of Bojangles’ Restaurants, MikMak, Pencils of Promise, and is a longtime Well Member of Charity:Water. He’s also an avid sports card investor and collector. He lives in New York City.{% endraw %}
