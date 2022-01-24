@@ -1,0 +1,15 @@
+---
+title: "Stray Kids Reveals How Their Friendship Has Changed Since Their Debut | Then vs. Now | Seventeen"
+image: "https:\/\/i.ytimg.com\/vi\/uCVZSvwbk1w\/hqdefault.jpg"
+vid_id: "uCVZSvwbk1w"
+categories: "Howto-Style"
+tags: ["Stray","Reveals","Their"]
+date: "2022-01-24T18:59:40+03:00"
+vid_date: "2022-01-20T23:00:23Z"
+duration: "PT11M31S"
+viewcount: "446740"
+likeCount: "77068"
+dislikeCount: ""
+channel: "Seventeen"
+---
+{% raw %}K-pop faves Stray Kids debuted in 2017, and they decided to look back at their career and compare it to how they're doing now. Watch as they reveal their old celebrity crushes, what they are most excited for these days, how long it used to take them to memorize lyrics, and so much more. Check out more from your K-pop faves here: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Z5JSJb8V54Q&amp;list=PLunx6D_le-dIhMVNPWLGY6krdL3qlORi1">https://www.youtube.com/watch?v=Z5JSJb8V54Q&amp;list=PLunx6D_le-dIhMVNPWLGY6krdL3qlORi1</a><br /><br />#StrayKids<br />#StrayKidsThenVsNow<br /><br />♥ SEVENTEEN SHOWS ♥ <br />Bestie Picks Bae: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=owLomd3QqEQ&amp;list=PLunx6D_le-dI9hebcWWp9a2mFpiO57Ooo">https://www.youtube.com/watch?v=owLomd3QqEQ&amp;list=PLunx6D_le-dI9hebcWWp9a2mFpiO57Ooo</a><br />Lyric Challenge: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=-0y2MvO69x0&amp;list=PLunx6D_le-dKNOb0432qP9r2JfVPaQs7-">https://www.youtube.com/watch?v=-0y2MvO69x0&amp;list=PLunx6D_le-dKNOb0432qP9r2JfVPaQs7-</a><br />Superlatives Challenge: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=YJiv8wIgydQ&amp;list=PLunx6D_le-dIFSyovlbHyhtjiE3yw6DDP">https://www.youtube.com/watch?v=YJiv8wIgydQ&amp;list=PLunx6D_le-dIFSyovlbHyhtjiE3yw6DDP</a><br />Seventeen Firsts: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=1YWMSZENEU8&amp;list=PLunx6D_le-dJM1FMKIW2WmoxdbStHOhEW">https://www.youtube.com/watch?v=1YWMSZENEU8&amp;list=PLunx6D_le-dJM1FMKIW2WmoxdbStHOhEW</a><br />Style Lab: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=qhzz9cD9Hv0&amp;list=PLunx6D_le-dLsfnFUGqJWkCM3M0WRalxD">https://www.youtube.com/watch?v=qhzz9cD9Hv0&amp;list=PLunx6D_le-dLsfnFUGqJWkCM3M0WRalxD</a><br />Bullet Journaling w/ Noelle: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=hKbzcjJLRRo&amp;list=PLunx6D_le-dIyyE9bob0DqNB-ioEEsNw4">https://www.youtube.com/watch?v=hKbzcjJLRRo&amp;list=PLunx6D_le-dIyyE9bob0DqNB-ioEEsNw4</a><br /><br />♥ Subscribe to Seventeen! <a rel="nofollow" target="blank" href="http://bit.ly/SUBToSEVENTEEN">http://bit.ly/SUBToSEVENTEEN</a>  ♥<br /> <br />♥ Follow Seventeen ♥<br /><a rel="nofollow" target="blank" href="http://instagram.com/seventeen">http://instagram.com/seventeen</a><br /><a rel="nofollow" target="blank" href="https://tiktok.com/@seventeen">https://tiktok.com/@seventeen</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/seventeen">https://twitter.com/seventeen</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/seventeen">https://www.facebook.com/seventeen</a>{% endraw %}
