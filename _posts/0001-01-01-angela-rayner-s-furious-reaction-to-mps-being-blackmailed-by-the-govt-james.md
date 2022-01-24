@@ -1,0 +1,15 @@
+---
+title: "Angela Rayner's furious reaction to MPs being 'blackmailed by the govt' | James O'Brien"
+image: "https:\/\/i.ytimg.com\/vi\/10L9SpPdOGg\/hqdefault.jpg"
+vid_id: "10L9SpPdOGg"
+categories: "News-Politics"
+tags: ["lbc","lbc live","watch lbc"]
+date: "2022-01-24T13:54:39+03:00"
+vid_date: "2022-01-20T13:45:00Z"
+duration: "PT4M30S"
+viewcount: "106533"
+likeCount: "2306"
+dislikeCount: ""
+channel: "LBC"
+---
+{% raw %}Labour's Deputy Leader Angela Rayner tells LBC the reports of blackmail by the government are 'completely wild' and have crossed a line.<br /><br />#JamesOBrien #AngelaRayner #LBC<br /><br />LBC is the home of live debate around news and current affairs. We let you join the conversation and hold politicians to account. <br /><br />Subscribe for more: <a rel="nofollow" target="blank" href="https://l-bc.co/subscribe">https://l-bc.co/subscribe</a><br /><br />Watch more here:<br />The latest coronavirus videos: <a rel="nofollow" target="blank" href="https://l-bc.co/Covid19Latest">https://l-bc.co/Covid19Latest</a><br />The best of LBC: <a rel="nofollow" target="blank" href="http://l-bc.co/3gUh1ZH">http://l-bc.co/3gUh1ZH</a> <br />LBC holding politicians to account: <a rel="nofollow" target="blank" href="http://l-bc.co/3p1v3eC">http://l-bc.co/3p1v3eC</a> <br />The latest Brexit videos: <a rel="nofollow" target="blank" href="https://l-bc.co/BrexitLatest">https://l-bc.co/BrexitLatest</a>  <br />The best of Nick Ferrari: <a rel="nofollow" target="blank" href="https://l-bc.co/NickFerrari">https://l-bc.co/NickFerrari</a> <br />The best of James O’Brien: <a rel="nofollow" target="blank" href="https://l-bc.co/JamesObrien">https://l-bc.co/JamesObrien</a>  <br />The best of Iain Dale: <a rel="nofollow" target="blank" href="https://l-bc.co/IainDale">https://l-bc.co/IainDale</a> <br />Heated debates: <a rel="nofollow" target="blank" href="http://l-bc.co/3r8nVyS">http://l-bc.co/3r8nVyS</a> <br />The latest Donald Trump videos: <a rel="nofollow" target="blank" href="https://l-bc.co/DonaldTrump">https://l-bc.co/DonaldTrump</a> <br /><br />Join in the conversation and listen at <a rel="nofollow" target="blank" href="https://www.lbc.co.uk/">https://www.lbc.co.uk/</a> <br />Sign up to LBC’s weekly newsletter here: <a rel="nofollow" target="blank" href="https://l-bc.co/signup">https://l-bc.co/signup</a><br /><br />Like, follow and subscribe to LBC!<br />Website: <a rel="nofollow" target="blank" href="https://lbc.co.uk">https://lbc.co.uk</a> <br />Facebook: <a rel="nofollow" target="blank" href="https://fb.me/lbc">https://fb.me/lbc</a><br />Twitter:  <a rel="nofollow" target="blank" href="https://Twitter.com/lbc">https://Twitter.com/lbc</a>  <br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/lbc">https://instagram.com/lbc</a><br /><br />This is not your ordinary talk radio stream. LBC is the leading YouTube channel for live debate around the news and current affairs. We have live interviews and debates and you can even phone in to join in the conversation.{% endraw %}
