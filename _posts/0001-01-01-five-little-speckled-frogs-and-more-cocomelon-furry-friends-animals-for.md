@@ -1,0 +1,15 @@
+---
+title: "Five Little Speckled Frogs and More! | CoComelon Furry Friends | Animals for Kids"
+image: "https:\/\/i.ytimg.com\/vi\/jxUIhLGXNZA\/hqdefault.jpg"
+vid_id: "jxUIhLGXNZA"
+categories: "Education"
+tags: ["Animals","animals for kids","cute animals"]
+date: "2022-01-24T06:24:43+03:00"
+vid_date: "2022-01-20T12:00:22Z"
+duration: "PT29M55S"
+viewcount: "717018"
+likeCount: "4249"
+dislikeCount: ""
+channel: "CoComelon - Furry Friends"
+---
+{% raw %}Subscribe for new videos every week: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCfXdCQfn2Wly74kX-vyPubw?sub_confirmation=1">https://www.youtube.com/channel/UCfXdCQfn2Wly74kX-vyPubw?sub_confirmation=1</a><br /><br />Welcome to CocoMelon’s animal corner- Join Baby JJ and his animal friends on their adventures and fun! Kids can learn all about their favourite animals, including dogs, cats, monkeys, pigs and more. Featuring all your favourite Cocomelon nursery rhymes, parents and kids can enjoy watching together.<br /><br />Watch CoComelon Animal playlists: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLb8WrhcvGhOhC86tPF2XSvh6_avP8ctvl">https://www.youtube.com/playlist?list=PLb8WrhcvGhOhC86tPF2XSvh6_avP8ctvl</a><br /><br />0:00 Five Little Speckled Frogs<br />3:00 Three Little Kittens<br />5:35 Bingo V1<br />8:19 Three Little Pigs V1<br />11:29 Musical Instruments Song<br />14:50 Baa Baa Black Sheep<br />17:18 Animal Dance Song<br />20:12 Wash Your Hands Song<br />23:24 Mary Had a Little Lamb<br />26:13 Wheels on the Bus V1<br /><br />🍉Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/6SXTTUJxIVwMbc1POrviTr">https://open.spotify.com/artist/6SXTTUJxIVwMbc1POrviTr</a><br />🍉Apple Music: <a rel="nofollow" target="blank" href="https://music.apple.com/us/artist/cocomelon/1489206247">https://music.apple.com/us/artist/cocomelon/1489206247</a><br /><br />About CoComelon: <br />CoComelon’s 3D animation and songs create a world that centers on the everyday experiences of young children. It is a place where kids can be happy and smart! In addition to helping preschoolers learn letters, numbers, animal sounds, colors, and more, the videos impart prosocial life lessons, providing parents with an opportunity to teach and play with their children as they watch together. <br /><br />WEBSITE: <a rel="nofollow" target="blank" href="http://www.CoComelon.com">http://www.CoComelon.com</a> <br />FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/CoComelonkids">https://www.facebook.com/CoComelonkids</a> <br />TWITTER: <a rel="nofollow" target="blank" href="https://www.twitter.com/CoComelonkids">https://www.twitter.com/CoComelonkids</a> <br />TIK TOK: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@cocomelon?">https://www.tiktok.com/@cocomelon?</a><br />US Shop: <a rel="nofollow" target="blank" href="https://moonbug.shop/">https://moonbug.shop/</a><br /><br />Copyright Treasure Studio, Inc. All Rights Reserved.{% endraw %}
