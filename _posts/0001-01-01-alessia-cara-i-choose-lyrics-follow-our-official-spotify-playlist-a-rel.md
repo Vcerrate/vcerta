@@ -1,0 +1,15 @@
+---
+title: "Alessia Cara - I Choose (Lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/8aodjD-sCBU\/hqdefault.jpg"
+vid_id: "8aodjD-sCBU"
+categories: "Music"
+tags: ["taj tracks","i choose"]
+date: "2022-01-24T11:11:05+03:00"
+vid_date: "2022-01-18T13:35:12Z"
+duration: "PT3M36S"
+viewcount: "172861"
+likeCount: "2982"
+dislikeCount: ""
+channel: "Taj Tracks"
+---
+{% raw %}Follow Our Official Spotify Playlist: <a rel="nofollow" target="blank" href="https://TajTracks.lnk.to/Spotify​​​​">https://TajTracks.lnk.to/Spotify​​​​</a><br />TikTok Spotify Playlist: <a rel="nofollow" target="blank" href="https://spoti.fi/32iCMvP">https://spoti.fi/32iCMvP</a><br />Alessia Cara - I Choose (Lyrics)<br /><br />Alessia Cara: <br /><a rel="nofollow" target="blank" href="http://www.alessiacara.com">http://www.alessiacara.com</a><br /><a rel="nofollow" target="blank" href="http://www.facebook.com/AlessiaCara">http://www.facebook.com/AlessiaCara</a> <br /><a rel="nofollow" target="blank" href="http://twitter.com/AlessiaCara">http://twitter.com/AlessiaCara</a><br /><a rel="nofollow" target="blank" href="http://instagram.com/alessiasmusic">http://instagram.com/alessiasmusic</a><br /><br />I Choose Lyrics:<br /><br />[Verse 1]<br />All of my life I thought I was right<br />Looking for something new<br />Stuck in my ways like old-fashioned days<br />But all the roads led me to you<br /><br />[Pre-Chorus]<br />The house that you live in don't make it a home<br />But feeling lonely don't mean you're alone<br />People in life, they will come and they'll leave<br />But if I had a choice I know where I would be<br /><br />[Chorus]<br />Through the lows and the highs, I will stay by your side<br />There's no need for goodbyes, now I'm seeing the light<br />When the sky turns to grey and there's nothing to say<br />At the end of the day, I choose you<br /><br />[Verse 2]<br />Now I found the strength to make a change<br />And look at the magic I found<br />No matter the name or where you came from<br />'Cause no one has much figured out<br /><br />[Pre-Chorus]<br />The house that you live in don't make it a home<br />But feeling lonely don't mean you're alone<br />I finally found where I feel I belong<br />And I know you'll be there with wide open arms<br /><br />[Chorus]<br />Through the lows and the highs, I will stay by your side<br />There's no need for goodbyes, now I'm seeing the light<br />When the sky turns to grey and there's nothing to say<br />At the end of the day, I choose you<br />I choose you<br /><br />[Bridge]<br />Through the lows and the highs, I will stay by your side<br />There's no need for goodbyes, now I'm seeing the light<br /><br />[Chorus]<br />Through the lows and the highs, I will stay by your side<br />There's no need for goodbyes, now I'm seeing the light<br />When the sky turns to grey and there's nothing to say<br />At the end of the day, I choose you<br />Oh, I choose you<br />I choose you<br /><br />Alessia Cara - I Choose (Lyrics)<br /><br />#AlessiaCara #IChoose #TajTracks #Lyrics{% endraw %}
