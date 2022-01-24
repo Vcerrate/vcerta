@@ -1,0 +1,15 @@
+---
+title: "Mindful Tea 🍵 ASMR"
+image: "https:\/\/i.ytimg.com\/vi\/JNOwytAkQt0\/hqdefault.jpg"
+vid_id: "JNOwytAkQt0"
+categories: "Entertainment"
+tags: ["ASMR","[ASMR]","asmr"]
+date: "2022-01-24T18:11:25+03:00"
+vid_date: "2022-01-18T19:07:32Z"
+duration: "PT53M59S"
+viewcount: "320281"
+likeCount: "11090"
+dislikeCount: ""
+channel: "Gentle Whispering ASMR"
+---
+{% raw %}Welcome to my mindful tea shop! :) <br />00:00 Welcome<br />02:22 Tea gift boxes<br />07:54 Royal Bird Black tea with vanilla and bergamot sampling<br />10:25 Elderberry immunity, berry tea<br />17:44 Wooden tea box full of bagged teas<br />23:37 Sorting through tea bags <br />25:29 Benefits of teas<br />27:19 Lavender creme loose leaf<br />29:20 Queen of Scots loose leaf <br />32:58 Lavender cherry blossom loose leaf<br />36:13 Chocolate covered coffee beans<br />40:25 Packing up your purchases, tissue paper, crinkle bags<br />45:47 Blooming Tea Mindful Meditation ♥ <br />Thank you for being here today :) <br /><br />Amazon MP3<br /><a rel="nofollow" target="blank" href="https://www.amazon.com/s/ref=ntt_srch_drd_B01BAXDICM?ie=UTF8&amp;field-keywords=GentleWhispering&amp;index=digital-music&amp;search-type=ss">https://www.amazon.com/s/ref=ntt_srch_drd_B01BAXDICM?ie=UTF8&amp;field-keywords=GentleWhispering&amp;index=digital-music&amp;search-type=ss</a><br /><br />YouTube Music MP3<br /><a rel="nofollow" target="blank" href="https://music.youtube.com/channel/UCAYaoy-i0_bTnd9yzzDMkhw">https://music.youtube.com/channel/UCAYaoy-i0_bTnd9yzzDMkhw</a><br /><br />Spotify MP3<br /><a rel="nofollow" target="blank" href="https://play.spotify.com/artist/3gkB9Cdx4UuWQxjhelyd87?play=true&amp;utm_source=open.spotify.com&amp;utm_medium=open">https://play.spotify.com/artist/3gkB9Cdx4UuWQxjhelyd87?play=true&amp;utm_source=open.spotify.com&amp;utm_medium=open</a><br /><br />iTunes MP3<br /><a rel="nofollow" target="blank" href="https://itunes.apple.com/us/artist/gentlewhispering/id1077570705#see-all/top-songs">https://itunes.apple.com/us/artist/gentlewhispering/id1077570705#see-all/top-songs</a><br /><br /><a rel="nofollow" target="blank" href="https://itunes.apple.com/us/artist/maria-gentlewhispering/id1048320316">https://itunes.apple.com/us/artist/maria-gentlewhispering/id1048320316</a><br /><br />Disclaimer: ***- This video is created for relaxation, entertainment and ASMR/tingles/chills inducing purposes only. For more information about ASMR phenomenon please click here: <a rel="nofollow" target="blank" href="http://en.wikipedia.org/wiki/Autonomous_sensory_meridian_response">http://en.wikipedia.org/wiki/Autonomous_sensory_meridian_response</a> <br />-This video cannot replace any medication or professional treatment. If you have sleep/anxiety/psychological troubles please consult your physician. Thank you :) <br />***<br /><br />PayPal (Donations, if you feel you need to give back) <a rel="nofollow" target="blank" href="https://www.paypal.me/GentleWhispering">https://www.paypal.me/GentleWhispering</a><br />Email: MariaGentlewhispering@gmail.com<br /><br />#ASMR #GentleWhispering{% endraw %}
