@@ -1,0 +1,15 @@
+---
+title: "Introduction to Persistent Homology"
+image: "https:\/\/i.ytimg.com\/vi\/h0bnG1Wavag\/hqdefault.jpg"
+vid_id: "h0bnG1Wavag"
+categories: "Education"
+tags: ["Mathematics (Field Of Study)","Homology","Persistent Homology"]
+date: "2022-01-24T19:32:07+03:00"
+vid_date: "2015-07-03T20:44:43Z"
+duration: "PT8M46S"
+viewcount: "41749"
+likeCount: "1097"
+dislikeCount: ""
+channel: "Matthew Wright"
+---
+{% raw %}A revised version of this video is available at <a rel="nofollow" target="blank" href="https://youtu.be/2PSqWBIrn90">https://youtu.be/2PSqWBIrn90</a> .<br /><br />This video gives an accessible introduction to persistent homology, which is a popular tool in topological data analysis and also a subject of my research.<br /><br />Citations and links to papers referenced in this video:<br /><br />Robert Ghrist, &quot;Barcodes: The Persistent Topology of Data&quot;<br /><a rel="nofollow" target="blank" href="http://www.ams.org/journals/bull/2008-45-01/S0273-0979-07-01191-3/">http://www.ams.org/journals/bull/2008-45-01/S0273-0979-07-01191-3/</a><br /><br />Herbert Edelsbrunner and John Harer, &quot;Persistent Homology -- A Survey&quot;, in Twenty Years After, AMS (2007).<br /><a rel="nofollow" target="blank" href="http://cygnus-x1.cs.duke.edu/~edels/Papers/2008-B-02-PersistentHomology.pdf">http://cygnus-x1.cs.duke.edu/~edels/Papers/2008-B-02-PersistentHomology.pdf</a><br /><br />David Cohen-Steiner, Herbert Edelsbrunner, and John Harer, &quot;Stability of Persistence Diagrams&quot;, in Discrete and Computational Geometry, vol. 37 (2007), p. 103-120.<br /><a rel="nofollow" target="blank" href="ftp://ftp-sop.inria.fr/prisme/dcohen/Papers/Stability.pdf">ftp://ftp-sop.inria.fr/prisme/dcohen/Papers/Stability.pdf</a><br /><br />Afra Zomorodian and Gunnar Carlsson, &quot;Computing Persistent Homology&quot;, in Discrete and Computational Geometry, vol. 33 (2005), p. 249-274.<br /><a rel="nofollow" target="blank" href="http://www.cs.dartmouth.edu/~afra/papers/socg04/persistence.pdf">http://www.cs.dartmouth.edu/~afra/papers/socg04/persistence.pdf</a><br /><br />Gunnar Carlsson, Tigran Ishkhanov, Vin de Silva, and Afra Zomorodian, &quot;On the Local Behavior of Spaces of Natural Images&quot;, in International Journal of Computer Vision, vol. 76 (2008), p. 1-12.<br /><a rel="nofollow" target="blank" href="http://pages.pomona.edu/~vds04747/public/papers/CIdSZ_natural.pdf">http://pages.pomona.edu/~vds04747/public/papers/CIdSZ_natural.pdf</a><br /><br />Jose Perea and Gunnar Carlsson, &quot;A Klein-Bottle-Based Dictionary for Texture Representation&quot;, in International Journal of Computer Vision, vol. 107 (2014), p. 75-97.<br /><a rel="nofollow" target="blank" href="https://fds.duke.edu/db/attachment/2638">https://fds.duke.edu/db/attachment/2638</a><br /><br />Jose Perea and John Harer, &quot;Sliding Windows and Persistence: An Application of Topological Methods to Signal Analysis&quot;, in Foundations of Computational Mathematics, vol. 15 (2015), p. 799-838.<br /><a rel="nofollow" target="blank" href="http://arxiv.org/abs/1307.6188">http://arxiv.org/abs/1307.6188</a>{% endraw %}
