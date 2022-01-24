@@ -1,0 +1,15 @@
+---
+title: "Tucker Carlson Gleefully Celebrates Democrats' 'Hypocrisy'"
+image: "https:\/\/i.ytimg.com\/vi\/4VhPiALa_7U\/hqdefault.jpg"
+vid_id: "4VhPiALa_7U"
+categories: "News-Politics"
+tags: ["podcast","sam seder","breaking news"]
+date: "2022-01-24T10:28:34+03:00"
+vid_date: "2022-01-24T04:00:00Z"
+duration: "PT7M3S"
+viewcount: "5503"
+likeCount: "422"
+dislikeCount: ""
+channel: "The Majority Report w\/ Sam Seder"
+---
+{% raw %}Tucker Carlson believes he caught the Democrats being massive hypocrites. <br /><br />We stream our live show every day at 12 PM ET.<br /><br /><br /><br />We need your help to keep providing free videos! Support the Majority Report's video content by going to <a rel="nofollow" target="blank" href="http://www.Patreon.com/MajorityReport">http://www.Patreon.com/MajorityReport</a><br /><br /><br /><br />Watch the Majority Report live M–F at 12 p.m. EST at youtube.com/samseder or listen via daily podcast at <a rel="nofollow" target="blank" href="http://Majority.FM">http://Majority.FM</a><br /><br /><br /><br />Download our FREE app: <a rel="nofollow" target="blank" href="http://majorityapp.com">http://majorityapp.com</a><br /><br /><br /><br />SUPPORT the show by becoming a member: <a rel="nofollow" target="blank" href="http://jointhemajorityreport.com">http://jointhemajorityreport.com</a><br /><br />We Have Merch!!! <a rel="nofollow" target="blank" href="http://shop.majorityreportradio.com">http://shop.majorityreportradio.com</a><br /><br /><br /><br />LIKE us on Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/MajorityReport">http://facebook.com/MajorityReport</a><br /><br /><br /><br />FOLLOW us on Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/MajorityFM">http://twitter.com/MajorityFM</a><br /><br /><br /><br />SUBSCRIBE to us on YouTube: <a rel="nofollow" target="blank" href="http://youtube.com/SamSeder">http://youtube.com/SamSeder</a><br /><br />Sam: Let's go back to talking about you know Joe Biden had a speech the other day talking about voting rights. and we know that the supreme court rolled back voting protections under the voting rights act. And in fact, even some states who responded to that rollback were stopped. not they didn't longer have to have pre-clearance. Were stopped because their new redistricting was racist. Others it's much harder to prove. And so we know the implications of rolling back the voting rights act. Yet to talk about that, it is amazing how successful the Republicans are at filling a vacuum. And at really some type of jiu-jitsu. Here's a Tucker Carlson clip number four talking about the first year of the Biden Harris administration. And Biden's response or addressing the question of voting rights. <br />Carlson: So Biden's a full year into his presidency as of today he's not doing well he knows that so he's going, full insurrectionist. He's questioning the legitimacy of the upcoming midterms. He wants to stop the theft! Here he was at his press conference yesterday showing doubts about our democracy.{% endraw %}
