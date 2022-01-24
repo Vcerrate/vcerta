@@ -1,0 +1,15 @@
+---
+title: "10 Time Management Tips - How I Manage My Time"
+image: "https:\/\/i.ytimg.com\/vi\/vMmTqyEFBlE\/hqdefault.jpg"
+vid_id: "vMmTqyEFBlE"
+categories: "Education"
+tags: ["michb1","muchelleb"]
+date: "2022-01-24T22:44:51+03:00"
+vid_date: "2022-01-19T20:40:23Z"
+duration: "PT12M49S"
+viewcount: "43317"
+likeCount: "2357"
+dislikeCount: ""
+channel: "muchelleb"
+---
+{% raw %}Try Canva Pro free for 45 days by going to <a rel="nofollow" target="blank" href="https://canva.me/muchelleb">https://canva.me/muchelleb</a><br /><br />In this video, I want to share the top 10 time management tips that actually make a huge impact on how on top of things I feel, on how well I use my time and how much I get done. <br /><br />.....................................................<br /><br />☀️ If you liked this video, you might like these as well!<br /><br />10 Easy Ways to Simplify Your Life Today - <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ZPlbVJvXsb8">https://www.youtube.com/watch?v=ZPlbVJvXsb8</a><br /><br />.....................................................<br /><br />☀️ Level up your life<br /><br />Change your life in 13 weeks Life Map Collective Planners  ⇢ <a rel="nofollow" target="blank" href="http://www.lifemapcollective.com">http://www.lifemapcollective.com</a><br /><br />Access simple, actionable self-care and mindset exercises with the Intention App ⇢ <a rel="nofollow" target="blank" href="https://www.theintentionapp.com/​">https://www.theintentionapp.com/​</a><br />.....................................................<br /><br />☀️ Social <br /><br />INSTAGRAM ⇢ <a rel="nofollow" target="blank" href="http://instagram.com/muchelleb">http://instagram.com/muchelleb</a><br />WEBSITE  ⇢  <a rel="nofollow" target="blank" href="http://muchelleb.com.au/">http://muchelleb.com.au/</a><br />BRAND  ⇢  <a rel="nofollow" target="blank" href="http://lifemapcollective.com">http://lifemapcollective.com</a><br /><br />.....................................................<br /><br />☀️ Things I Mentioned<br /><br />Time Timer - <a rel="nofollow" target="blank" href="https://amzn.to/3fDA2iW">https://amzn.to/3fDA2iW</a><br />Ultra Working (Work Cycles) - <a rel="nofollow" target="blank" href="https://www.ultraworking.com/work-cycles">https://www.ultraworking.com/work-cycles</a><br />Focusmate - H<a rel="nofollow" target="blank" href="ttp://www.focusmate.com">ttp://www.focusmate.com</a><br /><br />.....................................................<br /><br />☀️ Getting in touch w/ me<br /><br />Business enquiries / Product or tech support enquiries only ⇢ support@muchelleb.com<br />Before you get in touch with a collaboration  ⇢  Due to the number of emails that I receive, I'm only able to get back to opportunities that match my schedule and areas of focus (I wish I could get back to them all!)<br />.....................................................<br /><br />☀️ About this channel<br /><br />This channel is focused on self-compassionate productivity and designing an intentional life.{% endraw %}
