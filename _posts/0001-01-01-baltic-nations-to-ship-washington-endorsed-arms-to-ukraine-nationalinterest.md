@@ -1,0 +1,15 @@
+---
+title: "Baltic nations to ship Washington endorsed arms to Ukraine"
+image: "https:\/\/i.ytimg.com\/vi\/fGg8rv4Ug4g\/hqdefault.jpg"
+vid_id: "fGg8rv4Ug4g"
+categories: "News-Politics"
+tags: ["russia","russia ukraine","ukraine"]
+date: "2022-01-25T02:50:29+03:00"
+vid_date: "2022-01-22T16:30:08Z"
+duration: "PT1M48S"
+viewcount: "436"
+likeCount: "15"
+dislikeCount: ""
+channel: "National Interest TV"
+---
+{% raw %}#NationalInterest<br />#News<br />Baltic nations to ship Washington-endorsed arms to Ukraine<br /><br />The Baltic nations of Estonia, Latvia and Lithuania will send U.S.-made anti-tank and anti-aircraft missiles to Ukraine in a move that Washington says it is fully endorsing amid Kyiv escalating tensions with Russia<br /><br />U.S. Secretary of State Antony Blinken said in a tweet posted on Saturday that Washington saluted the three NATO nations and former Soviet republics &quot;for their longstanding support to Ukraine&quot;.<br /><br />&quot;I expedited and authorized and we fully endorse transfers of defensive equipment, NATO Allies Estonia, Latvia &amp; Lithuania are providing to Ukraine to strengthen its ability to defend itself against Russias unprovoked and irresponsible aggression,&quot; Blinken said in another tweet.<br /><br />Dmitry Peskov, spokesperson for Russian President Vladimir Putin, earlier this week described western arms supplies to Ukraine as extremely dangerous and said they &quot;do nothing to reduce tensions.&quot;<br /><br />Moscow has massed tens of thousands of troops at the border with Ukraine, leading to fears of an invasion. The West has rejected Moscows main demands - promises from NATO that Ukraine will never be added as a member, that no alliance weapons will be deployed near Russian borders, and that it will pull back its forces from Central and Eastern Europe.<br /><br />A meeting Friday between Blinken and Russian Foreign Minister Sergey Lavrov ended with no breakthrough.<br />In a joint statement published late Friday, the defense ministers of the three Baltic states said they &quot;stand united in our commitment to Ukraines sovereignty and territorial integrity in face of continued Russian aggression.&quot;<br /><br />IMPORTANT!<br />None of these images, music &amp; video clips were created/owned by us.<br />This video is purely fan-made, if you (owners) have seen your content and want to remove this video, please message us privately or mail us : (newtropicalhouse@gmail.com) before doing anything. We will respectfully remove it immediately. Please don't use YouTube strikes! So much love!<br /><br /> -  COPYRIGHT DISCLAIMER UNDER SECTION 107 OF THE COPYRIGHT ACT 1976<br /> -  Copyright Disclaimer Under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, comment, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational or personal use tips the balance in favor of fair use.{% endraw %}
