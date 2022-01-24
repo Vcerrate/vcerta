@@ -1,0 +1,15 @@
+---
+title: "First EVER real-life experience with an individual that has an inspiring backstory (must watch!)#MPK"
+image: "https:\/\/i.ytimg.com\/vi\/GGvOC2hDZPM\/hqdefault.jpg"
+vid_id: "GGvOC2hDZPM"
+categories: "People-Blogs"
+tags: ["iris blog","real male anatomy","testicles"]
+date: "2022-01-24T11:16:20+03:00"
+vid_date: "2020-07-03T15:17:52Z"
+duration: "PT11M14S"
+viewcount: "691"
+likeCount: ""
+dislikeCount: ""
+channel: "iris blog"
+---
+{% raw %}What's intersex?<br /><br />In This Section<br />Intersex is an umbrella term that describes bodies that fall outside the strict male/female binary. There are lots of ways someone can be intersex.<br /><br /> What does intersex mean?<br /><br />Intersex is a general term used for a variety of situations in which a person is born with reproductive or sexual anatomy that doesn’t fit the boxes of “female” or “male.” Sometimes doctors do surgeries on intersex babies and children to make their bodies fit binary ideas of “male” or “female”. Doctors always assign intersex babies a legal sex (male or female, in most states), but, just like with non-intersex people, that doesn’t mean that’s the gender identity they’ll grow up to have. This brings up questions about whether or not it’s OK to do medical procedures on children’s bodies when it’s not needed for their health. <br /><br />Being intersex is a naturally occurring variation in humans, and it isn’t a medical problem — therefore, medical interventions (like surgeries or hormone therapy) on children usually aren’t medically necessary. Being intersex is also more common than most people realize. It’s hard to know exactly how many people are intersex, but estimates suggest that about 1-2 in 100 people born in the U.S. are intersex.<br /><br />There are many different ways someone can be intersex. Some intersex people have genitals or internal sex organs that fall outside the male/female categories — such as a person with both ovarian and testicular tissues. Other intersex people have combinations of chromosomes that are different than XY ( usually associated with male) and XX (usually associated with female), like XXY. And some people are born with external genitals that fall into the typical male/female categories, but their internal organs or hormones don’t.<br /><br />If a person’s genitals look different from what doctors and nurses expect when they’re born, someone might be identified as intersex from birth. Other times, someone might not know they’re intersex until later in life, like when they go through puberty. Sometimes a person can live their whole life without ever discovering that they’re intersex.<br /><br />Subscribe my channel :  <br /><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/TecsonIrisDegumablogger">https://www.youtube.com/c/TecsonIrisDegumablogger</a><br />Follow my facebook page:<br /><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/1983470741948072/posts/2343562812605528/">https://www.facebook.com/1983470741948072/posts/2343562812605528/</a>{% endraw %}
