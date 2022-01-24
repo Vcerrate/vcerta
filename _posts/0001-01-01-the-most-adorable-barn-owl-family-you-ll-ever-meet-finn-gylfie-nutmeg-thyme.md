@@ -1,0 +1,15 @@
+---
+title: "The Most Adorable Barn Owl Family You'll Ever Meet - Finn, Gylfie, Nutmeg & Thyme"
+image: "https:\/\/i.ytimg.com\/vi\/73IWbTvQ7Ew\/hqdefault.jpg"
+vid_id: "73IWbTvQ7Ew"
+categories: "Pets-Animals"
+tags: ["wildlife","nature","animals"]
+date: "2022-01-24T12:29:40+03:00"
+vid_date: "2022-01-01T13:40:22Z"
+duration: "PT30M6S"
+viewcount: "262986"
+likeCount: "8293"
+dislikeCount: ""
+channel: "Robert E Fuller"
+---
+{% raw %}It has been such an adventure watching barn owls Gylfie &amp; Finn bring up their two owlets Nutmeg and Thyme in 2021. And, it's been great to see first-time dad Finn, step up to the mark!<br />I've put their full story of this season together in this film for you to enjoy.<br /><br />To support my channel and the wildlife rehabilitation and conservation work I do, please donate here:<br /><a rel="nofollow" target="blank" href="https://www.paypal.com/donate/?cmd=_s-xclick&amp;hosted_button_id=A52ZHAMJZC3J4">https://www.paypal.com/donate/?cmd=_s-xclick&amp;hosted_button_id=A52ZHAMJZC3J4</a>  or join one of my supporter communities in exchange for behind the scenes content here: <a rel="nofollow" target="blank" href="https://www.robertefuller.com/support_and_donate/">https://www.robertefuller.com/support_and_donate/</a><br /><br />#robertefuller #owls #barnowls<br /><br />I am a British wildlife artist based in Thixendale, North Yorkshire, UK. I build ideal habitats to encourage wildlife into my garden and use nest cams to study their behaviour. These studies inform my paintings. I share the best of my video research on this channel for free. If you would like to support my work please consider a small donation here: <a rel="nofollow" target="blank" href="https://www.paypal.com/donate/?cmd=_s-xclick&amp;hosted_button_id=A52ZHAMJZC3J4">https://www.paypal.com/donate/?cmd=_s-xclick&amp;hosted_button_id=A52ZHAMJZC3J4</a><br /><br />Or of course you may like to purchase my artwork which you will find on my website: <a rel="nofollow" target="blank" href="https://www.robertefuller.com.">https://www.robertefuller.com.</a> Many of the paintings are portraits of the creatures you watch here!<br /><br />© Robert E Fuller<br /><br />Copyright Disclaimer: Please feel free to share my videos but do not download any content without permission with the intent to re-upload. If you would like to license any content, please get in touch with me at: mail@robertefuller.com<br /><br />Stay Connected! You can also follow me on these platforms:<br />Visit my website: <a rel="nofollow" target="blank" href="https://www.robertefuller.com">https://www.robertefuller.com</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/RobertEFullerArt/">https://www.facebook.com/RobertEFullerArt/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/RobertEFuller">https://twitter.com/RobertEFuller</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/RobertEFuller/">https://www.instagram.com/RobertEFuller/</a>{% endraw %}
