@@ -1,0 +1,15 @@
+---
+title: "HABITS For Beautiful Relationships: Part 3: BK Shivani at Silicon Valley (English)"
+image: "https:\/\/i.ytimg.com\/vi\/rY7uVY5En4U\/hqdefault.jpg"
+vid_id: "rY7uVY5En4U"
+categories: "Howto-Style"
+tags: ["Bk Shivani","Sister Shivani","Shivani brahma Kumari"]
+date: "2022-01-25T05:23:02+03:00"
+vid_date: "2018-07-17T12:30:03Z"
+duration: "PT33M15S"
+viewcount: "1618320"
+likeCount: "34134"
+dislikeCount: ""
+channel: "BKShivani"
+---
+{% raw %}Daily Affirmations. Free on ThinkRight.me App - <a rel="nofollow" target="blank" href="https://bit.ly/3085XEm">https://bit.ly/3085XEm</a><br />Books - Being Love: <a rel="nofollow" target="blank" href="https://tinyurl.com/yhmh8vbp">https://tinyurl.com/yhmh8vbp</a><br />Happiness Unlimited (English, Hindi, Marathi): <a rel="nofollow" target="blank" href="https://tinyurl.com/2snjw7v3">https://tinyurl.com/2snjw7v3</a><br /><br />BK Shivani highlights that relationships are an energy exchange of thoughts. When there is a conflict, the problem is often not with the other person or between us. Problem is in our way of thinking. To begin healing, we need to radiate pure thoughts. Daily nourishment of the soul with knowledge and meditation helps us accept people and harmonize relationships.<br /><br />## For more videos: <a rel="nofollow" target="blank" href="https://www.youtube.com/bkshivani">https://www.youtube.com/bkshivani</a> ##<br />SUBSCRIBE to get updates on new videos.<br />For English videos:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL8BCGs3ul_7TpgAg1tBruSw2Ew3Q8LHZb">https://www.youtube.com/playlist?list=PL8BCGs3ul_7TpgAg1tBruSw2Ew3Q8LHZb</a> <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL8BCGs3ul_7TIdJnEaCPUTuNvT_xVRv_b">https://www.youtube.com/playlist?list=PL8BCGs3ul_7TIdJnEaCPUTuNvT_xVRv_b</a>    <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL8BCGs3ul_7SAB8lJquba5OxtOgrGjzu-">https://www.youtube.com/playlist?list=PL8BCGs3ul_7SAB8lJquba5OxtOgrGjzu-</a><br /><br />For Hindi videos:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL8BCGs3ul_7QhEk-rgFGfk-VtRA5dWn7S">https://www.youtube.com/playlist?list=PL8BCGs3ul_7QhEk-rgFGfk-VtRA5dWn7S</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL8BCGs3ul_7SOkype-Qy7Y4LNKEdnlwCZ">https://www.youtube.com/playlist?list=PL8BCGs3ul_7SOkype-Qy7Y4LNKEdnlwCZ</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL8BCGs3ul_7R4IOLe9wedZv4-xQuygtfr">https://www.youtube.com/playlist?list=PL8BCGs3ul_7R4IOLe9wedZv4-xQuygtfr</a><br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/BKShivani">https://www.facebook.com/BKShivani</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/BKShivani">https://www.instagram.com/BKShivani</a><br />Twitter: <a rel="nofollow" target="blank" href="https://www.twitter.com/BKShivani">https://www.twitter.com/BKShivani</a><br /><br />#BKShivani #SisterBKShivani #SisterBKShivaniEnglish{% endraw %}
