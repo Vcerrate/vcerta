@@ -1,0 +1,15 @@
+---
+title: "Studio Killers - I wanna ruin our friendship (Jenny) (Lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/MCwwUFQNtA4\/hqdefault.jpg"
+vid_id: "MCwwUFQNtA4"
+categories: "Music"
+tags: ["I wanna ruin our friendship lyrics","I wanna ruin our friendship","tiktok"]
+date: "2022-01-25T17:44:30+03:00"
+vid_date: "2022-01-24T10:07:45Z"
+duration: "PT3M41S"
+viewcount: "24572"
+likeCount: "514"
+dislikeCount: ""
+channel: "SuperbLyrics"
+---
+{% raw %}♫ Studio Killers - I wanna ruin our friendship (Jenny)<br />Stream/Download:  <a rel="nofollow" target="blank" href="https://studiokillers.lnk.to/jennyID">https://studiokillers.lnk.to/jennyID</a><br /><br />Follow Studio Killers:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/studio_killers">https://www.instagram.com/studio_killers</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/studiokillers">https://twitter.com/studiokillers</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/studiokillers">https://www.facebook.com/studiokillers</a><br /><br /><br />(Lyrics):<br />[Verse 1]<br />Jenny, darling, you're my best friend<br />But there's a few things that you don't know of<br />Why I borrow your lipstick so often<br />I'm using your shirt as a pillow case<br /><br />[Chorus]<br />I wanna ruin our friendship<br />We should be lovers instead<br />I don't know how to say this<br />'Cause you're really my dearest friend<br /><br />[Verse 2]<br />Jenny, darling, you're my best friend<br />I've been doing bad things that you don't know about<br />Stealing your stuff now and then<br />Nothing you'd miss, but it means the world to me<br /><br />[Chorus]<br />I wanna ruin our friendship<br />We should be lovers instead<br />I don't know how to say this<br />'Cause you're really my dearest friend<br /><br />I wanna ruin our friendship<br />I don't know how to say this<br />'Cause you're really my dearest friend<br /><br />[Bridge]<br />Jenny, take my hand<br />'Cause we are more than friends<br />I will follow you until the end<br />Jenny, take my hand<br />I cannot pretend<br />Why I never like your new boyfriends<br />Oh, your love for them won't last long<br />(Forget those amigos)<br />Oh, your love for them won't last long<br />(Forget those amigos)<br />Forget those amigos<br /><br />[Chorus]<br />I wanna ruin our friendship<br />We should be lovers instead<br />I don't know how to say this<br />'Cause you're really my dearest friend<br /><br />Oh, your love for them won't last long<br />(We should be lovers instead)<br />Oh, your love for them won't last long<br />('Cause you're really my dearest friend)<br /><br />[Outro]<br />Oh, love like that won't last<br />(We should be lovers instead)<br />Jenny<br />'Cause you're really my dearest friend<br /><br />Tags:<br />I wanna ruin our friendship lyrics<br />Studio Killers Jenny<br />Jenny Studio Killers<br />I wanna ruin our friendship<br />We should be lovers instead<br />I don't know how to say this<br />'Cause you're really my dearest friend<br />Jenny <br /><br />#IWannaRuinOurFriendship #Jenny #StudioKillers<br /><br />Contact: superblyricsyt@gmail.com{% endraw %}
