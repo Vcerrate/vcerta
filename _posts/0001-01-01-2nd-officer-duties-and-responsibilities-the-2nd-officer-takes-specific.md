@@ -1,0 +1,15 @@
+---
+title: "2nd officer duties and responsibilities"
+image: "https:\/\/i.ytimg.com\/vi\/v-l3mD9FbH8\/hqdefault.jpg"
+vid_id: "v-l3mD9FbH8"
+categories: "People-Blogs"
+tags: ["2nd officer","second officer","2nd mate"]
+date: "2022-01-26T00:13:36+03:00"
+vid_date: "2022-01-25T15:53:15Z"
+duration: "PT2M5S"
+viewcount: "16"
+likeCount: "4"
+dislikeCount: ""
+channel: "Vesseljoin"
+---
+{% raw %}The 2nd officer takes specific responsibility for navigation, the upkeep of charts, and software. They oversee navigation and radio equipment and undertake bridge watches at sea, and may also be the vessel’s designated security, safety, or medical officer. <br /><br />A second mate (2nd Mate) or 2nd officer (2/O) is a licensed member of the deck department of a merchant ship holding a Second Mates Certificate of Competency, which is issued by the administration. <br /><br />The second mate is the third in command (or on some ocean liners fourth) and a watchkeeping officer, customarily the ship's navigator. Other duties vary, but the second mate is often the medical officer and is in charge of maintaining distress signaling equipment. <br /><br />Moreover, on oil tankers, the second mate usually assists the chief mate with the cargo operations.<br /><br />The 2nd Officer is often a watchkeeper. In port and at sea, the second mate is responsible to the captain for keeping the ship, its crew, and its cargo safe for eight hours each day. Traditionally, the second mate stands a &quot;12-4&quot; watch: from midnight until 4 a.m. and noon until 4 p.m. On watch, he must enforce all applicable regulations, such as safety of life at sea and pollution regulations. In port, the watch focuses on duties such as cargo operations, fire and security watches, monitoring communications, and the anchor or mooring lines.<br /><br />IMO regulations require the officer to be fluent in English. This is required for a number of reasons, such as to use charts and nautical publications, understand weather and safety messages, communicate with other ships and coast stations, and be able to work with a multi-lingual crew.<br /><br />About Vesseljoin <br /><br />Your Next Job at Sea is a few clicks away!<br /><br />The first online community for seamen where they can network and find their next job. At the same time, shipping companies can hire seafarers x10 cheaper and much easier.<br /><br />Crewing made easier &amp; cheaper with the first maritime job social network<br /><br />Website: <a rel="nofollow" target="blank" href="https://vesseljoin.com/">https://vesseljoin.com/</a><br />LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/company/vess...">https://www.linkedin.com/company/vess...</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/vesseljoin/">https://www.facebook.com/vesseljoin/</a><br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCdFo...">https://www.youtube.com/channel/UCdFo...</a>{% endraw %}
