@@ -1,0 +1,15 @@
+---
+title: "These GameCube games HAVE SKYROCKETED IN PRICE!"
+image: "https:\/\/i.ytimg.com\/vi\/NR_-oknb3FI\/hqdefault.jpg"
+vid_id: "NR_-oknb3FI"
+categories: "Gaming"
+tags: ["GameCube","gamecube games","gamecube game collection"]
+date: "2022-01-25T22:09:14+03:00"
+vid_date: "2022-01-24T23:30:05Z"
+duration: "PT13M26S"
+viewcount: "26506"
+likeCount: "1426"
+dislikeCount: ""
+channel: "Retro Rick"
+---
+{% raw %}Subscribe now to see new Retro Video Game/Toy videos every Monday &amp; Thursday! <a rel="nofollow" target="blank" href="https://bit.ly/38Q8emx">https://bit.ly/38Q8emx</a><br /><br />If you are interested in Patreon benefits, Check out this link! <a rel="nofollow" target="blank" href="https://www.patreon.com/retrorick">https://www.patreon.com/retrorick</a><br /><br />The prices of video games, specifically retro video games have skyrocketed. It doesn't matter what console you look at...Sega, Gameboy, PlayStation, Xbox, GameCube...everything has increased significantly in just the past few years. As I was digging in further, I thought it would be fun to put together a list of the top 10 games that have increased in value. This week we are looking at the games for the Nintendo GameCube and believe me, you will be shocked by some of these prices! The GameCube has an incredible library and we uncover some Hidden Gems on this List. You need to pick up some of these to add to your game collection before they get too expensive. Thank you guys as always for tuning in to my live retro toy/video game hunting videos or just random game talk!<br /><br />MERCH NOW AVAILABLE! <a rel="nofollow" target="blank" href="https://www.retrorickmerch.com/">https://www.retrorickmerch.com/</a><br /><br />P.O. BOX:<br />Retro Rick<br />P.O. Box 21901<br />Little Rock, AR 72221<br /><br />INSTAGRAM: @retro__rick<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/retro__rick/">https://www.instagram.com/retro__rick/</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/retro_rick_store/">https://www.instagram.com/retro_rick_store/</a><br /><br />FACEBOOK: @RetroRick<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/retrorick1">https://www.facebook.com/retrorick1</a><br /> <br />MUSIC: <br />Bulby: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/Bulby">https://www.youtube.com/c/Bulby</a><br />Izioq: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/izioqchannel">https://www.youtube.com/c/izioqchannel</a><br />DJMykah: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/DJMykah">https://www.youtube.com/user/DJMykah</a><br />HeatleyBros: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/HeatleyBros">https://www.youtube.com/user/HeatleyBros</a><br />Goblin From Mars: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC7r8TN-JGGrTyCmIJSShdkw">https://www.youtube.com/channel/UC7r8TN-JGGrTyCmIJSShdkw</a><br /><br />#GameCube #NintendoGameCube #Nintendo{% endraw %}
