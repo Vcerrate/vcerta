@@ -1,0 +1,15 @@
+---
+title: "YAS & taylor from earth - FOOL AROUND (Official Music Video) | STEEZY.CO"
+image: "https:\/\/i.ytimg.com\/vi\/mbotgq5X5S0\/hqdefault.jpg"
+vid_id: "mbotgq5X5S0"
+categories: "Entertainment"
+tags: ["Online dance classes","dance tutorial","world of dance"]
+date: "2022-01-26T09:02:27+03:00"
+vid_date: "2021-07-20T15:00:22Z"
+duration: "PT2M37S"
+viewcount: "57191"
+likeCount: "3449"
+dislikeCount: ""
+channel: "STEEZY"
+---
+{% raw %}Wanna learn the choreography in this video? Take Brian Puspos' “FOOL AROUND” class on STEEZY.CO → <a rel="nofollow" target="blank" href="https://steezy.co/foolaround">https://steezy.co/foolaround</a><br /><br />The official music video for “FOOL AROUND” by YAS &amp; taylor from earth. <br /><br />Listen to more music from YAS here → <a rel="nofollow" target="blank" href="https://onerpm.link/YAS-PURPLE">https://onerpm.link/YAS-PURPLE</a><br /><br />Yup. 😏 STEEZY’s 6th episode of “Reverse Choreography” featuring Brian Puspos x YAS &amp; taylor from earth was SO fire…<br /><br />We teamed up to drop this video. 😎<br /><br />Choreography by - Brian Puspos<br />Starring - Brian Puspos, Blair Kim<br />Dancers - Hugh Aparente, Dom Johnson<br />Director - Clay Boonthanakit<br />Executive Produced by - STEEZY Studio<br />Producer - John Wong<br />Director of Photography - Clay Boonthanakit<br />Grip - Kevin Kang<br />Wardrobe - Tiffanie Chow<br />Editor - Clay Boonthanakit<br />Photography - Tiffanie Chow<br />BTS - Grace Zhang<br />Extras - Yasmeen Al-Mazeedi (aka YAS), Taylor Fugit (aka taylor from earth), Dana Green, Jessica Yee, Dominique David, Brandon Benson, Belia Mercado, Nick Delzompo<br /><br />'FOOL AROUND' Track<br />Produced by taylor from earth and YAS<br />Written by Yasmeen Al-Mazeedi and Taylor Fugit<br />Keys by Bret Paddock<br />Guitar by James Harper<br />Bass by Erik Shiboski<br />Mixed and mastered by Jon Rezin<br /><br />---<br /><br />Get started on your dance journey today with STEEZY Studio. Learn dance fundamentals, workouts, and choreography anywhere, anytime from the best teachers in the world.<br /><br />Blog: <a rel="nofollow" target="blank" href="https://blog.steezy.co/">https://blog.steezy.co/</a><br />Online Dance Classes (free one-week trial): <a rel="nofollow" target="blank" href="http://www.steezy.co">http://www.steezy.co</a><br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/thatsteezy">https://www.youtube.com/thatsteezy</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/steezystudio">https://www.facebook.com/steezystudio</a><br />Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/steezystudio">http://www.instagram.com/steezystudio</a><br />Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/steezystudio">http://www.twitter.com/steezystudio</a><br /><br />–<br /><br />#YAS #FoolAround #STEEZYStudio #taylorfromearth #BrianPuspos #MusicVideo #DanceVideo #FoolAroundChoreography{% endraw %}
