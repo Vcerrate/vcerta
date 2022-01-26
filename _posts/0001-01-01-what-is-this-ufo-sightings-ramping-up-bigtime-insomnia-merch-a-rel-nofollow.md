@@ -1,0 +1,15 @@
+---
+title: "WHAT IS THIS!.. UFO Sightings Ramping Up Bigtime"
+image: "https:\/\/i.ytimg.com\/vi\/tP0C-RLfiJg\/hqdefault.jpg"
+vid_id: "tP0C-RLfiJg"
+categories: "Entertainment"
+tags: ["unbelievable","phenomena","unexplained"]
+date: "2022-01-26T19:38:23+03:00"
+vid_date: "2021-11-09T23:39:49Z"
+duration: "PT13M54S"
+viewcount: "239658"
+likeCount: "17944"
+dislikeCount: ""
+channel: "secureteam10"
+---
+{% raw %}➨Insomnia Merch: <a rel="nofollow" target="blank" href="https://insomnia-merch.myspreadshop.com">https://insomnia-merch.myspreadshop.com</a><br />➨Xmas Logo hoodies/shirts: <a rel="nofollow" target="blank" href="http://secureteamtees.com">http://secureteamtees.com</a><br />➨Follow on Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/secureteamtyler">http://instagram.com/secureteamtyler</a><br />➨Follow on Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/SecureTeam10">http://twitter.com/SecureTeam10</a><br />➨Follow on Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/Secureteam10">http://facebook.com/Secureteam10</a><br /><br />➨To submit UFO footage/info, please use the proper email address below.<br />Email UFO material to: SecureteamNews@gmail.com - Please put &quot;UFO Footage&quot; or &quot;UFO Info&quot; as Subject of email. - Note: This is the only email checked/used for viewer UFO submissions. If your UFO video is too large to email, simply upload it to Youtube and email me the link. Thanks!<br /><br />➨Consider Supporting me monthly with a widely used creator service called Patreon, where for as little as $1 a month, you get instant access to behind-the-scenes videos, specially produced and signed Stickers and more! Visit: <a rel="nofollow" target="blank" href="http://www.patreon.com/TheSecureteam">http://www.patreon.com/TheSecureteam</a> to learn more.. OR you can become a member of the Channel right here through Youtube by clicking the blue &quot;Join&quot; button under my videos, where for $5 per month you'll receive a special badge next to your name in the comment section, along with priority replies from me, private live chats, special custom emojis and other members-only perks! Either way, you can cancel anytime and know that your support keeps this work going, especially in the current times and climate on Youtube.<br />-------------------------------------------<br /><br />➨For Business or Sponsorship inquiries ONLY, please contact Tyler at: SecureteamBusiness@gmail.com - with &quot;Business&quot; or &quot;Sponsorship&quot; as the email Subject and I'll get back to you within 24-48 hours.  - NOTE: UFO clips/info sent to this email will not be read or seen. Please use the email specified for UFO submissions posted at the upper portion of the video description. Thanks!<br />---------------------------------------------<br /><br />Got channel Fan Art? Paintings? UFO stories? Send me some stuff and I'd love to feature it!<br />Secureteam<br />P.O. BOX 671<br />101 W High St.<br />Mount Vernon, OH 43050{% endraw %}
