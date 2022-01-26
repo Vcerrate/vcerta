@@ -1,0 +1,15 @@
+---
+title: "Casiio x Dontcry - Passing By ☄️ [lofi hiphop\/relaxing beats]"
+image: "https:\/\/i.ytimg.com\/vi\/bcRqz_b-XNs\/hqdefault.jpg"
+vid_id: "bcRqz_b-XNs"
+categories: "Music"
+tags: ["chilledcow","chilled cow","lofi"]
+date: "2022-01-26T12:11:33+03:00"
+vid_date: "2022-01-25T19:14:58Z"
+duration: "PT15M11S"
+viewcount: "23747"
+likeCount: "1545"
+dislikeCount: ""
+channel: "Lofi Girl"
+---
+{% raw %}✔️ | This music is free to use for your videos/livestreams<br />→  <a rel="nofollow" target="blank" href="https://bit.ly/lofigirl-usethemusic">https://bit.ly/lofigirl-usethemusic</a><br /><br />📥 | Download this music (free)<br />→  <a rel="nofollow" target="blank" href="https://lofirecords.com/blogs/releases/">https://lofirecords.com/blogs/releases/</a><br />_____________________________________________<br /><br />💿| Listen everywhere<br />→ <a rel="nofollow" target="blank" href="https://fanlink.to/PassingBy">https://fanlink.to/PassingBy</a><br /><br />🎵 | Casiio<br />→  <a rel="nofollow" target="blank" href="https://instagram.com/beats.by.casiio">https://instagram.com/beats.by.casiio</a><br />→  <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/5zUSfxfP1NETZiaWt0Ui0a">https://open.spotify.com/artist/5zUSfxfP1NETZiaWt0Ui0a</a><br />🎵 | Dontcry<br />→  <a rel="nofollow" target="blank" href="https://instagram.com/dontcry.beats">https://instagram.com/dontcry.beats</a><br />→  <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/3vzJueN7TkCtYpz1myVmDU">https://open.spotify.com/artist/3vzJueN7TkCtYpz1myVmDU</a><br /><br />🎶 | Tracklist<br />[00:00] Reservoirs<br />[02:05] Amnesia<br />[04:03] Broken Roads<br />[06:11] Coming Home<br />[07:31] Blindfold<br />[09:37] Time Passing<br />[11:25] By The Creek<br />[13:25] Frontseat<br /><br />🎨 | Artwork by Luvwn<br />→  <a rel="nofollow" target="blank" href="https://www.instagram.com/luvwn/">https://www.instagram.com/luvwn/</a><br />→  <a rel="nofollow" target="blank" href="https://linktr.ee/luvwn">https://linktr.ee/luvwn</a><br />_____________________________________________<br /><br />🎼 | Listen on Spotify, Apple music and more<br />→  <a rel="nofollow" target="blank" href="https://bit.ly/lofigirI-playlists">https://bit.ly/lofigirI-playlists</a><br /><br />🌎 | Lofi Girl on all social media<br />→  <a rel="nofollow" target="blank" href="https://bit.ly/lofigirl-sociaI">https://bit.ly/lofigirl-sociaI</a><br /><br />💬 | Join the Lofi Girl community<br />→  <a rel="nofollow" target="blank" href="https://bit.ly/lofigirl-discord">https://bit.ly/lofigirl-discord</a><br />→  <a rel="nofollow" target="blank" href="https://bit.ly/lofigirl-reddit">https://bit.ly/lofigirl-reddit</a><br /><br />👕 | Check out the Lofi Girl merch<br />→  <a rel="nofollow" target="blank" href="https://lofigirlshop.com/">https://lofigirlshop.com/</a><br /><br />📝 | Submit your music / art<br />→  <a rel="nofollow" target="blank" href="https://bit.ly/lofi-submission">https://bit.ly/lofi-submission</a>{% endraw %}
