@@ -1,0 +1,15 @@
+---
+title: "The Animal Boogie | Barefoot Books Singalong"
+image: "https:\/\/i.ytimg.com\/vi\/25_u1GzruQM\/hqdefault.jpg"
+vid_id: "25_u1GzruQM"
+categories: "Education"
+tags: ["kids","children","childrens"]
+date: "2022-01-26T04:39:05+03:00"
+vid_date: "2010-03-17T16:24:47Z"
+duration: "PT4M25S"
+viewcount: "24445887"
+likeCount: "20001"
+dislikeCount: ""
+channel: "Barefoot Books"
+---
+{% raw %}The Animal Boogie | Barefoot Books Singalong<br /><br />Want more?<br />⭐ Our favorite video: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=71hqRT9U0wg">https://www.youtube.com/watch?v=71hqRT9U0wg</a><br />🛒 Buy this book: <a rel="nofollow" target="blank" href="https://www.barefootbooks.com/animal-boogie">https://www.barefootbooks.com/animal-boogie</a><br />👣 Find out more: <a rel="nofollow" target="blank" href="https://www.barefootbooks.com">https://www.barefootbooks.com</a><br /><br />Stay in Touch!<br />🔔 Don't forget to subscribe! <br />👍🏽 Join our community: <a rel="nofollow" target="blank" href="https://www.facebook.com/barefootbooks">https://www.facebook.com/barefootbooks</a><br /><br />🎁 FREE AT-HOME RESOURCES for KIDS🎁<br /><a rel="nofollow" target="blank" href="https://bit.ly/358Fog6">https://bit.ly/358Fog6</a><br /><br />▶️ Check out this playlist! <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watchv=ynlmvWAdCug&amp;list=PL0maGUp7cdUn5uuLnjsk1NvV2u5Yg5LAV">https://www.youtube.com/watchv=ynlmvWAdCug&amp;list=PL0maGUp7cdUn5uuLnjsk1NvV2u5Yg5LAV</a><br /><br />Down in the Indian jungle, the children and animals are learning about actions like leaping, stomping, shaking and flapping while meeting different jungle creatures. <br /><br />🎥 Recommended Videos to Watch:<br /><br />The Wheels on the Bus Singalong<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=9siyDPch-6c">https://www.youtube.com/watch?v=9siyDPch-6c</a><br /><br />Knick Knack Paddy Whack Singalong<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=9--t3zl4NkY">https://www.youtube.com/watch?v=9--t3zl4NkY</a><br /><br />Over in the Meadow<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=C6ljGXMMB-g">https://www.youtube.com/watch?v=C6ljGXMMB-g</a><br /><br />👇 DOWNLOAD our WORLD ATLAS APP for KIDS 👇 <br /><a rel="nofollow" target="blank" href="https://apps.apple.com/us/app/barefoot-world-atlas/id489221652">https://apps.apple.com/us/app/barefoot-world-atlas/id489221652</a><br /><br />★☆★ CONNECT WITH US ON SOCIAL MEDIA ★☆★<br />FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/barefootbooks/">https://www.facebook.com/barefootbooks/</a><br />INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/barefootbooks">https://www.instagram.com/barefootbooks</a><br />TWITTER: <a rel="nofollow" target="blank" href="https://twitter.com/BarefootBooks">https://twitter.com/BarefootBooks</a><br /><br />#nurseryrhymes #kidssongs #singalong{% endraw %}
