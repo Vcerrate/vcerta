@@ -1,0 +1,15 @@
+---
+title: "I Searched For Love | ياسر البشر & محمد المقيط | Muhammad al Muqit"
+image: "https:\/\/i.ytimg.com\/vi\/LwXViuwVuro\/hqdefault.jpg"
+vid_id: "LwXViuwVuro"
+categories: "Entertainment"
+tags: ["Mohammed","al","Muqit"]
+date: "2022-01-27T00:14:34+03:00"
+vid_date: "2012-09-20T04:10:43Z"
+duration: "PT4M17S"
+viewcount: "21882"
+likeCount: "131"
+dislikeCount: ""
+channel: "Blossoming Deen"
+---
+{% raw %}Mohammed al-Muqit feat. Yasser &quot;Bleeding wound&quot; - نزف جرحي..! محمد المقيط وياسر البشر<br />The title of this nasheed is Nizaf Jurhi (my wounds bled), but the lyric is about a man who desperately searches for love (the wrong way) and commits sins in the process. He feels a deep sense of shame and regret thereafter. <br />0:00, I wound bled from my veins<br />0:07, And my eyes complain of my disability.<br />0:11, I want a life that suits my taste<br />0:15, Removing worries that burden me<br />0:20, I want to laugh like these people<br />0:25, I want a life without impurity.<br />0:32, I want a feeling, oh (that) feeling!<br />0:36, I want a companion/lover to comfort me<br />0:40, You appear annoyed and confused,<br />0:45, You live the nights with secrets,<br />0:50, come and tells me what has happened,<br />0:54, Come and don't leave me,<br />0:58, I call but you do not listen,<br />1:04, I say come back, come back!<br />1:09, You see you are greedy,<br />1:13, by the adornment of the day<br />1:23, I am distracted by my dreams,<br />1:28, Years of love I searched for,<br />1:34, I see the years ahead of me<br />1:39, I called it and it calls me.<br />1:44, Life appeared as beautiful,<br />1:48, And I said Allah, then Allah.<br />1:53, And although I hid my pain,<br />1:58, I comply with her and she distresses me.<br />2:07, Yes I am aware of your details,<br />2:12, And today the Sheikh calls out to you,<br />2:16, He says leave your complaining,<br />2:21, before I enkindle you and you do the same to me.<br />2:25, You took pride in your sins,<br />2:30, And let death be general thing not specific to you.<br />2:34, You forgot your Lord and your actions<br />2:38, To all of creation I am in debt.<br />2:47, Do you think today I could come back,<br />2:52, and my Lord will accept His servant?<br />2:57, After my reputation has been lost,<br />3:02, and the past has become something that brings tears to me.<br />3:06, I forgot the grave and its judgment,<br />3:11, And my death is knocking at the doors<br />3:16, My nights I lived in lies,<br />3:20, In it the Devil blinded me<br />3:29, Oh dear one, our Lord is the Most High,<br />3:33, He is Kind and knows my hopes,<br />3:38, I have repented and my deeds are big,<br />3:42, so don't leave me be.<br />3:45, Minutes of our life are counted<br />3:49, So let's rid of this sadness.<br />3:54, Come and let us renew our repentance<br />3:59, and the remembrance of Allah will light us up.<br />Artists: ياسر البشر &amp; محمد المقيط <br />(Yasser al Bashar &amp; Muhammad al Muqit)<br />Nasheed: نزف جرحي (Nizaf Jurhi - My wounds bled){% endraw %}
