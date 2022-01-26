@@ -1,0 +1,15 @@
+---
+title: "I Survived 100 Days in Ancient Egypt in Minecraft.. Here's What Happened.."
+image: "https:\/\/i.ytimg.com\/vi\/MQzPtFMBCjU\/hqdefault.jpg"
+vid_id: "MQzPtFMBCjU"
+categories: "Gaming"
+tags: ["Forrestbono","Minecraft","100 days"]
+date: "2022-01-26T11:00:42+03:00"
+vid_date: "2022-01-26T01:00:10Z"
+duration: "PT52M"
+viewcount: "237005"
+likeCount: "18276"
+dislikeCount: ""
+channel: "Forrestbono"
+---
+{% raw %}Thanks to Genshin Impact and PlayStation for sponsoring this video, and get the game on PlayStation® for free through my link: <a rel="nofollow" target="blank" href="https://store.playstation.com/product/UP6262-PPSA02562_00-OSRELSIEAGENSHIN/">https://store.playstation.com/product/UP6262-PPSA02562_00-OSRELSIEAGENSHIN/</a><br />Visit Genshin Impact's website here: <a rel="nofollow" target="blank" href="https://genshin.mihoyo.com/">https://genshin.mihoyo.com/</a><br />Follow Genshin Impact on YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/genshinimpact">https://www.youtube.com/c/genshinimpact</a><br /><br />I Survived 100 Days in Ancient Egypt in Minecraft.. Here's What Happened..<br /><br />Buy my Cloaks ➜ <a rel="nofollow" target="blank" href="http://lunarclient.com/forrestbono">http://lunarclient.com/forrestbono</a><br />Patreon ➜ <a rel="nofollow" target="blank" href="https://patreon.com/forrestpainful">https://patreon.com/forrestpainful</a> (DISCLAIMER: Custom bosses REQUIRE Java Edition).<br />Business - 📩 forrest@afkcreators.com<br /><br />Social Media:<br />Twitter ➜ <a rel="nofollow" target="blank" href="https://twitter.com/Forrestbono">https://twitter.com/Forrestbono</a><br />Instagram ➜ <a rel="nofollow" target="blank" href="https://www.instagram.com/forrestbono">https://www.instagram.com/forrestbono</a><br />Discord ➜ <a rel="nofollow" target="blank" href="https://discord.gg/CZQ7dQheXG">https://discord.gg/CZQ7dQheXG</a><br /><br />Credits:<br />Huge thank you to all of my amazing team! Love you all :)<br />Villager / Cultists - @Painful @xNestorio <br />Shady Merchant - @Silver <br />Bandit - @Corinthius  <br />Anubis - @aCookieGod  <br />Mau - @LilyPichu  <br />Reptar - @CoffeeFuelledGenius <br />Cult Leader - @loolitsalex <br />Thoth - @PaulGG <br />Amazing Anubis Temple by @TrixyBlox <br />Edited by - <a rel="nofollow" target="blank" href="https://twitter.com/VCTF_">https://twitter.com/VCTF_</a><br /><br />Shaders Used: Complementary Shaders - <a rel="nofollow" target="blank" href="https://bit.ly/3wIJgRx">https://bit.ly/3wIJgRx</a><br /><br />I had to survive for 100 Days of Hardcore Minecraft in Ancient Egypt and battle Reptar, the Commander of Sobek, the Giant Sphinx, and Anubis, the God of the Dead! Throughout the 100 Days, I encountered many insane Egyptian bosses, gods and civilizations throughout my time in Ancient Egypt! Stay tuned to see what happens during the 100 Days in Ancient Egypt!<br /><br />0:00 - 100 Days in Ancient Egypt..<br />2:56 - Genshin Impact &amp; PlayStation (Sponsor)<br />4:06 - 100 Days in Ancient Egypt..<br /><br />#100Days #Hardcore #Minecraft{% endraw %}
