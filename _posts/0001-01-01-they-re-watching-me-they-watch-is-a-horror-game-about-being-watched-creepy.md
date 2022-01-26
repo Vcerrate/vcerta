@@ -1,0 +1,15 @@
+---
+title: "they're watching me..."
+image: "https:\/\/i.ytimg.com\/vi\/gtgtc4wo_OI\/hqdefault.jpg"
+vid_id: "gtgtc4wo_OI"
+categories: "Gaming"
+tags: ["yub","they watch","yub they watch"]
+date: "2022-01-26T05:21:07+03:00"
+vid_date: "2022-01-25T22:23:20Z"
+duration: "PT12M53S"
+viewcount: "18717"
+likeCount: "1982"
+dislikeCount: ""
+channel: "YuB"
+---
+{% raw %}THEY WATCH is a horror game about being watched, CREEPY!<br />GAME - <a rel="nofollow" target="blank" href="https://dpstudios.itch.io/they-watch">https://dpstudios.itch.io/they-watch</a><br />Video Edited By - <a rel="nofollow" target="blank" href="https://www.youtube.com/c/JayskiBean">https://www.youtube.com/c/JayskiBean</a><br />This channel is not intended for children.<br />YuB Merch ► <a rel="nofollow" target="blank" href="https://teespring.com/stores/yubs-merch-shop">https://teespring.com/stores/yubs-merch-shop</a><br />Join YuB Club ► <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCNpcQ002WElJqT9r--R-Xfg/join">https://www.youtube.com/channel/UCNpcQ002WElJqT9r--R-Xfg/join</a><br />Minecraft Server ► <a rel="nofollow" target="blank" href="https://www.patreon.com/yub">https://www.patreon.com/yub</a><br />Get A Shoutout ► <a rel="nofollow" target="blank" href="https://www.cameo.com/yub">https://www.cameo.com/yub</a><br />All My Gear Here ► <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/yub">https://www.amazon.com/shop/yub</a><br />Music I Use ► <a rel="nofollow" target="blank" href="http://share.epidemicsound.com/vbtDp">http://share.epidemicsound.com/vbtDp</a><br />Become a YuBscriber! ►<a rel="nofollow" target="blank" href="http://bit.ly/1sfEUQV">http://bit.ly/1sfEUQV</a><br /><br />HERE ARE THE PLACES WE CAN BE FRIENDS:<br />Twitter! <a rel="nofollow" target="blank" href="http://www.twitter.com/yubplays">http://www.twitter.com/yubplays</a><br />TikTok! <a rel="nofollow" target="blank" href="https://www.tiktok.com/@yubplays">https://www.tiktok.com/@yubplays</a><br />Discord! <a rel="nofollow" target="blank" href="http://discord.gg/yub">http://discord.gg/yub</a><br />Instagram! <a rel="nofollow" target="blank" href="https://instagram.com/yubplays">https://instagram.com/yubplays</a><br />Snapchat! YuBplays<br />Twitch! <a rel="nofollow" target="blank" href="http://www.twitch.tv/yub_">http://www.twitch.tv/yub_</a><br />2nd Channel (Unedited Gameplay) - <a rel="nofollow" target="blank" href="https://www.youtube.com/yubuncut">https://www.youtube.com/yubuncut</a><br /><br />I use a lot of royalty-free music in my videos from <br /><a rel="nofollow" target="blank" href="http://share.epidemicsound.com/vbtDp">http://share.epidemicsound.com/vbtDp</a><br /><a rel="nofollow" target="blank" href="https://www.bensound.com">https://www.bensound.com</a><br /><a rel="nofollow" target="blank" href="https://incompetech.com">https://incompetech.com</a><br /><br />For business inquiries or prayer requests, send me an email at yubplays@gmail.com<br /><br />#yub #theywatch #scary{% endraw %}
