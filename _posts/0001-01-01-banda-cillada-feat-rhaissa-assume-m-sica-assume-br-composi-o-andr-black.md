@@ -1,0 +1,15 @@
+---
+title: "Banda Cillada Feat. Rhaissa - Assume"
+image: "https:\/\/i.ytimg.com\/vi\/4UUly8GEQNQ\/hqdefault.jpg"
+vid_id: "4UUly8GEQNQ"
+categories: "Music"
+tags: ["banda cillada","oficial","música nova"]
+date: "2022-01-26T03:15:22+03:00"
+vid_date: "2021-02-18T22:00:11Z"
+duration: "PT3M37S"
+viewcount: "32188"
+likeCount: "729"
+dislikeCount: ""
+channel: "Banda Cillada"
+---
+{% raw %}Música Assume<br />Composição André Black / Américo Compositor <br /><br />Ei bê preciso de um tempo, <br />Já faz dias que já não rola sentimentos,<br />Não adianta eu falar,<br />Que te amo se é,<br />Da boca pra fora,<br />Tô arrumando minhas malas,<br />To saindo fora....<br />Esse papo de tempo,<br />Tem cheiro de traição,<br />Diga diga logo é outra em sua vida,<br />Cê tem outra em seu coração,<br />Seja homem e assume,<br />Me fala a verdade,<br />E pode ir embora.<br />Bê eu tô tão confuso,<br />Eu não enxergo no escuro,<br />Eu só não tô querendo te magoar,<br />Se for embora não precisa voltar,<br />Assim fica difícil,<br />Tô num precipício,<br />Mais eu vou pular,<br />Eu não vou ficar,<br />Tô gostando de outra pessoa <br />Eu sabia<br />Eu tô apaixonado<br />Já sabia,<br />Não consigo viver sem ela<br />Eu sentia,<br />sabia,sabia<br /><br />---------------------------------------------------------------------------------------------<br /><br />Siga nossos perfis nas plataformas digitais:<br /><br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/3n5Cojn76AdGhOXrBwLc52">https://open.spotify.com/artist/3n5Cojn76AdGhOXrBwLc52</a><br />iTunes: <a rel="nofollow" target="blank" href="https://music.apple.com/br/artist/banda-cillada/1471354294">https://music.apple.com/br/artist/banda-cillada/1471354294</a><br />Deezer: <a rel="nofollow" target="blank" href="https://www.deezer.com/br/artist/68346012">https://www.deezer.com/br/artist/68346012</a><br />Google Play Music: <a rel="nofollow" target="blank" href="https://play.google.com/store/music/artist/Banda_Cillada?id=Altdkdny7qasjmimdhw2gwrj2ua">https://play.google.com/store/music/artist/Banda_Cillada?id=Altdkdny7qasjmimdhw2gwrj2ua</a><br />Sua Música: <a rel="nofollow" target="blank" href="https://www.suamusica.com.br/bandacillada">https://www.suamusica.com.br/bandacillada</a><br />Palco MP3: <a rel="nofollow" target="blank" href="https://palcomp3.com.br/BANDACILLADA/">https://palcomp3.com.br/BANDACILLADA/</a><br /><br />---------------------------------------------------------------------------------------------<br /><br /><br />Sigam a Banda Cillada nas Redes Sociais:<br /><br /><br />Instagram: <a rel="nofollow" target="blank" href="http://bit.ly/instagrambandacillada">http://bit.ly/instagrambandacillada</a><br />Facebook: <a rel="nofollow" target="blank" href="http://bit.ly/facebookcillada">http://bit.ly/facebookcillada</a><br /><br />---------------------------------------------------------------------------------------------<br /><br />Contatos Para Shows: 81 998235400<br />#IssoECillada #BandaCillada #Assume #Rhaissa #ForròRomantico #AndreBlack{% endraw %}
