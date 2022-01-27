@@ -1,0 +1,15 @@
+---
+title: "Russia’s six scenarios for a new Ukraine invasion"
+image: "https:\/\/i.ytimg.com\/vi\/swyqBkF6dpk\/hqdefault.jpg"
+vid_id: "swyqBkF6dpk"
+categories: "Nonprofits-Activism"
+tags: ["Ukraine","atlantic council","Eurasia Center"]
+date: "2022-01-27T10:56:26+03:00"
+vid_date: "2022-01-25T15:15:20Z"
+duration: "PT1H2M8S"
+viewcount: "19053"
+likeCount: "431"
+dislikeCount: ""
+channel: "AtlanticCouncil"
+---
+{% raw %}For months, more than 100,000 Russian troops have been surrounding Ukraine from three sides as the Kremlin threatens to escalate its 8-year war there and the West works to deter Moscow’s forces. If Putin decides to go in again, what would this Russian offensive look like? Experts have assembled likely scenarios, from the capture of strategic territory to create a land bridge from Russia to occupied Crimea, to escalated hybrid warfare that mixes information operations with false flag terror attacks, to a wholesale blitzkrieg of Russian tanks and planes sweeping through Ukraine and potentially Belarus. How should Ukraine and the West best safeguard against Kremlin aggression, and what is the reality on the ground?<br /><br />Melinda Haring, deputy director of the Atlantic Council’s Eurasia Center, moderates a panel discussion on what comes next in the Kremlin’s aggression against Ukraine with Ambassador John Herbst, senior director of the Atlantic Council’s Eurasia Center, Michael Kofman, research program director in the Russia Studies Program at CNA, John Sipher, nonresident senior fellow at the Atlantic Council’s Eurasia Center, &amp; Andriy Zagorodnyuk, former Minister of Defense of Ukraine.<br /><br />Learn more and register to participate live at <a rel="nofollow" target="blank" href="https://www.atlanticcouncil.org/event/russias-six-scenarios-for-a-new-ukraine-invasion">https://www.atlanticcouncil.org/event/russias-six-scenarios-for-a-new-ukraine-invasion</a><br /><br />--------------------------------------------------------------------------------------------<br /><br />Subscribe for more! <a rel="nofollow" target="blank" href="https://www.youtube.com/user/AtlanticCouncil">https://www.youtube.com/user/AtlanticCouncil</a><br /><br />Driven by our mission of “shaping the global future together,” the Atlantic Council is a nonpartisan organization that galvanizes US leadership and engagement in the world, in partnership with allies and partners, to shape solutions to global challenges. <br /><br />Find out more about us below or at www.atlanticcouncil.org<br /><br />Eurasia Center Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/ACEurasia">https://twitter.com/ACEurasia</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/atlanticcouncil">https://www.facebook.com/atlanticcouncil</a><br />LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/company/atlanticcouncil">https://www.linkedin.com/company/atlanticcouncil</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/atlanticcouncil">https://www.instagram.com/atlanticcouncil</a>{% endraw %}
