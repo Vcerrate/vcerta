@@ -1,0 +1,15 @@
+---
+title: "My life has changed forever."
+image: "https:\/\/i.ytimg.com\/vi\/whVGos5Inmg\/hqdefault.jpg"
+vid_id: "whVGos5Inmg"
+categories: "Entertainment"
+tags: ["changed","forever."]
+date: "2022-01-27T11:07:12+03:00"
+vid_date: "2022-01-26T15:07:56Z"
+duration: "PT4M5S"
+viewcount: "9509"
+likeCount: "1674"
+dislikeCount: ""
+channel: "Sam Newton"
+---
+{% raw %}Canon Ambassador Sam. Has a nice ring to it. Honored is an understatement, love you guys.<br /><br />Check out the team of ambassadors here<br /><br /><a rel="nofollow" target="blank" href="https://www.usa.canon.com/internet/portal/us/home/explore/canon-co-lab">https://www.usa.canon.com/internet/portal/us/home/explore/canon-co-lab</a><br /><br />If you want to support me support my sponsors below (it really helps)<br /><br />Grab yourself an Artlist Account and get 2 months extra for free:<br /><br /><a rel="nofollow" target="blank" href="https://artlist.io/artlist-70446/?artlist_aid=SamNewtonMedia_422&amp;utm_source=affiliate_p&amp;utm_medium=SamNewtonMedia_422&amp;utm_campaign=SamNewtonMedia_422">https://artlist.io/artlist-70446/?artlist_aid=SamNewtonMedia_422&amp;utm_source=affiliate_p&amp;utm_medium=SamNewtonMedia_422&amp;utm_campaign=SamNewtonMedia_422</a> <br /><br />CHECK OUT ARTGRID $100 OFF! (The best stock footage site)<br /><br />Get 2 Extra Months free when you sign up with this link:<br /><a rel="nofollow" target="blank" href="https://artgrid.io/Artgrid-114820/?artlist_aid=SamNewtonMedia_422&amp;utm_source=affiliate_p&amp;utm_medium=SamNewtonMedia_422&amp;utm_campaign=SamNewtonMedia_422">https://artgrid.io/Artgrid-114820/?artlist_aid=SamNewtonMedia_422&amp;utm_source=affiliate_p&amp;utm_medium=SamNewtonMedia_422&amp;utm_campaign=SamNewtonMedia_422</a><br /><br />Check out Motion Array! Where I get all my asset templates:<br /><a rel="nofollow" target="blank" href="https://motionarray.com/?artlist_aid=SamNewtonMedia_422&amp;utm_source=affiliate_p&amp;utm_medium=SamNewtonMedia_422&amp;utm_campaign=SamNewtonMedia_422">https://motionarray.com/?artlist_aid=SamNewtonMedia_422&amp;utm_source=affiliate_p&amp;utm_medium=SamNewtonMedia_422&amp;utm_campaign=SamNewtonMedia_422</a><br /><br />My Camera:<br /><a rel="nofollow" target="blank" href="https://amzn.to/33tWokh">https://amzn.to/33tWokh</a><br /><br />Youtube Lens:<br /><a rel="nofollow" target="blank" href="https://amzn.to/3I4I8gN">https://amzn.to/3I4I8gN</a><br /><br />Go to lens:<br /><a rel="nofollow" target="blank" href="https://amzn.to/33Cpxtt">https://amzn.to/33Cpxtt</a><br /><br />Drone:<br /><a rel="nofollow" target="blank" href="https://amzn.to/3FKiZGT">https://amzn.to/3FKiZGT</a><br /><br />CUTS CLOTHING! The best clothes in the world 15% off auto applied<br /><a rel="nofollow" target="blank" href="https://www.cuts.team/samnewton">https://www.cuts.team/samnewton</a><br /><br />Check out Polar Pro:<br />All of my camera rig accessories and filters<br /><a rel="nofollow" target="blank" href="https://www.polarprofilters.com?sca_ref=596522.sbQyVTsC52">https://www.polarprofilters.com?sca_ref=596522.sbQyVTsC52</a>{% endraw %}
