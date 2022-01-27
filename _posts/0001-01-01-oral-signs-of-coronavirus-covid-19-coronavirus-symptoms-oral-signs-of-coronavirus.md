@@ -1,0 +1,15 @@
+---
+title: "ORAL SIGNS OF CORONAVIRUS (COVID 19) \/ CORONAVIRUS SYMPTOMS"
+image: "https:\/\/i.ytimg.com\/vi\/mmU0GfdZiwQ\/hqdefault.jpg"
+vid_id: "mmU0GfdZiwQ"
+categories: "Education"
+tags: ["covid 19 symptoms","oral signs of coronavirus","coronavirus symptoms"]
+date: "2022-01-28T00:26:33+03:00"
+vid_date: "2021-05-09T04:48:18Z"
+duration: "PT6M"
+viewcount: "641558"
+likeCount: "4013"
+dislikeCount: ""
+channel: "Medinaz"
+---
+{% raw %}ORAL SIGNS OF CORONAVIRUS (COVID 19) / CORONAVIRUS SYMPTOMS<br />COVID 19 SYMPTOMS / SARS CoV -2 SYMPTOMS<br /><br />For more such medicine &amp; healthcare related, colourful illustrations - SUBSCRIBE TO OUR CHANNEL!!! Visit our website for more amazing content.<br /><br /><br /><br /><br /><br /><br /><br /><br />RESOURCES:<br /><br />Oral manifestations associated with <br /><a rel="nofollow" target="blank" href="https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7404436/">https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7404436/</a><br /><br />Top 5 oral manifestations of COVID-19<br /><a rel="nofollow" target="blank" href="https://bit.ly/3uuDhPL">https://bit.ly/3uuDhPL</a><br /><br />COVID TONGUE:<br /><a rel="nofollow" target="blank" href="https://onlinelibrary.wiley.com/doi/10.1111/bjd.19564">https://onlinelibrary.wiley.com/doi/10.1111/bjd.19564</a><br /><br />Oral manifestations of COVID‐19 disease: A review article<br /><a rel="nofollow" target="blank" href="https://bit.ly/2Rv9RlU">https://bit.ly/2Rv9RlU</a><br /><br />More information:<br /><a rel="nofollow" target="blank" href="https://www.who.int/emergencies/diseases/novel-coronavirus-2019">https://www.who.int/emergencies/diseases/novel-coronavirus-2019</a><br /><br />YouTube: Medinaz <a rel="nofollow" target="blank" href="https://m.youtube.com/channel/UCa81ol3LHXziCot4uAGUXEQ">https://m.youtube.com/channel/UCa81ol3LHXziCot4uAGUXEQ</a><br /><br />Instagram: medinaz_academy <a rel="nofollow" target="blank" href="https://instagram.com/medinaz_academy?igshid=1wxpmokv4i8kv">https://instagram.com/medinaz_academy?igshid=1wxpmokv4i8kv</a><br /><br />Website: <a rel="nofollow" target="blank" href="https://medinaz.com/">https://medinaz.com/</a><br /><br />App: Available on android and iOS devices.<br /><br /><br /><br />Medical disclaimer: Medinaz Academy does not provide medical advice. The content available in our books and videos, on our website, or on our social media handles do not provide a diagnosis or other recommendation for treatment and are not a substitute for the professional judgment of a healthcare professional in diagnosis and treatment of any person or animal. We intend to provide educational information only. The determination of the need for medical services and the types of healthcare to be provided to a patient are decisions that should be made only by a physician or other licensed health care provider. Always seek the advice of a physician or other qualified healthcare provider with any questions you have regarding a medical condition.{% endraw %}
