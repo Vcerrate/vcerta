@@ -1,0 +1,15 @@
+---
+title: "What Made Britain Unite? | The Union of the Crowns and the Acts of Union Explained"
+image: "https:\/\/i.ytimg.com\/vi\/qvVDBp4-pW0\/hqdefault.jpg"
+vid_id: "qvVDBp4-pW0"
+categories: "Education"
+tags: ["union of the crowns","acts of union","what made Britain unite?"]
+date: "2022-01-27T04:58:13+03:00"
+vid_date: "2020-08-17T14:15:03Z"
+duration: "PT10M43S"
+viewcount: "11346"
+likeCount: "376"
+dislikeCount: ""
+channel: "Look Back History"
+---
+{% raw %}The four nations of the UK are completely distinct, so why do they make up one United Kingdom? <br /><br />The Union of the Crowns brought England (which ruled over Ireland) and Scotland, former rivals, under the control of one king, but the House of Stuart was never able to fully unify their domains. That all changed when Oliver Cromwell's New Model Army conquered all of the British Isles for the English Commonwealth and unified England, Scotland, and Ireland for the first time in history. Cromwell's republic wouldn't last though and the Stuarts returned to power in 1660. Over the next century and a half, through two sets of Acts of Union, the British Isles would unite once again.<br /><br /><br />Subscribe for more history:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/LookBackHistory?sub_confirmation=1">https://www.youtube.com/c/LookBackHistory?sub_confirmation=1</a><br /><br />Get updates on Twitter:<br /><a rel="nofollow" target="blank" href="https://twitter.com/LBHistory">https://twitter.com/LBHistory</a><br /><br />More Videos:<br />Who Was Alfred the Great?: <a rel="nofollow" target="blank" href="https://youtu.be/gAv8I80No80">https://youtu.be/gAv8I80No80</a><br />What Was the Norman Conquest?: <a rel="nofollow" target="blank" href="https://youtu.be/xqAqv3W-NB4">https://youtu.be/xqAqv3W-NB4</a><br />The English Civil War: <a rel="nofollow" target="blank" href="https://youtu.be/9jtNGBU-Epw">https://youtu.be/9jtNGBU-Epw</a><br />The Magna Carta: <a rel="nofollow" target="blank" href="https://youtu.be/yQitH6JcAR8">https://youtu.be/yQitH6JcAR8</a><br /><br /><br />Music:<br /><br />Battle Of The Creek by Alexander Nakarada | <a rel="nofollow" target="blank" href="https://www.serpentsoundstudios.com">https://www.serpentsoundstudios.com</a><br />Music promoted by <a rel="nofollow" target="blank" href="https://www.free-stock-music.com">https://www.free-stock-music.com</a><br />Attribution 4.0 International (CC BY 4.0)<br /><a rel="nofollow" target="blank" href="https://creativecommons.org/licenses/by/4.0/">https://creativecommons.org/licenses/by/4.0/</a><br /><br />Danse Macabre - Busy Strings by Kevin MacLeod is licensed under a Creative Commons Attribution license (<a rel="nofollow" target="blank" href="https://creativecommons.org/licenses/by/4.0/)">https://creativecommons.org/licenses/by/4.0/)</a><br />Source: <a rel="nofollow" target="blank" href="http://incompetech.com/music/royalty-free/index.html?isrc=USUAN1100556">http://incompetech.com/music/royalty-free/index.html?isrc=USUAN1100556</a><br />Artist: <a rel="nofollow" target="blank" href="http://incompetech.com/">http://incompetech.com/</a>{% endraw %}
