@@ -1,0 +1,15 @@
+---
+title: "The Moon Does Not Go Around the Earth"
+image: "https:\/\/i.ytimg.com\/vi\/JUo2tp_yvRY\/hqdefault.jpg"
+vid_id: "JUo2tp_yvRY"
+categories: "Entertainment"
+tags: ["bright side","brightside","outer space"]
+date: "2022-01-27T09:12:37+03:00"
+vid_date: "2022-01-26T04:00:03Z"
+duration: "PT10M1S"
+viewcount: "87482"
+likeCount: "2742"
+dislikeCount: ""
+channel: "BRIGHT SIDE"
+---
+{% raw %}The Moon is our planet's sole natural satellite and nearest celestial body. The Moon orbits the Earth and it takes about one month to complete the full cycle from New Moon to New Moon. But there's a common misconception that the Moon goes around the Earth. Which isn't true. <br /><br /><br /><br />Why do we believe in this myth and why is it completely wrong? Let's take a look at the phases of the Moon and its rotation cycle. We'll see that the Moon is not going around the Earth - it is traveling along with the Earth - around the Sun.<br /><br /><br /><br />#brightside<br /><br />TIMESTAMPS<br />The Sun doesn't go around the Earth 00:00<br />Myths about the Moon 00:37<br />Sun-centered -Solar system 01:12<br />The Phases of Venus 02:40<br />Moon and Earth 05:19<br />Barycenter 07:32<br />Earthling 09:30<br /><br />Animation is created by Bright Side.<br />----------------------------------------------------------------------------------------<br />Music by Epidemic Sound <a rel="nofollow" target="blank" href="https://www.epidemicsound.com">https://www.epidemicsound.com</a> <br /><br />Check our Bright Side podcast on Spotify and leave a positive review! <a rel="nofollow" target="blank" href="https://open.spotify.com/show/0hUkPxD34jRLrMrJux4VxV">https://open.spotify.com/show/0hUkPxD34jRLrMrJux4VxV</a> <br /><br />Subscribe to Bright Side: <a rel="nofollow" target="blank" href="https://goo.gl/rQTJZz">https://goo.gl/rQTJZz</a> <br />----------------------------------------------------------------------------------------<br />Our Social Media:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/brightside">https://www.facebook.com/brightside</a> <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/brightside.official">https://www.instagram.com/brightside.official</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@brightside.official?lang=en">https://www.tiktok.com/@brightside.official?lang=en</a> <br /><br />Stock materials (photos, footages and other):<br /><a rel="nofollow" target="blank" href="https://www.depositphotos.com">https://www.depositphotos.com</a><br /><a rel="nofollow" target="blank" href="https://www.shutterstock.com">https://www.shutterstock.com</a><br /><a rel="nofollow" target="blank" href="https://www.eastnews.ru">https://www.eastnews.ru</a><br />----------------------------------------------------------------------------------------<br /><br />For more videos and articles visit:<br /><a rel="nofollow" target="blank" href="http://www.brightside.me">http://www.brightside.me</a>{% endraw %}
