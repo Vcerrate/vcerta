@@ -1,0 +1,15 @@
+---
+title: "The Tragic Missed Shot that Almost Changed CS:GO History"
+image: "https:\/\/i.ytimg.com\/vi\/aVP2RUYp3TQ\/hqdefault.jpg"
+vid_id: "aVP2RUYp3TQ"
+categories: "Gaming"
+tags: ["esports","gaming","theScoreesports"]
+date: "2022-01-27T21:09:34+03:00"
+vid_date: "2022-01-26T20:00:00Z"
+duration: "PT15M48S"
+viewcount: "96524"
+likeCount: "5061"
+dislikeCount: ""
+channel: "theScore esports"
+---
+{% raw %}Sponsored by @Cisco  - powering the future of esports. Learn more at: <a rel="nofollow" target="blank" href="https://www.cisco.com/c/en/us/solutions/industries/sports-entertainment/esports.html">https://www.cisco.com/c/en/us/solutions/industries/sports-entertainment/esports.html</a>  <br /><br />To find out more about The Realm, check out our video about it here: <a rel="nofollow" target="blank" href="https://youtu.be/NzGJ0vozgO8">https://youtu.be/NzGJ0vozgO8</a><br /><br />The Stockholm Major final was a clash of CS:GO's titans. S1mple versus NiKo. <br /><br />Na`vi destroyed every team on their way to the grand finals without dropping a single map. S1mple led the charge; the greatest CS:GO player of all time knew this was his major to win, and he looked unstoppable.<br /><br />But on the other side of the bracket, G2 Esports' NiKo was terrorizing teams.<br /><br />When the two met in the grand finals, everyone predicted a swift 2-0 victory of s1mple. Despite losing Map 1, G2 rallied on Nuke, taking it to map point. Up 15-12, with s1mple in his crosshairs, it looked like NiKo could be the first player all tournament to make s1mple look mortal.<br /><br />He pulled the trigger and the shots went wide. <br /><br />This is the most tragic whiff in CS:GO history. The shot that almost made s1mple bleed. The shot that almost gave us a full three-map series in a grand finals that was supposed to be a rout. <br /><br />Let's break it down, second by second. <br /><br />Written by: Niall McCrossan (@niallmccrossan)<br />Edited by: Patrick Weiers<br />Hosted by: Dimitri Pascaluta (@DPascaluta)<br />Thumbnail by: Bennett Grainger<br />Graphics by: Brandon Mistele and William O'Keefe<br />Produced by: Daniel Rosen (@Daniel_Rosen)<br /><br />Footage courtesy of: <a rel="nofollow" target="blank" href="https://pastebin.com/V9LwudzL">https://pastebin.com/V9LwudzL</a><br /><br />Music used under license from Associated Production Music LLC (”APM”).<br /><br />Follow us on Twitch: <a rel="nofollow" target="blank" href="http://www.twitch.tv/thescoreesports">http://www.twitch.tv/thescoreesports</a><br />Follow us on Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/thescoreesports">http://twitter.com/thescoreesports</a><br />Follow us on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/theScoreesports">https://www.facebook.com/theScoreesports</a><br />Follow us on TikTok: <a rel="nofollow" target="blank" href="http://www.tiktok.com/@thescoreesports">http://www.tiktok.com/@thescoreesports</a><br />Follow us on Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/theScoreesports">https://instagram.com/theScoreesports</a>{% endraw %}
