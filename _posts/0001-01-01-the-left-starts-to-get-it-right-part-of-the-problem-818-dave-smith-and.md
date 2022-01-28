@@ -1,0 +1,15 @@
+---
+title: "The Left Starts To Get It Right - Part Of The Problem #818"
+image: "https:\/\/i.ytimg.com\/vi\/SFVVFzkJ7Tc\/hqdefault.jpg"
+vid_id: "SFVVFzkJ7Tc"
+categories: "Comedy"
+tags: ["Starts","Right","Problem"]
+date: "2022-01-28T04:14:16+03:00"
+vid_date: "2022-01-25T19:00:10Z"
+duration: "PT1H21S"
+viewcount: "18132"
+likeCount: "1185"
+dislikeCount: ""
+channel: "Dave Smith"
+---
+{% raw %}Dave Smith and Robbie The Fire Bernstein bring you the latest in politics! On this episode of Part Of The Problem Dave and Robbie take a look at a recent segment from Bill Maher's show with journalist Bari Weiss, where we hear about changing narratives surrounding the lockdown regime and how people are dealing with it.<br /><br />This episode was recorded on 1.23.22<br /><br />Support Our Sponsors<br /><br />Ip Vanish - <a rel="nofollow" target="blank" href="https://ipvanish.com/PROBLEM">https://ipvanish.com/PROBLEM</a> <br />Paint Your Life - text the word PROBLEM to 64000<br /><br /><br />Follow the show on social media:<br /><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/ComicDaveSmith">https://twitter.com/ComicDaveSmith</a><br /><br /><a rel="nofollow" target="blank" href="https://twitter.com/RobbieTheFire">https://twitter.com/RobbieTheFire</a><br /><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/bmackayisright">https://www.instagram.com/bmackayisright</a><br /><br /><br /><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/theproblemdavesmith/">https://www.instagram.com/theproblemdavesmith/</a><br /><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/robbiethefire/">https://www.instagram.com/robbiethefire/</a><br /><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/bmackayisright">https://www.instagram.com/bmackayisright</a><br /><br /><br /><br />Subscribe On YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/DSmithcomic">https://www.youtube.com/user/DSmithcomic</a><br /><br /><br /><br />Buy Daves Album : Dave Smith Libertas - <a rel="nofollow" target="blank" href="https://bit.ly/2Nq5seM">https://bit.ly/2Nq5seM</a><br /><br /><br /><br />Dave Smith and Robbie The Fire Bernstein bring you the latest in Politics three times a week, with the promise of bonus episodes! Libertarian Philosophy mixed with a sense of humor, POTP is one of the leading voices in libertarianism.<br /><br /><br /><br />Dave Smith is a New York based stand-up comedian, radio personality, and political commentator. Dave can be seen regularly on “The Greg Gutfeld Show” and “Red Eye” on Fox News, as well as “Kennedy” on Fox Business Network. In 2013 Dave was featured as one of the New Faces at the prestigious Just For Laughs Comedy Festival in Montreal. He was also a featured performer on the New York Comedy Festival’s “New York’s Funniest” showcase in 2014 and 2015. Dave's outlet for his social commentary is his podcast, “Part of the Problem,” which is available on iTunes. Dave is also co-host of “The Legion of Skanks” podcast, available on the GaS Digital Network.{% endraw %}
