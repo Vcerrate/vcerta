@@ -1,0 +1,15 @@
+---
+title: "NFL Championship Weekend w\/ Taylor Lewan | The Pivot w\/ Channing Crowder, Fred Taylor & Ryan Clark"
+image: "https:\/\/i.ytimg.com\/vi\/MnKd5xUpn3k\/hqdefault.jpg"
+vid_id: "MnKd5xUpn3k"
+categories: "People-Blogs"
+tags: ["the pivot","the pivot podcast","new podcast"]
+date: "2022-01-29T07:08:32+03:00"
+vid_date: "2022-01-28T21:30:09Z"
+duration: "PT47M14S"
+viewcount: "56028"
+likeCount: "4029"
+dislikeCount: ""
+channel: "The Pivot Podcast"
+---
+{% raw %}NFL Championship Preview<br />The Price of Pain with Taylor Lewan<br /><br />It was a Nashville kind of night when Titans Tackle Taylor Lewan<br />joined Fred, Ryan and Channing on a special episode of the Pivot.<br />Lewan, host of Bussin' with Boys, comes ready to have an open and<br />somewhat painful conversation with the guys talking everything from<br />football to life to well...pain.<br /><br />After falling short to the Cincinnati Bengals in the divisional game<br />this past Sunday, Taylor explains what went wrong to cause the AFC's<br />#1 seed to be knocked out . &quot;I didn't see it coming, we practiced<br />harder and sharper than we did all season leading into that game,&quot;<br />Lewan said. But as the guys pressed him on the inner workings of the<br />team, Taylor defended his quarterback Ryan Tannehill saying he isn't<br />the bad player everyone is making him out to be, he just didn't have<br />the best day. The guys discuss the match ups heading into Championship<br />weekend and why experience sometimes can exceed talent.<br /><br />Ryan and Taylor banter back and forth about him being a bully on the<br />field, especially to DB's while Fred admires the mental toughness and<br />dawg instincts the Pro Bowl Tackle possesses. The &quot;Taylor to Taylor&quot;<br />respect continues as the former running back admires a lineman ready<br />to lead the way through oncoming traffic on the field and relates to<br />the mindset needed to play that position. Ryan asks the group what's<br />the most pain they've experienced and the varied responses take on a<br />conversation of their own, Pivoting from turf toe to rashes to<br />well...the misuse of icy hot!<br /><br />Don't miss this episode filled football talk and foolery! The Pivot<br />Podcast releases new episodes every Tuesday at Noon Eastern on Youtube with special show drops on Fridays!<br /><br />SUBSCRIBE HERE: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCUnxiP7q4RDDyeioZFZLnXA?sub_confirmation=1">https://www.youtube.com/channel/UCUnxiP7q4RDDyeioZFZLnXA?sub_confirmation=1</a><br /><br />FOLLOW THE PIVOT PODCAST:<br />INSTAGRAM | <a rel="nofollow" target="blank" href="https://instagram.com/thepivot">https://instagram.com/thepivot</a><br />TWITTER | <a rel="nofollow" target="blank" href="https://twitter.com/thepivot">https://twitter.com/thepivot</a><br />TIKTOK | <a rel="nofollow" target="blank" href="https://tiktok.com/@thepivot">https://tiktok.com/@thepivot</a><br />FACEBOOK | <a rel="nofollow" target="blank" href="https://facebook.com/Pivot-Podcast-103103448905393">https://facebook.com/Pivot-Podcast-103103448905393</a>{% endraw %}
