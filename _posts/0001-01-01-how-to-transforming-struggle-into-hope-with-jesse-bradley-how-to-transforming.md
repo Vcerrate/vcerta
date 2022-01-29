@@ -1,0 +1,15 @@
+---
+title: "How To Transforming Struggle Into Hope With Jesse Bradley"
+image: "https:\/\/i.ytimg.com\/vi\/TkbUxgly6LA\/hqdefault.jpg"
+vid_id: "TkbUxgly6LA"
+categories: "People-Blogs"
+tags: ["transforming","ben lionel scott","finding hope"]
+date: "2022-01-29T08:19:22+03:00"
+vid_date: "2022-01-28T15:56:46Z"
+duration: "PT41M38S"
+viewcount: "4"
+likeCount: "1"
+dislikeCount: ""
+channel: "Simon Osamoh"
+---
+{% raw %}How To Transforming Struggle Into Hope With Jesse Bradley. What do you do when you wake up one day and find out that you’re stripped of the career you’ve always wanted? No one is ever prepared for a tragedy of this scale. However, a major fallback can set you up for even greater things if you let hope trickle in. It may feel like the end of the world at first. But there is always light at the end of the tunnel.<br /><br />In this episode, Jesse Bradley tells us how he transformed his struggles into a new purpose. A medical mishap caused his professional soccer career abruptly, leading him to dive deep into his faith. Now, he is a pastor in church. He shares his healing and self-discovery journey anchored in faith and how he used his vulnerability to bring light and hope to others. He also talks about how his past hurts fueled his passion to serve as a pastor in church.<br /><br />Tune in to the episode to discover Jesse’s journey and refuel the hope that lies within you!<br />Three reasons why you should listen to the full episode:<br /><br />1. Learn the value of vulnerability in transformation and success. <br />2. Discover how to find hope and rebuild your life amid struggles. <br />3. Get inspired by Jesse’s journey of healing and self-discovery with faith. <br /><br />CONNECT WITH SIMON <br />Join Simon's Tribe: <a rel="nofollow" target="blank" href="http://bit.ly/CommunitySimonOsamoh">http://bit.ly/CommunitySimonOsamoh</a>    <br />Subscribe to the Channel: <a rel="nofollow" target="blank" href="http://bit.ly/SubscribeSimonOsamoh">http://bit.ly/SubscribeSimonOsamoh</a>   <br />Facebook Community: <a rel="nofollow" target="blank" href="https://bit.ly/WhoIBecameGroup">https://bit.ly/WhoIBecameGroup</a> <br />More About Simon: <a rel="nofollow" target="blank" href="https://www.simonosamoh.com/">https://www.simonosamoh.com/</a><br /><br />CONNECT WITH JESSE<br />Jesse’s Website: <a rel="nofollow" target="blank" href="https://jessebradley.org/">https://jessebradley.org/</a><br />Jessie on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/jessejbradley/">https://www.instagram.com/jessejbradley/</a><br />Jessie on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/jessejbradley/">https://twitter.com/jessejbradley/</a><br /><br />[00:00] Intro <br />[4:27] Jesse’s Journey to Becoming a Pastor in Church<br />[7:14] Jesse’s Soccer Career <br />[11:53] Soccer Culture in America<br />[15:37] The Pivot in Jesse’s Career <br />[18:56] Becoming a Pastor in Church<br />[22:44] Being a Christian and an Athlete <br />[26:41] Jesse’s Mindset for Success <br />[31:46] Being Open About and Dealing With Struggles <br />[35:58] Jesse’s Biggest Self-Discovery{% endraw %}
