@@ -1,0 +1,15 @@
+---
+title: "I Built Logan Paul A Car!"
+image: "https:\/\/i.ytimg.com\/vi\/hgx2jZvbLKA\/hqdefault.jpg"
+vid_id: "hgx2jZvbLKA"
+categories: "People-Blogs"
+tags: ["mbeem10","matthew beem","beem team"]
+date: "2022-01-29T16:09:35+03:00"
+vid_date: "2022-01-26T04:52:55Z"
+duration: "PT8M37S"
+viewcount: "989360"
+likeCount: "52842"
+dislikeCount: ""
+channel: "Matthew Beem"
+---
+{% raw %}In this video I customized Logan Paul’s very first car to surprise him with it! It turned out incredible so I hope you enjoy it as much as I did!<br /><br />Check out my first merch drop!<br />►  <a rel="nofollow" target="blank" href="https://www.beemteam.shop">https://www.beemteam.shop</a><br />SUBSCRIBE for a chance at $1,000<br />►  <a rel="nofollow" target="blank" href="https://www.youtube.com/c/Mbeem10?sub_confirmation=1">https://www.youtube.com/c/Mbeem10?sub_confirmation=1</a><br /><br />NEW VIDEOS EVERY TUESDAY!<br /><br />📱 FOLLOW MY SOCIALS 📱<br />➽ Instagram - @Mbeem10<br />➽ Twitter - @Mbeem10<br />➽ TikTok - @Mbeem10<br /><br />A couple years ago, Logan Paul announced a massive giveaway where one lucky fan that signed up for the Maverick Club was going to win his most prized possession: his very first car (a yellow Dodge Challenger). As a huge fan myself, I felt that no one else, but Logan, deserved the car. That’s why I planned to win the car, customize it, and then return it back to Logan with hopes of breaking the internet. However, nothing has gone to plan and this turned into one of my craziest stories yet. I managed to buy the car off the winner, but since I was still a small YouTuber (19k subs) I had to take out a massive loan to do so. Unfortunately, the car got crashed in the week leading up to me buying the car so that meant it was just going to cost more to fix. Luckily, I have worked at an auto body shop my entire life painting cars so I was the perfect one for this job. I put a super unique paint on it and then had my friend Marko customize the car with Pokemon characters Charizard, Pikachu, and Squirtle! The car turned out phenomenal, but it turns out that Logan Paul is a very hard guy to get in touch with.... This was insane and super intense to make, but we had lots of laughs along the way. I love making these videos and can't wait for you to see what is next. <br /><br />If you’re reading this you’re a real one! <br />Comment ‘’Prime Pokemon Power!&quot; so I can notice you!<br /><br />Not First Edition Pokemon, But Prime Hydration, But Logan Paul vs KSI, But Maverick Club, But Floyd Mayweather, But Logan Paul Car, But Logan Paul Songs, But Logan Paul Giveaway, But Logan Paul Diss Track, But Logan Paul Vines, But Every Day Bro, or any other video like Logan Paul, KSI, Jake Paul, MoreJStu, Stokes Twins, Unspeakable, Dangie Bros, Ryan Prunty, Ben Azelart, Faze Rug, or Airrack would make. This is a video where Matthew Beem (aka MBeem10) repairs and customizes Logan Paul’s very first car (Dodge Challenger) in an effort to surprise Logan with it and break the internet!{% endraw %}
