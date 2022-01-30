@@ -1,0 +1,15 @@
+---
+title: "EXCELLENT New Comedy Video OPEN Funny 2021 by 1stKingdom"
+image: "https:\/\/i.ytimg.com\/vi\/L5sdv8C_fuk\/hqdefault.jpg"
+vid_id: "L5sdv8C_fuk"
+categories: "Comedy"
+tags: ["Emergency New Funny Video 2021","funny day","2021 new funny videos"]
+date: "2022-01-30T21:49:51+03:00"
+vid_date: "2021-11-29T10:24:24Z"
+duration: "PT3M5S"
+viewcount: "592680"
+likeCount: "730"
+dislikeCount: ""
+channel: "1st Kingdom"
+---
+{% raw %}EXCELLENT New Comedy Video OPEN Funny 2021 by 1stKingdom <br /><br />#hindifunny <br />#hindicomedy <br />#prank<br />#indiancomedy <br />#mustwatch<br />#challenge <br />#funlover <br />#comedy #subscribe #funnykingdom #india #funny <br />we deals with funny, comedy, serious comedy ,laugh, comedy entertinment in general  .subscribe then you will get all of our videos   welcome.                                                                                                                                                                         <br />This video are no any kind of risk. This video are totally acting no risk no Dangerous act no physical harus, Thank youh New Funny  <br />This is a funny video. We make some funny videos in our village side. All the videos are shooting in our area.<br />some time we make prank videos with public and our friends.<br />In this time we make some stupid type videos, if you watch those videos, i will challenge you can't stop your laughing.<br />Some time we are making some Awareness video clips with our friends. and some time make pranks &amp; Funny video's with public. <br />Now we are trying to make best funny videos but we have also some mistake yet So please comment and tell us, what is our mistake? We will try to solve this mistake next. please watch our videos and give us confidence to trying best. Subscribe for stay with us, Thank you<br /><br />#New_Year_Funny_2021 #ComedyVideos <br />#FunnyVines <br />#NewFunnyVideos <br />#myfamily<br />#mahafuntv <br />#hahaidea <br />#funnyday<br />#bindasfunbd <br />#FunnyFails<br />#FunnyFilmsTv<br />#funnyvideos <br />#funnyvideo2021 <br />#indianfunnyvideo #indiancomedyvideo <br />#bindusfun <br />#funkivines<br />#funnyvines <br />#tiktokfunny<br />#stupidboysfunny #bestcomedyscenes #banglafunnyvideo<br />#banglafunny<br />#comedyscenes<br />#funny<br />#fun<br />#comedy<br />#prank<br />#prankvideo<br />#Injection_Funny<br />#WhatsappVideo<br />#Funny_Videos<br />#Indian_Comedy<br />#Doctorfunny<br />#Top_Comedy #nonstop_comedy_video #surjapuri_comedy_video #funny_clips<br />#entertainment_comedy #amazing_funny_video #only_entertainment #bindass_club_funny_comedy #bindas_comedy_nonstop_funny_entertainment_video<br />#silent_comedy_vie #silent_comedy_video<br />#FunnyVideo<br />#MyFamily<br />#Busyfunltd<br />#comedyclub<br />#comedian <br />#jokes<br />#laugh<br />#comedyshow<br />#silentfunny<br /><br />#challenge #mustwatch  #comedyvideo  #funnyvideo #trynottolaugh <br />#new_year_funny_2021 <br />#fun_lover <br />#funtv420 <br />Thank you for watching <br />If there is any issue or opinions let us know in coment section{% endraw %}
