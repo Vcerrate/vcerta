@@ -1,0 +1,15 @@
+---
+title: "\"YOU AREN'T REAL HOOPERS!\" | Trash Talker CALLS US OUT But We SHUT DOWN The Park ANYWAY!"
+image: "https:\/\/i.ytimg.com\/vi\/GBg0Kdqjs_M\/hqdefault.jpg"
+vid_id: "GBg0Kdqjs_M"
+categories: "Sports"
+tags: ["trash talk","ballislife","park"]
+date: "2022-01-30T09:39:08+03:00"
+vid_date: "2021-03-26T18:26:38Z"
+duration: "PT22M45S"
+viewcount: "939550"
+likeCount: "16340"
+dislikeCount: ""
+channel: "Ballislife"
+---
+{% raw %}Subscribe to Nick Briz: <a rel="nofollow" target="blank" href="http://bit.ly/3lkmnzC">http://bit.ly/3lkmnzC</a><br />Subscribe to A-Milly: <a rel="nofollow" target="blank" href="http://bit.ly/38xDKb2">http://bit.ly/38xDKb2</a><br />Subscribe to Zach Hodskins: <a rel="nofollow" target="blank" href="http://bit.ly/3cvqDrI">http://bit.ly/3cvqDrI</a><br />Subscribe to Slim Reaper:<br /><a rel="nofollow" target="blank" href="http://bit.ly/3ldcFPj">http://bit.ly/3ldcFPj</a><br /><br />Another park takeover with the Ballislife Eastcoast Squad! We got a new member now he goes by the name of  Duke Jones aka &quot;SKYWALKA&quot; joined by Nick Briz, A-Milly, Zach (One Armed Hooper) and Slim Reaper. We went  DUNK CRAZY on this one!<br />-------------------------------------------------------------------------------------------------<br /><br />If You Love Our Content, You’ll Love Our Brand, Shop With us:<br /><br />-------------------------------------------------------------------------------------------------<br /><br />Shop: <a rel="nofollow" target="blank" href="http://bit.ly/2jxxecU">http://bit.ly/2jxxecU</a><br /><br />------------------------------------------<br /><br />---------------------------------<br /><br />Follow Us On Social!<br /><br />---------------------------------<br /><br />INSTAGRAM: <a rel="nofollow" target="blank" href="http://bit.ly/2jZYaAj">http://bit.ly/2jZYaAj</a><br /><br />Twitter: <a rel="nofollow" target="blank" href="http://bit.ly/2jWBBdE">http://bit.ly/2jWBBdE</a><br /><br />Facebook: <a rel="nofollow" target="blank" href="http://bit.ly/2kTRHW5">http://bit.ly/2kTRHW5</a><br /><br />--------------------------------------------------<br /><br />Check Out Our Other Channels:<br /><br />--------------------------------------------------<br /><br />Main Channel: <a rel="nofollow" target="blank" href="http://bit.ly/2jZTNWd">http://bit.ly/2jZTNWd</a><br /><br />BIL 2.0: <a rel="nofollow" target="blank" href="http://bit.ly/2kiyjlY">http://bit.ly/2kiyjlY</a><br /><br />EastCoast Highlights: <a rel="nofollow" target="blank" href="http://bit.ly/2ktrhNf">http://bit.ly/2ktrhNf</a><br /><br />WestCoast Highlights: <a rel="nofollow" target="blank" href="http://bit.ly/2kiwPYD">http://bit.ly/2kiwPYD</a><br /><br />MidWest Highlights: <a rel="nofollow" target="blank" href="http://bit.ly/2jWClPY">http://bit.ly/2jWClPY</a><br /><br />The South Highlights: <a rel="nofollow" target="blank" href="http://bit.ly/2jWVQrp">http://bit.ly/2jWVQrp</a><br /><br />-------------------------------------------------------------------------------------------------{% endraw %}
