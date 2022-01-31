@@ -1,0 +1,15 @@
+---
+title: "Driving in My Car - Mother Goose Club Phonics Songs"
+image: "https:\/\/i.ytimg.com\/vi\/Kgmb9pw8K3s\/hqdefault.jpg"
+vid_id: "Kgmb9pw8K3s"
+categories: "Education"
+tags: ["SAR","kindergarten","JUAR"]
+date: "2022-01-31T08:54:43+03:00"
+vid_date: "2013-04-19T15:31:33Z"
+duration: "PT2M31S"
+viewcount: "510713910"
+likeCount: "434587"
+dislikeCount: ""
+channel: "Mother Goose Club"
+---
+{% raw %}Hey parents and teachers! Looking for activity pages to practice the songs in this video? Visit our website! <a rel="nofollow" target="blank" href="https://mothergooseclub.com/downloads/driving-in-my-car-printables/">https://mothergooseclub.com/downloads/driving-in-my-car-printables/</a><br /><br />Try our free “Driving in My Car” activities, including a mini book, coloring page and craft: <a rel="nofollow" target="blank" href="https://bit.ly/2SiweYF">https://bit.ly/2SiweYF</a><br /><br /><br />Check out more Mother Goose Club Nursery Rhymes on our channel. <br /><br />Watch our featured videos! <a rel="nofollow" target="blank" href="http://bit.ly/21ZJoea">http://bit.ly/21ZJoea</a><br />Buy our videos and songs! <a rel="nofollow" target="blank" href="http://bit.ly/20vm2Zy">http://bit.ly/20vm2Zy</a><br />Visit <a rel="nofollow" target="blank" href="http://www.mothergooseclub.com">http://www.mothergooseclub.com</a> for videos and activities!<br /><br />Looking for lyrics? Turn on closed captions to sing along!<br /><br />Big thanks to all of our fans out there, big and small!<br /><br />Original lyrics and music by Sockeye Media LLC © 2014. All rights reserved.<br /><br />Lyrics:<br />Driving, driving in my car,<br />Going very far,<br />Down the street in my car.<br /><br />Driving, driving in my car,<br />Feeling like a star,<br />Bouncing down the street in my car.<br /><br />Driving, driving in my car,<br />Turn the handle bar,<br />Speeding down the street in my car. Yeah, woo hoo!<br /><br />Bouncing on a bumpy road,<br />Stopping for a hopping toad,<br />Going to my favorite park,<br />Hurry before it gets dark,<br />In my car,<br />In my car.<br /><br />Driving, driving in my car,<br />Going very far,<br />Down the street in my car.<br /><br />Driving, driving in my car,<br />Feeling like a star,<br />Bouncing down the street in my car.<br /><br />Driving, driving in my car,<br />Turn the handle bar,<br />Speeding down the street in my car. Vroom! Vroom!<br /><br />Hootin' tootin' on the horn,<br />Driving round from dusk till dawn,<br />Going near and going far,<br />I'm a superstar, whoo!<br />In my car, Vroom! Vroom!<br />In my car.<br /><br />Driving, in my car.<br />Driving, in my car.<br />Driving, in my car.<br />Driving.<br /><br />-~-~~-~~~-~~-~-<br />Please watch: &quot;Nursery Rhymes for Kids by Mother Goose Club | Driving in My Car + Road Trip Adventure Phonics Songs&quot; <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Ui2Em_TGgw8">https://www.youtube.com/watch?v=Ui2Em_TGgw8</a><br />-~-~~-~~~-~~-~-{% endraw %}
