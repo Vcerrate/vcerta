@@ -1,0 +1,15 @@
+---
+title: "Cammy gets a SUPER RARE item for her first Adopt Me daily task!! Roblox!"
+image: "https:\/\/i.ytimg.com\/vi\/FChTS0uIlm4\/hqdefault.jpg"
+vid_id: "FChTS0uIlm4"
+categories: "Gaming"
+tags: ["update","adopt me","trade"]
+date: "2022-01-31T07:31:27+03:00"
+vid_date: "2022-01-28T16:42:23Z"
+duration: "PT58S"
+viewcount: "60064"
+likeCount: "2834"
+dislikeCount: ""
+channel: "Sopo Squad Gaming"
+---
+{% raw %}Cammy Checks Her First Adopt Me Daily Task. Wait And See What She Discovers! OMG! Roblox Adopt Me. OMG That's Insane<br /><br />Watch next on Sopo Squad Gaming: <a rel="nofollow" target="blank" href="https://youtu.be/mON_mRRwuh8">https://youtu.be/mON_mRRwuh8</a> Adopt Me Task Update Is Here! Can We Get An RGB Box? Roblox<br />More Roblox Adopt Me Gaming: <br /><a rel="nofollow" target="blank" href="https://youtu.be/sInJcw5uNUQ">https://youtu.be/sInJcw5uNUQ</a> -RECREATING My REAL LIFE Dream Bedroom In Roblox Adopt Me!<br /><a rel="nofollow" target="blank" href="https://youtu.be/ajsZlTafi2Q">https://youtu.be/ajsZlTafi2Q</a> -Mega Shadow Dragon Giveaway! Can We do it?<br /><a rel="nofollow" target="blank" href="https://youtu.be/-lUutxYFgI4">https://youtu.be/-lUutxYFgI4</a> -Adopt Me Inventory Tour! *EMOTIONAL*<br /><br />   @Sopo Squad Sim   <br />   @Sopo Squad Family <br />   @Sopo Squad Playz <br />   @Sopo Shorts <br /><br />Join our Roblox groups ❤ <br /><a rel="nofollow" target="blank" href="https://www.roblox.com/groups/6521489...">https://www.roblox.com/groups/6521489...</a><br /><a rel="nofollow" target="blank" href="https://www.roblox.com/groups/5746522...">https://www.roblox.com/groups/5746522...</a><br /><a rel="nofollow" target="blank" href="https://www.roblox.com/groups/6431210...">https://www.roblox.com/groups/6431210...</a><br /><a rel="nofollow" target="blank" href="https://www.roblox.com/groups/7774398...">https://www.roblox.com/groups/7774398...</a><br />Sopo Squad Roblox accessories:<br />Cammy's vintage golden glasses: <a rel="nofollow" target="blank" href="https://www.roblox.com/catalog/699916...">https://www.roblox.com/catalog/699916...</a><br />Boba boba tea drink! Link here: <a rel="nofollow" target="blank" href="https://www.roblox.com/catalog/669026...">https://www.roblox.com/catalog/669026...</a><br />Cammy's cottagecore sunhat: <a rel="nofollow" target="blank" href="https://www.roblox.com/catalog/627954...">https://www.roblox.com/catalog/627954...</a><br />Cammyxboba cowboy hat: <a rel="nofollow" target="blank" href="https://www.roblox.com/catalog/641359...">https://www.roblox.com/catalog/641359...</a><br /><br />Socials:<br /><a rel="nofollow" target="blank" href="https://tiktok.com/@therealmikedrop">https://tiktok.com/@therealmikedrop</a><br /><a rel="nofollow" target="blank" href="https://tiktok.com/@sopofam">https://tiktok.com/@sopofam</a><br /><a rel="nofollow" target="blank" href="https://tiktok.com/@lowkey...cammy">https://tiktok.com/@lowkey...cammy</a><br /><br />Find the Sopo Squad on Roblox:  <br />Mike: Mikedrop937 <br />Lizzy: ssglizzy<br />Cammy: CammyxBoba <br />Parker: soposhadow <br />Austin: cuteitopool<br />Colty: Coltybear937{% endraw %}
