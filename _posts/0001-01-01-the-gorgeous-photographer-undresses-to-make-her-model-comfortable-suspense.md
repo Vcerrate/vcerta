@@ -1,0 +1,15 @@
+---
+title: "The gorgeous photographer undresses to make her model comfortable| Suspense | The Adored"
+image: "https:\/\/i.ytimg.com\/vi\/_YF_5lvrj2s\/hqdefault.jpg"
+vid_id: "_YF_5lvrj2s"
+categories: "Film-Animation"
+tags: ["short films","film","short film"]
+date: "2022-02-02T01:11:30+03:00"
+vid_date: "2020-05-12T03:45:00Z"
+duration: "PT11M56S"
+viewcount: "1426523"
+likeCount: "3672"
+dislikeCount: ""
+channel: "Cinehouse"
+---
+{% raw %}The gorgeous photographer undresses to make her model comfortable.<br /><br />SUBSCRIBE: <a rel="nofollow" target="blank" href="http://bit.ly/CinehouseYT">http://bit.ly/CinehouseYT</a><br /><br />WATCH FREE ON:<br />Web: <a rel="nofollow" target="blank" href="https://bit.ly/2W6nFDd">https://bit.ly/2W6nFDd</a><br />IOS:<a rel="nofollow" target="blank" href="http://bit.ly/yuyu-iOS">http://bit.ly/yuyu-iOS</a> <br />Android: <a rel="nofollow" target="blank" href="http://bit.ly/yuyu-GP">http://bit.ly/yuyu-GP</a><br /><br />ABOUT “The Adored” :<br />Photographer Francesca builds Maia’s confidence while having to control her own obsessive and sexual desires towards Maia. As they spend more time together, Maia becomes the object of her obsession and things slowly spiral out of control.<br /><br />CAST: <br />Ione Butler<br />Jake Maskall<br />Laura Martin-Simpson<br /><br />DIRECTED BY:<br />Amarjeet Singh<br />Carl Medland<br /><br />#Rendezvous #Cinehouse #Obsession<br />THE BEST OF CINEHOUSE<br />Casa Amor: <a rel="nofollow" target="blank" href="http://bit.ly/CasaAmorMovie">http://bit.ly/CasaAmorMovie</a><br />Romeo &amp; Juliet: <a rel="nofollow" target="blank" href="http://bit.ly/RomeoandJulietMovie">http://bit.ly/RomeoandJulietMovie</a><br />All About Them: <a rel="nofollow" target="blank" href="http://bit.ly/AllAboutThemMovie">http://bit.ly/AllAboutThemMovie</a><br /><br />CINEHOUSE ON SOCIAL<br />Facebook: <a rel="nofollow" target="blank" href="http://bit.ly/cinehouseFB">http://bit.ly/cinehouseFB</a><br />Instagram: <a rel="nofollow" target="blank" href="http://bit.ly/cinehouseIG">http://bit.ly/cinehouseIG</a><br /><br />ABOUT CINEHOUSE:<br /><br />We are a community for arthouse cinema and romance enthusiasts. All fans, old and new, are always welcome.<br /><br />Subscribe to watch your favorite love stories from around the world~ bit.ly/CHYTSubscribe<br /><br />Whether it's swooning over a French romantic comedy, savoring every detail of production design in fantasy stories like Beauty &amp; The Beast and Cinderella, or breaking our hearts with timeless love tragedies like Across The Sea and Anna Karenina, come join us in the comment section and discuss why you just can't get enough of that one scene that turned you into a cinephile!<br /><br /><br />Part of the YuyuTV network.<br /><br />*All series/movies featured available to stream on Amazon Prime Video, Roku, Fire TV, Vizio Smartcast, Samsung TV Plus, Website, Android and iOS apps.<br />*Stream legally.<br /><br /><br /><br />CINEHOUSE<br /><a rel="nofollow" target="blank" href="https://youtube.com/c/cinehousetv">https://youtube.com/c/cinehousetv</a>{% endraw %}
