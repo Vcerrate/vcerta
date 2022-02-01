@@ -1,0 +1,15 @@
+---
+title: "STOMP TALK MODSTONE 『Keep On Mind』 (Official Video)"
+image: "https:\/\/i.ytimg.com\/vi\/OzI3vFfet5s\/hqdefault.jpg"
+vid_id: "OzI3vFfet5s"
+categories: "Music"
+tags: ["音楽","Music","STOMPTALKMODSTONE"]
+date: "2022-02-01T08:32:51+03:00"
+vid_date: "2021-09-20T15:00:32Z"
+duration: "PT3M56S"
+viewcount: "621"
+likeCount: "38"
+dislikeCount: ""
+channel: "STOMP TALK MODSTONE"
+---
+{% raw %}STOMP TALK MODSTONE ‘Melissa/Keep On Mind’ Release Now:<br /><a rel="nofollow" target="blank" href="https://stomptalkmodstone.bandcamp.com/album/melissa-keep-on-mind">https://stomptalkmodstone.bandcamp.com/album/melissa-keep-on-mind</a><br /><br />STOMP TALK MODSTONE ‘Linger In Someone's Memory With A Lurid Glow’ Release Now:<br /><a rel="nofollow" target="blank" href="https://gezelligrecords.com/album/linger-in-someones-memory-with-a-lurid-glow">https://gezelligrecords.com/album/linger-in-someones-memory-with-a-lurid-glow</a><br /><br />Click to listen to STOMP TALK MODSTONE on Spotify:<br /><a rel="nofollow" target="blank" href="https://open.spotify.com/artist/2VUrS2zhIwU60PLR0rA5B8?si=Zfb4QDydQYu4OWbHlG05SQ">https://open.spotify.com/artist/2VUrS2zhIwU60PLR0rA5B8?si=Zfb4QDydQYu4OWbHlG05SQ</a><br /><br />More from STOMP TALK MODSTONE<br />She Was In The Depth Of Misery And Take New Way’ Release Now: <a rel="nofollow" target="blank" href="https://youtu.be/baoXWSs78hU">https://youtu.be/baoXWSs78hU</a><br />Supercar: <a rel="nofollow" target="blank" href="https://youtu.be/Dih3X6zvidI">https://youtu.be/Dih3X6zvidI</a><br />The Locket: <a rel="nofollow" target="blank" href="https://youtu.be/bC0xy9qBcQg">https://youtu.be/bC0xy9qBcQg</a><br />My Birth: <a rel="nofollow" target="blank" href="https://youtu.be/Cc605ZOWVNI">https://youtu.be/Cc605ZOWVNI</a><br /><br />Follow STOMP TALK MODSTONE<br />Website: <a rel="nofollow" target="blank" href="http://harutosyura.wixsite.com/stomp-talk-modstone">http://harutosyura.wixsite.com/stomp-talk-modstone</a><br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/STOMPTALKMODSTONE/">http://www.facebook.com/STOMPTALKMODSTONE/</a><br />Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/info_STMT_HtS">http://twitter.com/info_STMT_HtS</a><br /><br />Subscribe to STOMP TALK MODSTONE on YouTube: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/StompTalkModstone">https://www.youtube.com/user/StompTalkModstone</a><br /><br />Credits: <br /><br />STOMP TALK MODSTONE<br />Takamitsu Kawashima/Vocal, Guitar, Bass, Drums, Keyboards, Synthesizer<br />Naoki Nishino/Guitar, Vocal<br />Kouta Hoshino/Bass, Vocal<br />Megumu Asai/Drums, Vocal, Illustration<br /><br />Special Thanks<br />Eriko (plant cell, Baby Ever Rain)/Vocal<br /><br />MUSIC<br />All Words &amp; Music by Takamitsu Kawashima<br />Recorded, Mixed, Mastered by Takamitsu Kawashima<br /><br />VIDEO<br />Directed by Takamitsu Kawashima<br /><br />#STOMPTALKMODSTONE #KeepOnMind #Shoegazer #Dreampop #Alternativerock #音楽 #Music #JAPAN{% endraw %}
