@@ -1,0 +1,15 @@
+---
+title: "Ultimate Dangerous Idiots Operator Biggest Truck, Heavy Excavator Fail | win Skills - Excavator Work"
+image: "https:\/\/i.ytimg.com\/vi\/jyQ86ZJiyGM\/hqdefault.jpg"
+vid_id: "jyQ86ZJiyGM"
+categories: "Science-Technology"
+tags: ["Machine Fastest","Dangerous","idiots"]
+date: "2022-02-02T18:47:31+03:00"
+vid_date: "2022-02-01T12:23:18Z"
+duration: "PT26M20S"
+viewcount: "15403"
+likeCount: "105"
+dislikeCount: ""
+channel: "Machine Fastest"
+---
+{% raw %}Ultimate Dangerous Idiots Operator Biggest Truck, Heavy Excavator Fail | win Skills - Excavator Work<br /><br />This Video is a collection of serious fault situations of Heavy Equipment, Excavator, Truck, Bulldozer Operator Fail<br />To warn those who are operating all means, machines, Heavy Equipment must always be careful when working to avoid mistakes like in the clip<br />Always be safe in work and labor.<br />For a safe working environment for yourself and everyone around you<br /><br />Thank For Watching!!!<br />Music:<br />Clash Defiant by Kevin MacLeod<br />Link: <a rel="nofollow" target="blank" href="https://incompetech.filmmusic.io/song/3510-clash-defiant">https://incompetech.filmmusic.io/song/3510-clash-defiant</a><br />License: <a rel="nofollow" target="blank" href="https://filmmusic.io/standard-license">https://filmmusic.io/standard-license</a><br /><br />Movement Proposition by Kevin MacLeod<br />Link: <a rel="nofollow" target="blank" href="https://incompetech.filmmusic.io/song/4088-movement-proposition">https://incompetech.filmmusic.io/song/4088-movement-proposition</a><br />License: <a rel="nofollow" target="blank" href="https://filmmusic.io/standard-license">https://filmmusic.io/standard-license</a><br /><br />Darkling by Kevin MacLeod<br />Link: <a rel="nofollow" target="blank" href="https://incompetech.filmmusic.io/song/3616-darkling">https://incompetech.filmmusic.io/song/3616-darkling</a><br />License: <a rel="nofollow" target="blank" href="https://filmmusic.io/standard-license">https://filmmusic.io/standard-license</a><br /><br />District Four by Kevin MacLeod<br />Link: <a rel="nofollow" target="blank" href="https://incompetech.filmmusic.io/song/3662-district-four">https://incompetech.filmmusic.io/song/3662-district-four</a><br />License: <a rel="nofollow" target="blank" href="https://filmmusic.io/standard-license">https://filmmusic.io/standard-license</a><br /><br />Prelude and Action by Kevin MacLeod<br />Link: <a rel="nofollow" target="blank" href="https://incompetech.filmmusic.io/song/4236-prelude-and-action">https://incompetech.filmmusic.io/song/4236-prelude-and-action</a><br />License: <a rel="nofollow" target="blank" href="https://filmmusic.io/standard-license">https://filmmusic.io/standard-license</a><br /><br />Return of the Mummy by Kevin MacLeod<br />Link: <a rel="nofollow" target="blank" href="https://incompetech.filmmusic.io/song/4281-return-of-the-mummy">https://incompetech.filmmusic.io/song/4281-return-of-the-mummy</a><br />License: <a rel="nofollow" target="blank" href="https://filmmusic.io/standard-license">https://filmmusic.io/standard-license</a>{% endraw %}
