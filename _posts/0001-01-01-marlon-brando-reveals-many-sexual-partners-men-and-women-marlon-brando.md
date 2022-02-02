@@ -1,0 +1,15 @@
+---
+title: "Marlon Brando Reveals Many Sexual Partners (Men and Women)"
+image: "https:\/\/i.ytimg.com\/vi\/RgADmqPB9uM\/hqdefault.jpg"
+vid_id: "RgADmqPB9uM"
+categories: "Entertainment"
+tags: ["Marlon Brando Reveals Many Sexual Partners (Men and Women)","men and women sexual partners revealed by marlon brando","the many sexual partners of marlon brando"]
+date: "2022-02-02T12:58:39+03:00"
+vid_date: "2021-04-29T23:00:13Z"
+duration: "PT9M51S"
+viewcount: "526662"
+likeCount: "11156"
+dislikeCount: ""
+channel: "Facts Verse"
+---
+{% raw %}Marlon Brando changed Hollywood forever with his macho acting style and sexual appeal, over a sixty year career. But what may be a surprise to many is that he was a bisexual sex fiend who slept with plenty of Hollywood’s biggest male stars. <br /><br />Like this content? Subscribe here: <a rel="nofollow" target="blank" href="https://www.youtube.com/factsverse?sub_confirmation=1">https://www.youtube.com/factsverse?sub_confirmation=1</a>  <br /><br />Or, watch more videos here: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLkXAntdjbcSKgHx6EQVOwNKVz1cR2hKVw">https://www.youtube.com/playlist?list=PLkXAntdjbcSKgHx6EQVOwNKVz1cR2hKVw</a><br /><br />Marlon Brando is regarded as arguably the greatest and most influential actor in 20th-century film. Brando was also an activist for many causes, notably the civil rights movement and various Native American movements. <br /><br />In the wheat fields and open landscape of Omaha, Marlon Brando grew close to his mother, Dodie Pennebaker Brando who had the soul of an artist. She taught him to love nature and the magic of the universe. It was inevitably his mother’s disintegration, due to his father’s abuse, that became the sole reason Brando would later turn to women for solace.<br /><br />The two-time Oscar winner had three wives, multiple mistresses and at least fifteen children. With roles like Vito Corleone in The Godfather, which is regarded as one of the greatest movies ever made, Brando still found time to sleep with Hollywood legends. <br /><br />Brando had several true passions; social justice, women and sex. It is said that he needed different girlfriends for different days of the week. Brando slept with the wives of his friends, since he found married women to be a more exciting pursuit. <br /><br />He had relations with Hollywood stars like Marilyn Monroe, Rita Moreno, and Jill Banner. But the biggest surprise is that Marlon Brando never restricted himself to women and he pursued homosexual relations with absolute ease and would not allow himself to be shamed for it. <br /><br />He exuded raw sexuality to straight and gay, male and female and he took full advantage of it. Join us as we delve deep into Brando’s surprising sexual obsessions and reveal which Hollywood superstars he took to bed.<br /><br />Marlon Brando Reveals Many Sexual Partners (Men and Women)<br />Do you think you know a lot about TV? Try our quiz and enter to win $500!<br />Click below to check the trivia question<br /><a rel="nofollow" target="blank" href="https://bit.ly/3rEeMxk">https://bit.ly/3rEeMxk</a>{% endraw %}
