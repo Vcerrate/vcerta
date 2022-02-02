@@ -1,0 +1,15 @@
+---
+title: "I FINISHED the Worlds most Valuable Frame (part 2)"
+image: "https:\/\/i.ytimg.com\/vi\/gbLubNa9r4s\/hqdefault.jpg"
+vid_id: "gbLubNa9r4s"
+categories: "Howto-Style"
+tags: ["FINISHED","Worlds","Valuable"]
+date: "2022-02-03T00:43:32+03:00"
+vid_date: "2022-01-31T22:21:34Z"
+duration: "PT14M56S"
+viewcount: "398542"
+likeCount: "49724"
+dislikeCount: ""
+channel: "Bobby Duke Arts"
+---
+{% raw %}Go to <a rel="nofollow" target="blank" href="https://www.ShipStation.com/bobbyduke">https://www.ShipStation.com/bobbyduke</a> to get a 60-day free trial!<br /><br />Check out my NEW MERCH designed by Ten Hundred here!- <a rel="nofollow" target="blank" href="https://www.wewdshop.com">https://www.wewdshop.com</a><br /><br />This video is Part 2, watch part 1 here-  <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=9Ok5SmakCLc&amp;t=143s">https://www.youtube.com/watch?v=9Ok5SmakCLc&amp;t=143s</a> <br /><br />@TenHundred asked me to make an epic frame for one of YouTubes biggest art collaboration projects.  So I made one from wewd and raisin. <br /><br />Here all the other amazing artists who contributed to this beautiful painting:<br />Ten Hundred- <a rel="nofollow" target="blank" href="https://www.youtube.com/c/TenHundred">https://www.youtube.com/c/TenHundred</a><br />SLEW- <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCyPUBwc9IQl2FZZa0_Tn32Q">https://www.youtube.com/channel/UCyPUBwc9IQl2FZZa0_Tn32Q</a><br />DokeTV-  <a rel="nofollow" target="blank" href="https://www.youtube.com/c/DokeTV">https://www.youtube.com/c/DokeTV</a><br />SMOE NOVA- <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCrI-GTzLrfttGYB4bsMLWuA">https://www.youtube.com/channel/UCrI-GTzLrfttGYB4bsMLWuA</a><br />Nerdforge - <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCggHsHce2n3vvbJf_8YKrMA">https://www.youtube.com/channel/UCggHsHce2n3vvbJf_8YKrMA</a><br />Alpay Efe - <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCSAzZRXLCeVYfe5Y5s0YB2Q">https://www.youtube.com/channel/UCSAzZRXLCeVYfe5Y5s0YB2Q</a><br />Jazza- <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCHu2KNu6TtJ0p4hpSW7Yv7Q">https://www.youtube.com/channel/UCHu2KNu6TtJ0p4hpSW7Yv7Q</a><br />Watch all the videos in the series so far!  <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLjvuq1J91QkZpevHWcdlMwFqaMX8fuq3L">https://www.youtube.com/playlist?list=PLjvuq1J91QkZpevHWcdlMwFqaMX8fuq3L</a><br /><br />If you want more Dukey in your life, go follow<br />My Instagram <a rel="nofollow" target="blank" href="https://www.instagram.com/bobbydukearts/">https://www.instagram.com/bobbydukearts/</a><br />and Twitter <a rel="nofollow" target="blank" href="https://twitter.com/bobbydukearts?lang=en">https://twitter.com/bobbydukearts?lang=en</a><br />and Patreon  <a rel="nofollow" target="blank" href="https://www.patreon.com/bobbydukearts">https://www.patreon.com/bobbydukearts</a>{% endraw %}
