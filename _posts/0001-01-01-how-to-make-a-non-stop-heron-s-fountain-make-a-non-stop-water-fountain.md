@@ -1,0 +1,15 @@
+---
+title: "How to Make a Non Stop Heron's Fountain"
+image: "https:\/\/i.ytimg.com\/vi\/K49QOM_B8dA\/hqdefault.jpg"
+vid_id: "K49QOM_B8dA"
+categories: "Howto-Style"
+tags: ["Herons fountain","life hack","water fountain"]
+date: "2022-02-02T08:05:45+03:00"
+vid_date: "2019-11-08T15:04:03Z"
+duration: "PT6M44S"
+viewcount: "12835423"
+likeCount: "272965"
+dislikeCount: ""
+channel: "DaveHax"
+---
+{% raw %}Make a non stop water fountain out of 3 plastic bottles and straws.  This really cool self pouring liquid science trick is a great experiment to try at home. More Science Experiments here: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLQ_T2NppE0PIHhn2xEZGg0Dggq7uMbtMo">https://www.youtube.com/playlist?list=PLQ_T2NppE0PIHhn2xEZGg0Dggq7uMbtMo</a><br /><br />Contribute Subtitles Here:<a rel="nofollow" target="blank" href="http://www.youtube.com/timedtext_video?v=K49QOM_B8dA&amp;ref=share">http://www.youtube.com/timedtext_video?v=K49QOM_B8dA&amp;ref=share</a><br /><br />Latest Videos - <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLQ_T2NppE0PL_MgE6MlzDhfokjsILzj7b">https://www.youtube.com/playlist?list=PLQ_T2NppE0PL_MgE6MlzDhfokjsILzj7b</a><br /><br />Fun Science Projects: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Z50jEi1igNQ&amp;list=PLQ_T2NppE0PIHhn2xEZGg0Dggq7uMbtMo">https://www.youtube.com/watch?v=Z50jEi1igNQ&amp;list=PLQ_T2NppE0PIHhn2xEZGg0Dggq7uMbtMo</a><br /><br />Making SLIME at home: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=bZ1WmeKir78&amp;t=4s&amp;list=PLQ_T2NppE0PJBzfgoRfW1ITnazHRFXpz1&amp;index=1">https://www.youtube.com/watch?v=bZ1WmeKir78&amp;t=4s&amp;list=PLQ_T2NppE0PJBzfgoRfW1ITnazHRFXpz1&amp;index=1</a><br /><br />Food and Cooking Hacks - <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=mbHeddAnrZs&amp;list=PLQ_T2NppE0PJvJeFaoIBp4P0ns8NudGQB">https://www.youtube.com/watch?v=mbHeddAnrZs&amp;list=PLQ_T2NppE0PJvJeFaoIBp4P0ns8NudGQB</a><br /><br />Amazing Life Hacks - <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=uz6rjbw0ZA0&amp;list=PLQ_T2NppE0PKRAqkjpgtVRff46vr1iHaC">https://www.youtube.com/watch?v=uz6rjbw0ZA0&amp;list=PLQ_T2NppE0PKRAqkjpgtVRff46vr1iHaC</a><br /><br />How To Make Fun Things - <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=0ki9Kta8g14&amp;list=PLQ_T2NppE0PI1soHO1bZmTJOGTynkRYHD">https://www.youtube.com/watch?v=0ki9Kta8g14&amp;list=PLQ_T2NppE0PI1soHO1bZmTJOGTynkRYHD</a><br /><br />Subscribe here: <a rel="nofollow" target="blank" href="https://www.youtube.com/subscription_center?add_user=davehax">https://www.youtube.com/subscription_center?add_user=davehax</a><br /><br />Music: Plucky Daisy Kevin MacLeod (incompetech.com)<br />Licensed under Creative Commons: By Attribution 3.0 License<br /><a rel="nofollow" target="blank" href="http://creativecommons.org/licenses/by/3.0/">http://creativecommons.org/licenses/by/3.0/</a>{% endraw %}
