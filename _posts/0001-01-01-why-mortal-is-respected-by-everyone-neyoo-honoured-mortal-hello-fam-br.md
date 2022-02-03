@@ -1,0 +1,15 @@
+---
+title: "Why Mortal is Respected by Everyone? | Neyoo Honoured Mortal"
+image: "https:\/\/i.ytimg.com\/vi\/tGyd_ldkT_8\/hqdefault.jpg"
+vid_id: "tGyd_ldkT_8"
+categories: "Gaming"
+tags: ["soul","s8ul","mavi"]
+date: "2022-02-03T09:06:56+03:00"
+vid_date: "2022-02-01T16:27:42Z"
+duration: "PT58S"
+viewcount: "136596"
+likeCount: "7582"
+dislikeCount: ""
+channel: "Kiwos YT"
+---
+{% raw %}Hello Fam💕<br />Thanks for reaching to my Channel 😊<br /><br />I upload these videos just to Spread Positivity in the Indian Gaming Audience.<br />My dream is that eSports should Rise in India like Foreign Countries.<br />I keep you updated through my Videos<br /><br />I only upload Positive Contents so no need to Spread hate in comments.<br /><br />I use my whole time to search Contents for you People.<br /><br />Just show some Love Back <br />By Liking and Subscribing❤️<br /><br /><br />Keep enjoying the video<br /><br /><br /><br /><br />About Me :<br />I don't want to clickbait or waste your time by watching my content that's why i make as small video as i can.<br />My content will be always pure and legit.<br />And i just want To be Best In Every work I am passionate about<br />Don't want to be second version of someone i want to build my own style<br /><br /><br /><br /><br />* Copyright Disclaimer Under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, commenting, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational or personal use tips the balance in favour of fair use.<br /><br />-This video has no negative impact on the original works (It would actually be positive for them)<br />-This video is also for teaching purposes.<br />-It is not transformative in nature.<br />-I only used bits and pieces of videos to get the point across where necessary.<br /><br />🔴FOLLOW AND CONNECT WITH US : <br /><br />🔘DISCORD :  <a rel="nofollow" target="blank" href="https://discord.io/kiwosyt">https://discord.io/kiwosyt</a><br />📷 INSTAGRAM : <a rel="nofollow" target="blank" href="https://www.instagram.com/kiwos_yt">https://www.instagram.com/kiwos_yt</a><br /> 👍FACEBBOOK : <a rel="nofollow" target="blank" href="https://www.facebook.com/CallMeWag">https://www.facebook.com/CallMeWag</a><br /><br />Mail for Removal of video- brocodeqwos@gmail.com<br /><br /><br />Souce-Neyoo Loco<br /><br />Ignore this Portion 😃#NeyooMortal #NeyooMortalDress<br />#MortalHumble #MortalRespect #MortalisLove #MortalOp #SoulmoRtal<br />#SoulTX #MortalSigmaRule<br />#MortalViper #MortalGiftedViper #Mortal13ProMax<br />#Soul #s8ul #mortal<br />#MortalPOV #MortalArmy #Mavi #Scout #tsmentity #mortal #jonathan #ghatak #MaviMortal #ScoutMavi<br />#SoulIntense #Soulfight <br />#sc0utislive #MaviLive #RegaLive #ViperLive #SoulToday #SoulHighlights #SoulDrop #soulChicken<br />#s8ul #mortallive  #s8ulgaminghouse<br />#Mavi #SoulMavi<br />#s8ul #Jonathan #Neyoo #Spower #Zgod #Clutchgod #Tapatap #JonathanClutch #JonathanToday #Sidop #sidshorts #sidlaugh #sidsmile{% endraw %}
