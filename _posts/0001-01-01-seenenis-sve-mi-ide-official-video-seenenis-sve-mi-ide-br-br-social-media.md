@@ -1,0 +1,15 @@
+---
+title: "SEENENIS - SVE MI IDE (OFFICIAL VIDEO)"
+image: "https:\/\/i.ytimg.com\/vi\/xH0ZwzsI7ms\/hqdefault.jpg"
+vid_id: "xH0ZwzsI7ms"
+categories: "Music"
+tags: ["seenenis","seen enis","seen enis sve mi ide"]
+date: "2022-02-03T17:26:33+03:00"
+vid_date: "2021-12-23T18:00:21Z"
+duration: "PT4M7S"
+viewcount: "406316"
+likeCount: "3042"
+dislikeCount: ""
+channel: "Diamond Records"
+---
+{% raw %}SeenEnis - Sve mi ide<br /><br />► Social Media:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/seenenis">https://www.instagram.com/seenenis</a> <br /><br />Music: Marko J. Kon, Ivan Franović<br />Text: Seen Enis<br />Arrangement: Marko J. Kon, Ivan Franović, Milan Novaković Lane<br />Mix &amp; Master: Marko J. Kon<br />Studio: Diamond Records, Studio 3000<br /><br />Rezija: Vedad Jasarevic<br />DoP: Vedad Jasarevic<br />Color: Goran Todoric<br />Scenario: Seen Enis<br />Sfx: iCode Team<br />Dron: Filip Petronijevic<br />Make up: Natasa Miljkovic<br />Styling: Bane Devic<br />Coreography: Aleksa Raifovic Zilenium Team<br /><br />Manekeni:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/spasojevicsofija">https://www.instagram.com/spasojevicsofija</a> <br /><a rel="nofollow" target="blank" href="https://www.instagram.com/spale_7">https://www.instagram.com/spale_7</a> <br /><br /><br />© SeenEnis <br /><br />Contact for YouTube, Distribution, Product placement, Partnerships<br />E-mail: seenenisofficial@gmail.com <br /><br />All rights reserved<br />© Diamond Records<br /><br />Lyrics:<br /><br />SeenEnis - Sve mi ide<br /><br />[Verse 1]<br />Sve mi ide tako lako <br />Evo lagano ja samo tako blejim ej<br />(Tako blejim ej)<br />Sve mi ide tako lako<br />Bato, beli mi je Aventador SVJ<br />Beli interijer<br /><br />[Pre-Chorus]<br />A nju lozi<br />Led na mojoj kozi<br />Kolko lepo trosim<br />Ja na sve zbog nje<br />A nju lozi <br />Sve to sto ja vozim<br />Sex koza na kozi<br />Kad do zore je<br /><br />[Chorus]<br />2x<br />A nju lozi brzina Paganija<br />Trosim ko nikada ranije<br />Zovi me na lose stvari<br />Stobom hocu sve da radim<br /><br />[Verse 2]<br />Aueaue, bebi wegen dir gehts mir oke<br />Bebi you got the Fendi Flame<br />Bebi nehmen wir 'ne Flasche Rose<br />Wir sind so away<br /><br />Für denn moment bist du alles was ich hatte<br />Big body gjal würde alles mit dier machen<br />Tanz mit dem Teufel wenn ich deine Hüfte packe<br />Ich bin ein Schatten<br />Unter einer Maske<br /><br />[Pre-Chorus]<br />A nju lozi<br />Led na mojoj kozi<br />Kolko lepo trosim<br />Ja na sve zbog nje<br />A nju lozi <br />Sve to sto ja vozim<br />Sex koza na kozi<br />Kad do zore je<br /><br />[Chorus]<br />2x<br />A nju lozi brzina Paganija<br />Trosim ko nikada ranije<br />Zovi me na lose stvari<br />Stobom hocu sve da radim<br /><br />[Outro]<br />Odlazim<br />I ne vracam se ja<br />I ostani<br />Da mi malo snage das<br />Stobom ja cu da dotaknem dno<br />Makar bilo je samo za noc<br />Oh jedina<br />I Moram da<br />Te prebolim nekada<br />Oh malena{% endraw %}
