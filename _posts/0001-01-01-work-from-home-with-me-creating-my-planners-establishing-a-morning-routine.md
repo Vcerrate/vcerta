@@ -1,0 +1,15 @@
+---
+title: "Work from Home with Me: creating my planners, establishing a morning routine, & work flows"
+image: "https:\/\/i.ytimg.com\/vi\/N-l1DGybRYM\/hqdefault.jpg"
+vid_id: "N-l1DGybRYM"
+categories: "People-Blogs"
+tags: ["work from home","work with me","clean with me"]
+date: "2022-02-03T10:19:51+03:00"
+vid_date: "2022-02-02T14:49:46Z"
+duration: "PT36M52S"
+viewcount: "7156"
+likeCount: "298"
+dislikeCount: ""
+channel: "Tori DeSimone"
+---
+{% raw %}Thank you Hydrant for sponsoring this video! Link here: <a rel="nofollow" target="blank" href="https://go.magik.ly/ml/1exr4/">https://go.magik.ly/ml/1exr4/</a><br />Use Code: Tori20<br />Good on any one-time purchase of $30 or more!!<br /><a rel="nofollow" target="blank" href="https://www.drinkhydrant.com/discount/Tori20">https://www.drinkhydrant.com/discount/Tori20</a><br />This code will automatically apply the 20% off at checkout<br />#MakeItHappenWithHydrant @drinkhydrant<br /><br />Get Hydrant Here: <a rel="nofollow" target="blank" href="https://go.magik.ly/ml/1euem/">https://go.magik.ly/ml/1euem/</a><br /><br />Thank you guys for coming along with me as I work home from this past week! I hope you enjoyed :)<br /><br />Subscribe here!: <a rel="nofollow" target="blank" href="http://bit.do/tQVe">http://bit.do/tQVe</a><br /><br />Links:<br />MONDAY<br />Leggings: <a rel="nofollow" target="blank" href="https://go.magik.ly/ml/1eyln/">https://go.magik.ly/ml/1eyln/</a><br />Sports Bra: (sold out but this is my current fav) <a rel="nofollow" target="blank" href="https://go.magik.ly/ml/1eylo/">https://go.magik.ly/ml/1eylo/</a><br />Sneakers: <a rel="nofollow" target="blank" href="https://go.magik.ly/ml/1eylh/">https://go.magik.ly/ml/1eylh/</a><br />Breville Espresso Machine: <a rel="nofollow" target="blank" href="https://go.magik.ly/ml/1eylq/">https://go.magik.ly/ml/1eylq/</a><br />Leggings for Spin: (discontinued but these are the BEST leggings ever, and they're gate kept. You're welcome!!) <a rel="nofollow" target="blank" href="https://go.magik.ly/ml/1d2cv/">https://go.magik.ly/ml/1d2cv/</a><br />TUESDAY<br />Free People Biker Shorts (soooo comfy): <a rel="nofollow" target="blank" href="https://go.magik.ly/ml/1eylw/">https://go.magik.ly/ml/1eylw/</a><br />THURSDAY<br /><br />Spin with me!! strideathome.com<br />Take my spin classes, virtually on strideathome.com anywhere in the world, anytime. $35/mo or rent any video of mine for $5! Use code TORI to get your first month for $10!<br /><br />Follow me!<br />Instagram: @toristerling_<br />Stride Instagram: @stridespinandfitness_<br />Stride Sea Isle: @strideseaisle<br />Stride at Home: strideathome.com<br />Spotify: toristerling<br /><br />Listen to my podcast!<br />Manifest with Tori DeSimone - stream on Spotify &amp; Apple Podcasts. New episodes every Monday. <br /><br />Business emails: toristerlingpr@gmail.com<br /><br />FTC Disclaimer: This video is sponsored by Hydrant. Any product links posted I do make a small percentage off of.<br /><br />With love, Tori{% endraw %}
