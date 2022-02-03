@@ -1,0 +1,15 @@
+---
+title: "FEB 02, 2022, Latest AOR & ECOPR Timelines, TR to PR Pathway Update and Latest News"
+image: "https:\/\/i.ytimg.com\/vi\/qc_caYWrJoI\/hqdefault.jpg"
+vid_id: "qc_caYWrJoI"
+categories: "Howto-Style"
+tags: ["#renus lifestyle in canada","tr to pr pathway update","AOR Update"]
+date: "2022-02-03T06:08:52+03:00"
+vid_date: "2022-02-03T01:06:44Z"
+duration: "PT10M14S"
+viewcount: "431"
+likeCount: "29"
+dislikeCount: ""
+channel: "The Canadian Dream By Urvi"
+---
+{% raw %}As promised, here is latest TR to PR pathway Updates for you as of February 02, 2022. <br /><br />Book one on one with Urvi -15 Min - <a rel="nofollow" target="blank" href="https://calendly.com/urvicanadiandreamz/oneonone">https://calendly.com/urvicanadiandreamz/oneonone</a><br /><br />Urvi Community - <a rel="nofollow" target="blank" href="https://www.youtube.com/c/TheCanadianDreamByUrvi/community">https://www.youtube.com/c/TheCanadianDreamByUrvi/community</a><br /><br />Urvi Shorts - <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=q8f8pUe1-Pw&amp;list=UUSHHF8ZI5Fd2KBlM5POZA5LBg">https://www.youtube.com/watch?v=q8f8pUe1-Pw&amp;list=UUSHHF8ZI5Fd2KBlM5POZA5LBg</a><br /><br />Latest AOR and eCOPR timelines. <br /><br />Lets look at all the timelines so far, this will give you confidence that you are one step closer to your Permanent Residency<br /><br />Please continue supporting my channel by subscribing, liking and posting comments.<br />Below are the News Items for today:<br />1. Latest January 2022 AOR Updates and Timelines<br />2.  IG Stream Overview<br />3. AOR Roll Outs Overview<br />6. PR CARD Rollout Timeline<br />7. New Open work permit Timeline<br />8.Steady e-COPR Roll-outs<br />9. New January eCOPR timelines<br /><br />Apply SIN Online - <a rel="nofollow" target="blank" href="https://youtu.be/vE3tJfDTK1s">https://youtu.be/vE3tJfDTK1s</a><br /><br />EASY Bridging WORK PERMIT Article : <a rel="nofollow" target="blank" href="https://www.cicnews.com/2021/11/it-is-now-easier-to-get-a-bridging-open-work-permit-in-canada-1119519.html#gs.fatj5a">https://www.cicnews.com/2021/11/it-is-now-easier-to-get-a-bridging-open-work-permit-in-canada-1119519.html#gs.fatj5a</a><br /><br /><br />Details on TR to PR Refusals - <br /><a rel="nofollow" target="blank" href="https://youtu.be/26MZwfPICwc">https://youtu.be/26MZwfPICwc</a><br /><a rel="nofollow" target="blank" href="https://youtu.be/L3fFW0Jlrus">https://youtu.be/L3fFW0Jlrus</a><br /><br />Detailed GCMS Notes Video: <a rel="nofollow" target="blank" href="https://youtu.be/gHQ00v9netc">https://youtu.be/gHQ00v9netc</a><br /><br />Have you linked you Tr to PR Pathway application to the GC Key Account? This step by step video will help you link it: <a rel="nofollow" target="blank" href="https://youtu.be/uZCBW2j6iS0">https://youtu.be/uZCBW2j6iS0</a><br /><br />New Open Work Permit application Step by step, Check out this video : <a rel="nofollow" target="blank" href="https://youtu.be/ljIkornw5Mg">https://youtu.be/ljIkornw5Mg</a><br /><br />#TRTOPRPathway #ExpressEntry #InternationalGraduateStream{% endraw %}
