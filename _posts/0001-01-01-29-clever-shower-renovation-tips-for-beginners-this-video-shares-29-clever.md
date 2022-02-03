@@ -1,0 +1,15 @@
+---
+title: "29 Clever Shower Renovation Tips for Beginners"
+image: "https:\/\/i.ytimg.com\/vi\/IjrVFpfU2-w\/hqdefault.jpg"
+vid_id: "IjrVFpfU2-w"
+categories: "Howto-Style"
+tags: ["Clever","Shower","Renovation"]
+date: "2022-02-04T01:21:47+03:00"
+vid_date: "2020-10-30T00:00:10Z"
+duration: "PT7M29S"
+viewcount: "541978"
+likeCount: "3832"
+dislikeCount: ""
+channel: "Home Repair Tutor"
+---
+{% raw %}This video shares 29 clever shower renovation tips for beginners...for more home improvement tips visit <a rel="nofollow" target="blank" href="https://www.homerepairtutor.com/">https://www.homerepairtutor.com/</a><br /><br />#showerrenovation #bathroomremodel #homerepairtutor  <br /><br />0:00 How to add steel plates to floor joists<br />0:09 Apply Liquid Nails to floor joists<br />0:14 How to mark the location of floor joists with chalk line<br />0:20 How to use 8d nails to secure plywood to floor joists<br />0:27 How to make holes through plywood floor<br />1:02 How to remove bathroom subfloors for curbless showers<br />1:08 How to inspect floor joists for curbless showers<br />1:11 How to recess wood subfloors for curbless showers<br />1:40 How to install the Wedi Fundo Ligno shower tray over wood<br />1:56 How to run heat cables inside a Schluter curbless shower<br />2:14 How to waterproof a Schluter curbless shower  <br />2:57 How to build a shower bench with Wedi building panels<br />3:35 How to tile a Schluter curbless shower tray<br />4:36 How to install a Wedi shower niche<br />4:59 How to install Schluter shower niches<br />5:59 How to tile a shower with 12x24 tile<br />6:20 How to install a glass shower shelf<br />6:47 How to install glass mosaics on shower walls<br /><br />These supplies were used in our video:<br /><br />Steel plates for plumbing<br />Mapei Kerabond/Keralastic Thin-Set <br />Wedi Fundo Ligno Curbless Shower Tray<br />Schluter DITRA-HEAT Cable System <br />Schluter DITRA-HEAT GFCI Thermostat<br />Wedi Prefab Shower Niche<br />Schluter Prefab Shower Niches<br />DITRA for Glass Mosaic<br /><br /><br />Some product links may be Amazon affiliate links. As an Amazon Associate we earn from qualifying purchases at no additional cost to you. <br /><br />Want our newest DIY videos? Subscribe to our channel and hit the notification bell to see every upload. We upload new videos every Saturday.<br /><br />Disclaimer:<br />Videos produced by Home Repair Tutor are provided for informational, educational, &amp; entertainment purposes only. Some of these projects, materials, and techniques may not be appropriate for all ages or skill levels. Home Repair Tutor does not make any claims of the safety of the projects, techniques, or resources listed on this site and will not take responsibility of what you do with the information provided by this site. Viewers must be aware by doing DIY projects on their homes they are doing it at their own risk and Home Repair Tutor cannot be held liable if they cause any damage to their homes. Home Repair Tutor cannot claim liability with all applicable laws, rules, codes and regulations for a project.{% endraw %}
