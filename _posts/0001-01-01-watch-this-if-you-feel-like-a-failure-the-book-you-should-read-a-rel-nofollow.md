@@ -1,0 +1,15 @@
+---
+title: "watch this if you feel like a failure"
+image: "https:\/\/i.ytimg.com\/vi\/5T3GY8PSiSI\/hqdefault.jpg"
+vid_id: "5T3GY8PSiSI"
+categories: "Howto-Style"
+tags: ["feeling behind in life","behind in life","behind in life at 30"]
+date: "2022-02-03T16:55:11+03:00"
+vid_date: "2022-01-01T17:11:43Z"
+duration: "PT13M47S"
+viewcount: "320915"
+likeCount: "31873"
+dislikeCount: ""
+channel: "Ruri Ohama"
+---
+{% raw %}📚 The book you SHOULD read: <a rel="nofollow" target="blank" href="https://amzn.to/3qEbJGW">https://amzn.to/3qEbJGW</a><br /><br />Who am I?👩🏻‍⚕️🍙<br />I'm a first-year med student in Turkey. <br />If you are interested in which ethnicity do I have, I'm mixed. (Japanese-Turkish)<br />I was born in Japan but I grew up in Turkey. (But I visit Japan every single year)<br />Both of these languages are my mother language.<br />I’m polyglot and I can speak 4 languages fluently which are Japanese, Turkish, German, and English. If you don’t think that I’m a polyglot check Cambridge or Oxford Dictionary.<br /> Poly means multiple and glot mean tongue so yes I am :)<br />I will be planning to upload lots of productivity-related videos, so stay tuned if you like those types of videos.<br />If you have any questions, comment down below.<br />Love you,<br />Xoxo<br /><br />🖥Join Skillshare Today and Get a Month of Premium for Free!<br /><a rel="nofollow" target="blank" href="https://skillshare.eqcm.net/c/2973934/608192/4650">https://skillshare.eqcm.net/c/2973934/608192/4650</a><br /><br />⌨️IQUNIX (Where my keyboard is from): <a rel="nofollow" target="blank" href="https://iqunix.store/ruriohama">https://iqunix.store/ruriohama</a><br />My discount code (5% off): ruriohama<br />My Keyboard: <a rel="nofollow" target="blank" href="https://iqunix.store/collections/f96/products/f96-wireless-mechanical-keyboard?variant=32203896062012">https://iqunix.store/collections/f96/products/f96-wireless-mechanical-keyboard?variant=32203896062012</a><br /><br />🧛🏻‍♀️Download Notion from this link for free: <a rel="nofollow" target="blank" href="http://ntn.so/rurinotion">http://ntn.so/rurinotion</a><br /><br />📸Instagram :<br />Ruri(@ruriohama) <br /><a rel="nofollow" target="blank" href="https://www.instagram.com/ruriohama/">https://www.instagram.com/ruriohama/</a><br /><br />👚Shop the sweater I'm wearing: <a rel="nofollow" target="blank" href="https://amesankoh.de/ruriohama">https://amesankoh.de/ruriohama</a><br /><br />🎵TikTok:<br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@ruriohama">https://www.tiktok.com/@ruriohama</a><br /><br />🐥Twitter:<br /><a rel="nofollow" target="blank" href="https://twitter.com/ohamaruri?lang=en">https://twitter.com/ohamaruri?lang=en</a><br /><br />🎧Where I get my copyright-free music from?<br /><a rel="nofollow" target="blank" href="https://www.epidemicsound.com/referral/j70vvx/">https://www.epidemicsound.com/referral/j70vvx/</a><br /><br />📷My Youtube Gear:<br /><a rel="nofollow" target="blank" href="https://kit.co/ruriohama/my-youtube-kit">https://kit.co/ruriohama/my-youtube-kit</a>{% endraw %}
