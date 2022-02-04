@@ -1,0 +1,15 @@
+---
+title: "i read 5 of the saddest books to see if they would make me cry…🥲 *no spoilers*"
+image: "https:\/\/i.ytimg.com\/vi\/vEGOhzf6FWA\/hqdefault.jpg"
+vid_id: "vEGOhzf6FWA"
+categories: "People-Blogs"
+tags: ["booktube","books to read","book recommendations"]
+date: "2022-02-05T02:26:25+03:00"
+vid_date: "2022-02-04T18:31:07Z"
+duration: "PT45M15S"
+viewcount: "10280"
+likeCount: "1668"
+dislikeCount: ""
+channel: "A Clockwork Reader"
+---
+{% raw %}the video that took me 6 months to fully recover from, edit, and upload is finally here! I hope you enjoy watching me sob my eyes out 🥲<br /><br /><br />✨ A Clockwork Reader Reading Journal is out now!: <br />- penguin random house: <a rel="nofollow" target="blank" href="https://www.penguinrandomhouse.com/books/673231/a-clockwork-reader-reading-journal-by-hannah-azerang/">https://www.penguinrandomhouse.com/books/673231/a-clockwork-reader-reading-journal-by-hannah-azerang/</a><br />- barnes and noble: <a rel="nofollow" target="blank" href="https://www.barnesandnoble.com/w/a-clockwork-reader-reading-journal-hannah-azerang/1139150540?ean=9780744040524">https://www.barnesandnoble.com/w/a-clockwork-reader-reading-journal-hannah-azerang/1139150540?ean=9780744040524</a><br />- amazon: <a rel="nofollow" target="blank" href="https://www.amazon.com/gp/product/0744040523?tag=randohouseinc7986-20">https://www.amazon.com/gp/product/0744040523?tag=randohouseinc7986-20</a><br />- book depository (international orders): <a rel="nofollow" target="blank" href="https://www.bookdepository.com/Clockwork-Reader-Reading-Journal-Hannah-Azerang/9780744040524?ref=grid-view&amp;qid=1626881654900&amp;sr=1-1">https://www.bookdepository.com/Clockwork-Reader-Reading-Journal-Hannah-Azerang/9780744040524?ref=grid-view&amp;qid=1626881654900&amp;sr=1-1</a><br /><br />✨ my necklace: <a rel="nofollow" target="blank" href="https://www.analuisa.com/hannah-necklace">https://www.analuisa.com/hannah-necklace</a><br /><br /><br />📚 timestamps: <br />- intro: 0:00<br />- the song of achilles: 1:45<br />- normal people: 6:58<br />- a man called ove: 13:03<br />- a little life: 19:30<br />if you're even slightly considering reading this book, read the tw please: <a rel="nofollow" target="blank" href="https://www.booktriggerwarnings.com/index.php?title=A_Little_Life_by_Hanya_Yanagihara">https://www.booktriggerwarnings.com/index.php?title=A_Little_Life_by_Hanya_Yanagihara</a><br />- they both die at the end: 38:05<br /><br /><br />s o c i a l :<br /><br />☁️ instagram: @clockwork_reads<br />☁️ tiktok: @clockwork_reads<br />☁️ twitter: @clockwork_reads​​​​<br />☁️ goodreads: <a rel="nofollow" target="blank" href="https://www.goodreads.com/user/show/38077205-hannah">https://www.goodreads.com/user/show/38077205-hannah</a><br />☁️ tumblr: <a rel="nofollow" target="blank" href="https://aclockworkreader.tumblr.com/​">https://aclockworkreader.tumblr.com/​</a><br /><br />business inquires: aclockworkreader@gmail.com<br /><br /><br /><br />thank you so much for watching 🌻{% endraw %}
