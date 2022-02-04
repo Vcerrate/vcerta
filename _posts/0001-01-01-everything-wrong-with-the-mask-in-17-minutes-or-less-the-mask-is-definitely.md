@@ -1,0 +1,15 @@
+---
+title: "Everything Wrong With The Mask In 17 Minutes Or Less"
+image: "https:\/\/i.ytimg.com\/vi\/U197LMxdrxI\/hqdefault.jpg"
+vid_id: "U197LMxdrxI"
+categories: "Film-Animation"
+tags: ["wave jockey job","cinemasins","cinema sins"]
+date: "2022-02-04T04:44:24+03:00"
+vid_date: "2022-02-01T16:12:07Z"
+duration: "PT18M16S"
+viewcount: "332873"
+likeCount: "16455"
+dislikeCount: ""
+channel: "CinemaSins"
+---
+{% raw %}The Mask is definitely a Jim Carrey movie. It has its fans, but I'm not sure why. It's full of sinful stuff. <br /><br />Thursday: recent-ish disaster sins.<br /><br />Remember, no movie is without sin. Which movie's sins should we watch next?  <br /><br />•CinemaSins website: <a rel="nofollow" target="blank" href="https://www.cinemasins.com">https://www.cinemasins.com</a> • <br /><br />•Channels•<br />--TVSins: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCe4bOvc1mYxFcQ5xPb9Zmow">https://www.youtube.com/channel/UCe4bOvc1mYxFcQ5xPb9Zmow</a><br />--CommercialSins: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UChg9sWwaJ2TYqpaYqerY5BA">https://www.youtube.com/channel/UChg9sWwaJ2TYqpaYqerY5BA</a><br /><br />•Members get MORE! ALL videos early, bonus videos and podcasts, merch discounts and MORE on Patreon!• <a rel="nofollow" target="blank" href="https://www.patreon.com/CinemaSins">https://www.patreon.com/CinemaSins</a><br /><br />•Merch!• <a rel="nofollow" target="blank" href="https://teespring.com/stores/cinemasins">https://teespring.com/stores/cinemasins</a> <br /><br />•Podcasts•  <br />--SinCast- A weekly chat with Jeremy and Chris about their love and hatred for movies and entertainment. <a rel="nofollow" target="blank" href="https://cinemasins.libsyn.com/">https://cinemasins.libsyn.com/</a><br />--Behind the Sins: CinemaSins writers Aaron, Jonathan and Deneé, give a behind the scenes look at what it takes to release the previous week's videos across the CinemaSins brand. <a rel="nofollow" target="blank" href="https://redcircle.com/shows/behindthesins">https://redcircle.com/shows/behindthesins</a><br /><br />•Writers Social•<br />Jeremy: <a rel="nofollow" target="blank" href="https://twitter.com/cinemasins">https://twitter.com/cinemasins</a><br />Chris: <a rel="nofollow" target="blank" href="https://www.facebook.com/SinCastCinemaSins">https://www.facebook.com/SinCastCinemaSins</a><br />Aaron: <a rel="nofollow" target="blank" href="https://twitter.com/aarondicer">https://twitter.com/aarondicer</a><br />Jonathan: <a rel="nofollow" target="blank" href="https://twitter.com/samloomis13">https://twitter.com/samloomis13</a><br />Deneé <a rel="nofollow" target="blank" href="https://twitter.com/DeneeSays">https://twitter.com/DeneeSays</a><br /><br />•Discord: Request on Facebook or Reddit!<br />•Reddit: <a rel="nofollow" target="blank" href="https://www.reddit.com/r/CinemaSins/">https://www.reddit.com/r/CinemaSins/</a><br />•Jeremy's Book: <a rel="nofollow" target="blank" href="https://cinemasins.com/book">https://cinemasins.com/book</a>{% endraw %}
