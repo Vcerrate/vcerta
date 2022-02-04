@@ -1,0 +1,15 @@
+---
+title: "GG Weekend Watch | Saturday, February 5 | Kate Tracey, Daryl Carter, Andrew Mount & Rory Delargy"
+image: "https:\/\/i.ytimg.com\/vi\/ptHXAjqaigo\/hqdefault.jpg"
+vid_id: "ptHXAjqaigo"
+categories: "Sports"
+tags: ["Weekend","Watch","Saturday,"]
+date: "2022-02-05T00:03:21+03:00"
+vid_date: "2022-02-03T21:30:42Z"
+duration: "PT1H17M59S"
+viewcount: "1530"
+likeCount: "48"
+dislikeCount: ""
+channel: "GG.CO.UK"
+---
+{% raw %}This Saturday marks the beginning of a bumper weekend for racing. Sandown, Musselburgh and Wetherby come under the spotlight on this week’s Weekend Watch, as well as Leopardstown in Ireland as they host the first day of the Dublin Racing Festival. With so much brilliant racing on offer, why not check out SBK’s excellent new customer offer of money back in cash up to £20: <a rel="nofollow" target="blank" href="http://bit.ly/RT-SBK_20">http://bit.ly/RT-SBK_20</a><br /><br />The usual trio of Kate Tracey, Daryl Carter and Andrew Mount have a special guest with them this week as Rory Delargy makes his Weekend Watch debut! This really is a week not to miss this fine and knowledgeable quartet do what they do best and attempt to fill your pockets over the weekend.<br /><br />Weekend Best Bets<br />Rory Delargy: Ben Siegel (1.35 Leopardstown)<br />Kate Tracey: Anna Bunina (2.40 Musselburgh)<br />Daryl Carter: The Wolf (3.45 Musselburgh)<br />Andrew Mount: Good Effort (4:00 Lingfield)<br /><br /><br />Daryl Carter<br />Dolos (1.15 Sandown)<br />Vauban (1.35 Leopardstown)<br />Song For Someone (1.50 Sandown)<br />Calipso Collonges (2.05 Musselburgh)<br />Saint Palais (2.30 Wetherby)<br />Glory And Honour (2.40 Musselburgh)<br />Dans Le Vent (2.55 Sandown)<br />Cilaos Emery (3.15 Leopardstown)<br />Kapcorse (3.30 Sandown)<br />A Wave Of The Sea (3.50 Leopardstown)<br /><br />Andrew Mount<br />Frero Banbou (1.15 Sandown)<br />Fil Dor (1.35 Leopardstown)<br />Song For Someone (1.50 Sandown)<br />L’Homme Presse (2.20 Sandown)<br />Saint Palais (2.30 Wetherby)<br />Glory And Honour (2.40 Musselburgh)<br />Emmpressive Lady (2.55 Sandown)<br />Deise Aba (3.30 Sandown)<br />The Wolf (3.45 Musselburgh)<br />Step Back (3.45 Musselburgh)<br /><br />Rory Delargy<br />Rikoboy (1.15 Sandown)<br />Global Citizen (1.50 Sandown)<br />Glen Forsa (2.05 Musselburgh)<br />L’Homme Presse (2.20 Sandown)<br />Ahoy Senor (2.30 Wetherby)<br />Highly Prized (2.40 Musselburgh)<br />Green Book (2.55 Sandown)<br />Minella Indo (3.15 Leopardstown)<br />Undersupervision (3.30 Sandown)<br />Step Back (3.45 Musselburgh)<br /><br />--------------------<br /><br />18+ Gamble responsibly <a rel="nofollow" target="blank" href="https://begambleaware.org">https://begambleaware.org</a><br /><br />Website: <a rel="nofollow" target="blank" href="https://gg.co.uk">https://gg.co.uk</a><br /><br />YouTube: <a rel="nofollow" target="blank" href="http://bit.ly/2Ntm4Do">http://bit.ly/2Ntm4Do</a><br /><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/ggcouk">https://twitter.com/ggcouk</a>{% endraw %}
