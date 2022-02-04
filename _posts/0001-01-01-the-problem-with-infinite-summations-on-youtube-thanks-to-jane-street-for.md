@@ -1,0 +1,15 @@
+---
+title: "The Problem With Infinite Summations On YouTube"
+image: "https:\/\/i.ytimg.com\/vi\/3cNdM7W0VlQ\/hqdefault.jpg"
+vid_id: "3cNdM7W0VlQ"
+categories: "Entertainment"
+tags: ["maths","math","mathematics"]
+date: "2022-02-04T21:49:09+03:00"
+vid_date: "2022-02-03T22:43:46Z"
+duration: "PT22M1S"
+viewcount: "133617"
+likeCount: "11837"
+dislikeCount: ""
+channel: "Stand-up Maths"
+---
+{% raw %}Thanks to Jane Street for sponsoring this video! Head on over to <a rel="nofollow" target="blank" href="https://www.janestreet.com/join-jane-street/our-programs/">https://www.janestreet.com/join-jane-street/our-programs/</a> to see their programs.<br /><br />Here is Maths Fest! Live from the Royal Institution on Wednesday 9 February 2022, you can watch it anywhere in the world for up to a month after. Details: <a rel="nofollow" target="blank" href="https://maths-fest.com/livestream/">https://maths-fest.com/livestream/</a><br /><br />And if you missed the 2022 shows, we'll be doing more every year. <a rel="nofollow" target="blank" href="http://maths-fest.com/">http://maths-fest.com/</a><br /><br />Check out Danny Gonzalez's video &quot;The Problem With Huge Giveaways On YouTube&quot; where de does actually 'give away a Tesla'. The mathy bit with the whiteboard starts at 16:56: <a rel="nofollow" target="blank" href="https://youtu.be/w_6HHWCdl7w?t=1016">https://youtu.be/w_6HHWCdl7w?t=1016</a><br /><br />And here is his whole gosh darn channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/Danny100">https://www.youtube.com/Danny100</a><br /><br />Cheers to my Patreon supporters who, and this is completely true, 0.3% of which are named &quot;Greg&quot;. But whatever your name, you can also help support and shape the videos I make! <a rel="nofollow" target="blank" href="https://www.patreon.com/standupmaths">https://www.patreon.com/standupmaths</a><br /><br />CORRECTIONS<br />- When I give the convergence range 0 - r - 1 at 17:53 it actually could be -1 - r - 1. Spotted by Dennis R.<br />- Let me know if you spot any more mistakes.<br /><br />Editing under duress by Alex Genn-Bash<br />Maths by Matt Parker<br />Music by Howard Carter<br />&quot;Music&quot; by Howard Carter and Matt Parker<br />Design by Simon Wright and Adam Robinson<br /><br />MATT PARKER: Stand-up Mathematician<br />Website: <a rel="nofollow" target="blank" href="http://standupmaths.com/">http://standupmaths.com/</a><br />US book: <a rel="nofollow" target="blank" href="https://www.penguinrandomhouse.com/books/610964/humble-pi-by-matt-parker/">https://www.penguinrandomhouse.com/books/610964/humble-pi-by-matt-parker/</a><br />UK book: <a rel="nofollow" target="blank" href="https://mathsgear.co.uk/collections/books/products/humble-pi-signed-paperback">https://mathsgear.co.uk/collections/books/products/humble-pi-signed-paperback</a><br /><br /><br />WHY DO I CALL MY FANS MATH?<br />Danny calls his &quot;Greg&quot; and I thought it would be funny. And all you have to do to join is hit subscribe and turn on notifications.<br /><br />#mattparker<br />#dannygonzalez{% endraw %}
