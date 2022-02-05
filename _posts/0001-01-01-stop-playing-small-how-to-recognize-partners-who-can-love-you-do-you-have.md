@@ -1,0 +1,15 @@
+---
+title: "Stop Playing Small: How to Recognize Partners Who Can Love You"
+image: "https:\/\/i.ytimg.com\/vi\/lctw9EpepXs\/hqdefault.jpg"
+vid_id: "lctw9EpepXs"
+categories: "People-Blogs"
+tags: ["Playing","Small:","Recognize"]
+date: "2022-02-05T11:04:22+03:00"
+vid_date: "2022-02-02T22:52:01Z"
+duration: "PT30M29S"
+viewcount: "31544"
+likeCount: "1916"
+dislikeCount: ""
+channel: "Crappy Childhood Fairy"
+---
+{% raw %}Do You Have CPTSD? Free Tools: <a rel="nofollow" target="blank" href="http://bit.ly/2vwqSRY">http://bit.ly/2vwqSRY</a><br />***<br />People who were traumatized as children often grow up to either avoid relationships, or to choose unavailable people who not only leave them unfulfilled, but blocks them from meeting appropriate, available people who might add happiness to their lives. In this video I respond to a letter from a woman who has never experienced more than fleeting relationships, and knows that to find love, she'll have to choose differently. But how?<br />***<br />Best Online Course for Beginners:<br />HEALING CHILDHOOD PTSD<br /> <a rel="nofollow" target="blank" href="http://bit.ly/39NxUBo">http://bit.ly/39NxUBo</a><br /><br />Change Trauma-Driven Dating Patterns<br />DATING &amp; RELATIONSHIPS COURSE<br /><a rel="nofollow" target="blank" href="http://bit.ly/39sfsgZ">http://bit.ly/39sfsgZ</a><br /><br />Access ALL My Courses<br />BECOME A MEMBER<br /><a rel="nofollow" target="blank" href="http://bit.ly/2rukHvh">http://bit.ly/2rukHvh</a><br /><br />Free Online Course, Calming Techniques<br />THE DAILY PRACTICE<br /><a rel="nofollow" target="blank" href="http://bit.ly/3608opl">http://bit.ly/3608opl</a><br /><br />Heal the Core Symptom of Childhood Trauma<br />DYSREGULATION BOOTCAMP<br /><a rel="nofollow" target="blank" href="https://bit.ly/3t5vPtN">https://bit.ly/3t5vPtN</a><br /><br />Heal Your Capacity to Connect with Others<br />CONNECTION BOOTCAMP<br /><a rel="nofollow" target="blank" href="https://bit.ly/3vCryih">https://bit.ly/3vCryih</a><br /><br />COACHING/WEBSITE/COURSES <br />Find links to Crappy Childhood Fairy Programs here:<br /><a rel="nofollow" target="blank" href="https://bit.ly/35C0vcu">https://bit.ly/35C0vcu</a><br /><br />Contact Anna and Her Team: <br />    hello@crappychildhoodfairy.com<br /><br />PARTNER PROGRAMS <br />  (I receive commissions on referrals &amp; recommend services I know and trust.)<br />  <br />    NEED ONLINE THERAPY?<br />     *BetterHelp* can connect you with a licensed, online therapist.<br />     <a rel="nofollow" target="blank" href="https://betterhelp.com/CCF">https://betterhelp.com/CCF</a><br /><br />    NEED HEALING FOR  OVEREATING?<br />      Here's the program I follow:<br />      <a rel="nofollow" target="blank" href="http://tuneclick.brightlineeating.com/aff_c?offer_id=5&amp;aff_id=1117">http://tuneclick.brightlineeating.com/aff_c?offer_id=5&amp;aff_id=1117</a><br /><br />    Neurostimulation patches that support energy and focus:<br />      <a rel="nofollow" target="blank" href="https://feelzing.com/ZbbIIoQDZOPPz">https://feelzing.com/ZbbIIoQDZOPPz</a><br />      Use coupon code ANNARUNKLE for 15% off{% endraw %}
