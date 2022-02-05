@@ -1,0 +1,15 @@
+---
+title: "Nikon Z9. Bird Photography Autofocus. I finally see what I've been missing!"
+image: "https:\/\/i.ytimg.com\/vi\/FOXM_gQF8Bc\/hqdefault.jpg"
+vid_id: "FOXM_gQF8Bc"
+categories: "People-Blogs"
+tags: ["nikon z","z9 review","nikon z9 af"]
+date: "2022-02-05T08:21:10+03:00"
+vid_date: "2022-02-04T15:00:09Z"
+duration: "PT13M10S"
+viewcount: "9527"
+likeCount: "1421"
+dislikeCount: ""
+channel: "Bayou Josh"
+---
+{% raw %}How well does the Z9 perform when focusing on birds. I don't really know what I was expecting but my expectations were....well, you'll have to watch and see. <br /><br />Photographed with the 500pf and Nikon Z9.<br /><br />#NikonZ9 #Nikon #birdphotography<br /><br />Please remember to like and subscribe. <br /><br />Here is a list of the equipment I use. <br /><br />Nikon 500mm PF <a rel="nofollow" target="blank" href="https://amzn.to/3GwTfys">https://amzn.to/3GwTfys</a><br />Nikon z mount 105mm 2.8 MC  <a rel="nofollow" target="blank" href="https://amzn.to/3ye0M2b">https://amzn.to/3ye0M2b</a><br />F-Stop Backpack  <a rel="nofollow" target="blank" href="https://amzn.to/2Wykvuv">https://amzn.to/2Wykvuv</a><br />Drone DJI Air 2S  <a rel="nofollow" target="blank" href="https://amzn.to/3jnSwXJ">https://amzn.to/3jnSwXJ</a><br />Nikon Z6II  <a rel="nofollow" target="blank" href="https://amzn.to/2SntkFK">https://amzn.to/2SntkFK</a><br />Nikon Z6  <a rel="nofollow" target="blank" href="https://amzn.to/3wy1IgC">https://amzn.to/3wy1IgC</a><br />K&amp;F Concept Variable ND <a rel="nofollow" target="blank" href="https://amzn.to/3gXMmf6">https://amzn.to/3gXMmf6</a><br />Wimberley gimbal  <a rel="nofollow" target="blank" href="https://amzn.to/3s2ABqE">https://amzn.to/3s2ABqE</a><br />Tripod Benro Mach 3  <a rel="nofollow" target="blank" href="https://amzn.to/3uobYWE">https://amzn.to/3uobYWE</a><br />Memory cards xqd  <a rel="nofollow" target="blank" href="https://amzn.to/3uygzG7">https://amzn.to/3uygzG7</a><br />Rode video video Mic NTG. <a rel="nofollow" target="blank" href="https://amzn.to/31R2bzm">https://amzn.to/31R2bzm</a><br />Nikon 20mm 1.8. <a rel="nofollow" target="blank" href="https://amzn.to/3h1bSjG">https://amzn.to/3h1bSjG</a><br />Zoom H4N  <a rel="nofollow" target="blank" href="https://amzn.to/3kX0TJh">https://amzn.to/3kX0TJh</a><br />Tape wrap for tripod <a rel="nofollow" target="blank" href="https://amzn.to/2Vobzb8">https://amzn.to/2Vobzb8</a><br /><br />Thanks for stopping by. Visit me on Instagram: <br /> <br /><a rel="nofollow" target="blank" href="https://www.instagram.com/bayou_josh/">https://www.instagram.com/bayou_josh/</a><br /><br />I am a participant in the Amazon Services LLC Associates Program, an affiliate advertising program designed to provide a means for us to earn fees by linking to Amazon.com and affiliated sites.<br /><br />This video was not paid for by outside persons or manufacturers.<br /><br />No gear was supplied to me for this video.<br /><br />All Aerial Photography and video was captured by me. I am a Part 107 UAV Pilot. Feel free to email with inquiries.{% endraw %}
