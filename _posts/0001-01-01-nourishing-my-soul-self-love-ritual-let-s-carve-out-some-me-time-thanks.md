@@ -1,0 +1,15 @@
+---
+title: "Nourishing My Soul | Self Love Ritual"
+image: "https:\/\/i.ytimg.com\/vi\/fJSVWLgi8BQ\/hqdefault.jpg"
+vid_id: "fJSVWLgi8BQ"
+categories: "Howto-Style"
+tags: ["rings","charms","pandora charms"]
+date: "2022-02-05T04:12:51+03:00"
+vid_date: "2022-02-04T18:00:16Z"
+duration: "PT12M5S"
+viewcount: "36103"
+likeCount: "2286"
+dislikeCount: ""
+channel: "Jenn Im"
+---
+{% raw %}Let's carve out some ME time! Thanks to Pandora Jewelry for sponsoring this video. Style and stack your way! Go to <a rel="nofollow" target="blank" href="https://go.pandora.net/35Rvhkx">https://go.pandora.net/35Rvhkx</a> to check out Pandora Jewelry. #ad #Pandora #ForEveryStory<br /><br />-----------------------------------------<br /><br />Subscribe and become a Jem today: <a rel="nofollow" target="blank" href="http://bit.ly/2iLayjY">http://bit.ly/2iLayjY</a><br /><br />------------------------------------------<br /><br />➫ Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/imjennim">http://instagram.com/imjennim</a><br />➫ Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/imjennim">http://twitter.com/imjennim</a><br />➫ Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/imjennim">http://facebook.com/imjennim</a><br />➫ Spotify: <a rel="nofollow" target="blank" href="https://bit.ly/JennImSpotify">https://bit.ly/JennImSpotify</a><br />➫ TikTok: <a rel="nofollow" target="blank" href="https://bit.ly/2UZB7Zd">https://bit.ly/2UZB7Zd</a><br />------------------------------------------ <br /><br /><br />ON ME <br />➥ Hoka - Clifton 8's: <a rel="nofollow" target="blank" href="https://bit.ly/3AJ9Tct">https://bit.ly/3AJ9Tct</a><br />➥ Pleated Skirt: Style Nanda<br /><br />❐ BULLET JOURNAL ❏<br />➥ MUJI - Black Pens: <a rel="nofollow" target="blank" href="https://amzn.to/340vfpV">https://amzn.to/340vfpV</a><br />➥ Sakura - Micron Blister Card Ink Pen: <a rel="nofollow" target="blank" href="https://amzn.to/3rg7Vgu">https://amzn.to/3rg7Vgu</a><br />➥ Leuchtturm1917 - Bullet Journal: <a rel="nofollow" target="blank" href="https://amzn.to/3oegwym">https://amzn.to/3oegwym</a><br /><br />❐ KITCHEN ❏<br />➥ Material Kitchen - reBoard Cutting Board: <a rel="nofollow" target="blank" href="https://bit.ly/3tIm9bB">https://bit.ly/3tIm9bB</a><br />➥ Material Kitchen - 8&quot; Knife: <a rel="nofollow" target="blank" href="https://bit.ly/3AJ5bLO">https://bit.ly/3AJ5bLO</a><br />➥ Caraway - Sauce Pan: <a rel="nofollow" target="blank" href="https://bit.ly/3ruEoP5">https://bit.ly/3ruEoP5</a><br /><br />❐ HELPFUL LINKS ❏<br />➥ Dr. Andrew Huberman YouTube: <a rel="nofollow" target="blank" href="https://bit.ly/3rhHtDo">https://bit.ly/3rhHtDo</a><br /><br /><br />------------------------------------------<br /><br />❐ MUSIC ❏<br />➥ Epidemic Sound<br /><br />------------------------------------------<br />FTC: This video is sponsored by Pandora Jewelry! Some of the links above are affiliate links, which means I may earn a small commission if anyone purchases through them. This helps support my channel so I can continue to create videos for ya'll~{% endraw %}
