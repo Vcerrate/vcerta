@@ -1,0 +1,15 @@
+---
+title: "ReMarkable 2.12 Update | Adding Pages To PDF"
+image: "https:\/\/i.ytimg.com\/vi\/eQI15OJFhpg\/hqdefault.jpg"
+vid_id: "eQI15OJFhpg"
+categories: "Howto-Style"
+tags: ["reMarkable 2","reMarkable Release 2.12","reMarkable 2 Updates"]
+date: "2022-02-06T11:28:30+03:00"
+vid_date: "2022-01-29T13:51:34Z"
+duration: "PT5M12S"
+viewcount: "932"
+likeCount: "22"
+dislikeCount: ""
+channel: "Branden Bodendorfer"
+---
+{% raw %}#remarkable2 #notetaking #release2.12<br /><br />reMarkable's latest software release 2.12 brings new page management options for PDF and ebook files. This is great news for those using the Key2Success Planner on ReMarkable!<br /><br />In the new release, users have the ability to add blank pages to documents, which provides more space for detailed notes. Add, delete, duplicate, and move note pages within PDF's and ebooks with ease. This option opens up new possibilities for annotating and managing your work. If you need extra pages for your thoughts, it's just a tap away.<br /><br />Any pages that are added will become part of the PDF or ebook they've been added to, but the pages can also be moved out to other notebooks (like with regular notebook pages).<br /><br />Keep in mind, however, that any pages added to a hyperlinked planner will not be linked.<br /><br />Learn More: <a rel="nofollow" target="blank" href="https://brandenbodendorfer.com/remarkable-adds-page-management-options-in-new-release/">https://brandenbodendorfer.com/remarkable-adds-page-management-options-in-new-release/</a><br /><br />0:00 Intro<br />0:50 Digital Planner<br /><br /><br />📑 Our Planning System<br />Get Started Here: <a rel="nofollow" target="blank" href="https://bit.ly/2Kwp6Ya">https://bit.ly/2Kwp6Ya</a><br />K2S Training Resources: <a rel="nofollow" target="blank" href="https://bit.ly/3fzH0ou">https://bit.ly/3fzH0ou</a><br />reMarkable Planner Shop: <a rel="nofollow" target="blank" href="https://bit.ly/3jQQsGy ">https://bit.ly/3jQQsGy </a><br /><br />Please consider following me for life, business, creative and communication hacks at any of the following:<br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/BrandenDBodendorfer/">https://www.facebook.com/BrandenDBodendorfer/</a><br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/brandenbodendorfer">https://www.youtube.com/c/brandenbodendorfer</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/bbodendorfer/">https://www.instagram.com/bbodendorfer/</a><br />LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/in/bbodendorfer/">https://www.linkedin.com/in/bbodendorfer/</a><br />Spotify Podcast: <a rel="nofollow" target="blank" href="https://open.spotify.com/show/4DWHDb5XoX1SmoxTiOi7YD?si=guO5OVmMSnGtYtHjo6Jtog">https://open.spotify.com/show/4DWHDb5XoX1SmoxTiOi7YD?si=guO5OVmMSnGtYtHjo6Jtog</a><br />APPLE Podcast: <a rel="nofollow" target="blank" href="https://podcasts.apple.com/us/podcast/found-onfocus/id1450098379">https://podcasts.apple.com/us/podcast/found-onfocus/id1450098379</a>{% endraw %}
