@@ -1,0 +1,15 @@
+---
+title: "How to Make Sure Your Knitted Sweaters Fit Perfectly - Every Time! Mindblown!"
+image: "https:\/\/i.ytimg.com\/vi\/oDd708lXnlM\/hqdefault.jpg"
+vid_id: "oDd708lXnlM"
+categories: "Howto-Style"
+tags: ["Knitted","Sweaters","Perfectly"]
+date: "2022-02-06T16:17:45+03:00"
+vid_date: "2022-02-04T11:30:15Z"
+duration: "PT7M23S"
+viewcount: "11881"
+likeCount: "911"
+dislikeCount: ""
+channel: "ExpressionFiberArts"
+---
+{% raw %}Hey, friend. I hope you're having a most fantastic day! I have two treats for you today! First, I'm going to show you a trick that will ensure that your knitted sweaters always fit perfectly! And second, I have a gorgeous, boxy, drop shoulder sweater pattern to share with you! Riptide is ideal for the adventurous beginner or intermediate knitter, and it's totally customizable... like a &quot;Choose Your Own Adventure&quot; sweater! <br /><br />Download Riptide here: <a rel="nofollow" target="blank" href="https://www.expressionfiberarts.com/products/riptide.html">https://www.expressionfiberarts.com/products/riptide.html</a><br /><br />Crocheters, enjoy the Dulcinea sweater, free again for a limited time: <a rel="nofollow" target="blank" href="https://www.expressionfiberarts.com/products/dulcinea.html">https://www.expressionfiberarts.com/products/dulcinea.html</a><br /><br />Riptide uses our beautifully soft, cuddly cotton SeaCoast Fingering yarn in Ocean Storm. <br /><a rel="nofollow" target="blank" href="https://www.expressionfiberarts.com/categories/fingering/seacoast-fingering.html">https://www.expressionfiberarts.com/categories/fingering/seacoast-fingering.html</a><br />This base and this year's colors are limited edition. Once they are sold out, we will not have them again until next year, so be sure to purchase all you will need for your project.<br /><br />Have a marvelous day! Be sure to sign up for email updates to receive more knit and crochet patterns. We aim for one a week, and most are free for a limited time only. You'll also get coupon codes and be among the first to hear about new limited yarns! XOXO<br /><br />Talk soon! Chandi<br /><br />www.expressionfiberarts.com<br />Facebook.com/expressionfiberarts<br />Instagram.com/expressionfiberarts<br /><br />#knittingtips #sweaterknitting #knittedsweaters #knitting #yarn #wool #hand-dyed <br /><br />Looking for another tip to help achieve a perfect fit? Check out last week's video on the importance of gauge swatching: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=-WgjnsIp4e8">https://www.youtube.com/watch?v=-WgjnsIp4e8</a><br /><br />And our Mattress Stitch tutorial will help you finish your Riptide sweater with pizazz: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=FjA61p_L2CE">https://www.youtube.com/watch?v=FjA61p_L2CE</a><br /><br />Also shown in this video, the Love and Lace shawl: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=bNoa74uY1JQ">https://www.youtube.com/watch?v=bNoa74uY1JQ</a>{% endraw %}
