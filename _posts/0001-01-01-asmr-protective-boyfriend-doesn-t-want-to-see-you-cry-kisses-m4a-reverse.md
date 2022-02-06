@@ -1,0 +1,15 @@
+---
+title: "[ASMR] Protective Boyfriend Doesn't Want To See You Cry [Kisses] [M4A] [Reverse Comfort] Roleplay"
+image: "https:\/\/i.ytimg.com\/vi\/-qIwKCAjLxI\/hqdefault.jpg"
+vid_id: "-qIwKCAjLxI"
+categories: "Entertainment"
+tags: ["ASMR","Boyfriend","Roleplay"]
+date: "2022-02-06T08:20:58+03:00"
+vid_date: "2022-02-04T18:12:08Z"
+duration: "PT10M5S"
+viewcount: "19050"
+likeCount: "945"
+dislikeCount: ""
+channel: "Eyuke"
+---
+{% raw %}⚪️ - You get back home after a long day, you find your Boyfriend making you food, He noticed that your not okay but he also noticed some scratches on the back of your neck so then, he gets a little too Protective.<br /><br />DID SOMEONE HURT YOU ON YOUR WAY BACK OR SOMETHING?!!<br /><br />⚫️ - Your feeling so overwhelmed from the outside world, your boyfriend calms you down after you started crying, He thought someone hurt you and he was willing to defend you so he got a little angry, you calm your boyfriend back after little kisses and you tell him what exactly happened.<br /><br />I THINK I JUST OVERREACTED AGAIN...<br /><br />- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -<br />- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -<br /><br />Helloo👋, It's Eyuke &quot;The Demon who loves Voice Acting!&quot;<br />- I hope you enjoyed watching/listening! 💫<br />- I'm still new to this, So please don't mind my little mistakes 🌚<br />- If you enjoyed Please! Subscribe and also leave a like It means a lot!<br /><br />- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -<br />- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -<br /><br />🌙 Here are my links If your want to follow!<br />- Twitter : <a rel="nofollow" target="blank" href="https://twitter.com/EyukeVA">https://twitter.com/EyukeVA</a><br />- Twitch : <a rel="nofollow" target="blank" href="https://www.twitch.tv/eyuke">https://www.twitch.tv/eyuke</a><br />- Tiktok : <a rel="nofollow" target="blank" href="https://www.tiktok.com/@eyukeva">https://www.tiktok.com/@eyukeva</a><br />- Discord : <a rel="nofollow" target="blank" href="https://discord.gg/3uGnpfAZ7x">https://discord.gg/3uGnpfAZ7x</a><br /><br />Follow my socials and join the discord! Please! 🖤<br /><br />- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -<br />- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -<br /><br />This script was wrote by me, Inspired by hearing many ASMRtists<br />and watching a lot of videos, Hope u like it!🧾🧾<br /><br />Any of the artwork I used in this video or any future ones are not my own.<br />If it needs to be removed please let me know!! 🔮<br /><br />- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -<br />- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -<br /><br />#ASMR #boyfriend #Roleplay #ProtectiveASMR #Protective #Anime<br />#RP #M4A #M4F #M4M #Defensive #Kisses #Kissing #Comfort #ReverseComfort{% endraw %}
