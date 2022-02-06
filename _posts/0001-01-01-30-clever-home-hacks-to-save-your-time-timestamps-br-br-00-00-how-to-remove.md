@@ -1,0 +1,15 @@
+---
+title: "30 CLEVER HOME HACKS TO SAVE YOUR TIME"
+image: "https:\/\/i.ytimg.com\/vi\/8uVn3OMYhfM\/hqdefault.jpg"
+vid_id: "8uVn3OMYhfM"
+categories: "Howto-Style"
+tags: ["5 minute crafts","5 minute crafts food","5 minute crafts for school"]
+date: "2022-02-06T23:25:09+03:00"
+vid_date: "2022-01-24T20:45:01Z"
+duration: "PT12M20S"
+viewcount: "278214"
+likeCount: "1562"
+dislikeCount: ""
+channel: "5-Minute Crafts FAMILY"
+---
+{% raw %}TIMESTAMPS<br /><br />00:00 How to remove the burnt in bread<br /><br />01:18 Tips to clean dirty faucet in seconds<br /><br />02:18 Easy steps to clean oven<br /><br />03:48 Smart tool to avoid clog in your bath tub<br /><br />04:17 Dog bathing trick that saves time<br /><br />04:32 Toilet hack using vaseline<br /><br />This video is made for entertainment purposes. We do not make any warranties about the completeness, safety and reliability. Any action you take upon the information on this video is strictly at your own risk, and we will not be liable for any damages or losses. It is the viewer's responsibility to use judgment, care and precautions if one plans to replicate.<br /><br />The following video might feature activity performed by our actors within controlled environment- please use judgment, care, and precaution if you plan to replicate.<br /><br />All product and company names shown in the video are trademarks™ or registered® trademarks of their respective holders. Use of them does not imply any affiliation with or endorsement by them.<br /><br />---------------------------------------------------------------------------------------- <br /><br />5-Minute Crafts: <a rel="nofollow" target="blank" href="https://www.goo.gl/8JVmuC">https://www.goo.gl/8JVmuC</a><br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/5min.crafts/">https://www.facebook.com/5min.crafts/</a> <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/5.min.crafts/">https://www.instagram.com/5.min.crafts/</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/5m_crafts">https://twitter.com/5m_crafts</a><br /><br />Subscribe to 5-Minute Crafts GIRLY: <a rel="nofollow" target="blank" href="https://goo.gl/fWbJqz">https://goo.gl/fWbJqz</a><br />Subscribe to 5-Minute Crafts PLAY: <a rel="nofollow" target="blank" href="https://goo.gl/PEuLVt">https://goo.gl/PEuLVt</a><br />Subscribe to 5-Minute Crafts MEN: <a rel="nofollow" target="blank" href="http://bit.ly/2S69VUG">http://bit.ly/2S69VUG</a><br /><br />The Bright Side of Youtube: <a rel="nofollow" target="blank" href="https://goo.gl/rQTJZz">https://goo.gl/rQTJZz</a><br /><br />---------------------------------------------------------------------------------------- <br /><br />For more videos and articles visit: <a rel="nofollow" target="blank" href="http://www.brightside.me/">http://www.brightside.me/</a><br /> <br />Music by Epidemic Sound: <a rel="nofollow" target="blank" href="https://www.epidemicsound.com/">https://www.epidemicsound.com/</a>{% endraw %}
