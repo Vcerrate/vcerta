@@ -1,0 +1,15 @@
+---
+title: "Из полосок ткани? Да ладно! DIY мастер-класс"
+image: "https:\/\/i.ytimg.com\/vi\/-fU174jULD0\/hqdefault.jpg"
+vid_id: "-fU174jULD0"
+categories: "Howto-Style"
+tags: ["пэчворк","Hand Made","patchwork"]
+date: "2022-02-06T10:30:43+03:00"
+vid_date: "2022-02-06T06:04:46Z"
+duration: "PT10M57S"
+viewcount: "953"
+likeCount: "263"
+dislikeCount: ""
+channel: "Polly Stitch"
+---
+{% raw %}У любой рукодельницы, со временем, накапливаются полоски тканей, с которыми не сразу и придумаешь, что можно сделать. Предлагаю новый интересный способ работы с ними. Легко и просто получается дизайнерское полотно. При его создании не нужен точный крой и дорогие инструменты. &quot;Полосатые витражи&quot; - так можно назвать готовый результат.<br />Приятного просмотра!<br /><br />Дорогие друзья! Мой второй канал на английском языке. Текст за кадром читает моя дочь. Прошу любить и жаловать! <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCQIticL7Rcxm6Eh8PKifnLA">https://www.youtube.com/channel/UCQIticL7Rcxm6Eh8PKifnLA</a><br /><br />Автор музыки - Семён Червов.<br />Контакты Семёна: the_deatless@mail.ru<br /><br />Новая компьютеризированная швейно-вышивальная машина EFFEKTIV Unica 1500S<br />Купили на Вайлдберрис.<br /><a rel="nofollow" target="blank" href="https://www.wildberries.ru/catalog/19328745/detail.aspx?targetUrl=ES">https://www.wildberries.ru/catalog/19328745/detail.aspx?targetUrl=ES</a><br />Ее можно купить на вайлдберрис, озон, Алиэкспресс, Яндекс-маркет<br /><br />Мой канал на Яндекс Дзен: <a rel="nofollow" target="blank" href="https://zen.yandex.ru/id/5fb0d850e238bd1b9b5e8f5a">https://zen.yandex.ru/id/5fb0d850e238bd1b9b5e8f5a</a><br /><br />Моя группа в &quot;Одноклассниках&quot;- &quot;В гостях у Полины: рукоделие без границ&quot;: <a rel="nofollow" target="blank" href="https://ok.ru/group/56996411080853">https://ok.ru/group/56996411080853</a><br />Во Вконтакте: <a rel="nofollow" target="blank" href="https://vk.com/club201697325">https://vk.com/club201697325</a><br /><br />Вы можете порадовать автора шоколадкой или чашечкой кофе, сделав перевод на карту Сбербанка: 63900216 9007967744<br />Также вы можете стать спонсором: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCzzhAS0JoxO6HJ49T8qAVTQ/join.">https://www.youtube.com/channel/UCzzhAS0JoxO6HJ49T8qAVTQ/join.</a><br />За это вы будете получать разные бонусы.<br /><br />#pollystitch #апсайклинг #upcycling #textilerecycling #утилизация #творческаяпереработка #reuse #втораяжизньвещей #втораяжизньодежды #лоскутноешитье #лоскутноеодеяло #лоскутныеблоки #DIY #дляначинающих #пицца #урокишитья #рукоделие<br />В своем творчестве восхищаюсь и вдохновляюсь каналами: <br />@Polly Stitch English  @Pop-up Fashion  @Ana Cosentino Patchwork e Quilting  @Clases de Costura y Patchwork Mininos de Sanchez  @Ana Leal Patchwork  @Mein Haus  @MiSova_Denim  @Mia DIY  @5-Minute Crafts  @don kim  @Usta Eller  @Estação do Ponto Patchwork  @Estadistica Datos del Mundo  @Гелла Чара  @Мир рукоделия и шитья  @Девочки и Куколки needlework  @Анна Таланова  @Анна Полковникова  @Шебби-Шик  @Уральская кудесница  @Мир лоскутов .ру{% endraw %}
