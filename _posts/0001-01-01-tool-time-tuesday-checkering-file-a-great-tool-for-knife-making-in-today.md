@@ -1,0 +1,15 @@
+---
+title: "Tool Time Tuesday - Checkering File - A great tool for knife making"
+image: "https:\/\/i.ytimg.com\/vi\/8DPyV0Bj6uU\/hqdefault.jpg"
+vid_id: "8DPyV0Bj6uU"
+categories: "People-Blogs"
+tags: ["Tool time tuesday","knife making","knife maker"]
+date: "2022-02-06T19:22:20+03:00"
+vid_date: "2017-12-06T19:30:03Z"
+duration: "PT9M41S"
+viewcount: "60425"
+likeCount: "1759"
+dislikeCount: ""
+channel: "Simple Little Life"
+---
+{% raw %}In today's TTT, we're looking at the checkering file. A great way to add jimping to the spine of your knife with amazing results!<br /><br />Subscribe to Simple Little Life: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCUSz...">https://www.youtube.com/channel/UCUSz...</a><br />Watch More Simple Little Life: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCUSz...">https://www.youtube.com/channel/UCUSz...</a><br /><br />Follow Simple Little Life:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/simplelittlelife/">https://www.facebook.com/simplelittlelife/</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/simplelittlelife.ca/">https://www.instagram.com/simplelittlelife.ca/</a><br /><br />Follow Homestead Knives:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/hsknives/">https://www.facebook.com/hsknives/</a><br /><br />Official Website: <a rel="nofollow" target="blank" href="https://www.simplelittlelife.ca">https://www.simplelittlelife.ca</a><br /><br />Knife Store: <a rel="nofollow" target="blank" href="https://www.homesteadknives.com">https://www.homesteadknives.com</a><br /><br /><br />Watch More Simple Little Life:<br />Latest Uploads: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=nwPJJ...">https://www.youtube.com/watch?v=nwPJJ...</a><br />Popular Videos: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=nwPJJ...">https://www.youtube.com/watch?v=nwPJJ...</a><br />Knife Making: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=8aXyw...">https://www.youtube.com/watch?v=8aXyw...</a><br />DIY: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=w_2ey...">https://www.youtube.com/watch?v=w_2ey...</a><br /><br />About Simple Little Life:<br />This channel has sort of turned (inadvertently) into a knife making channel. But the original idea behind what we wanted it to be is this description below:<br /><br />Videos on our journey to homesteading. With a recent purchase of a little piece of the Alberta prairie, we're looking to sell our nice suburban home in search of a more meaningful life beyond chasing the &quot;American dream&quot; working for some big company and making someone else rich. It's not about the money, it's about getting the most value from the work I do to improving the life of my family.<br /><br />Some preparedness, DIY, building quality things with your hands, guns, gear, and outdoor exploration.<br /><br />Mailing Address:<br />Box 6, Site 16 RR2<br />Strathmore, Alberta<br />Canada<br />T1P 1K5{% endraw %}
