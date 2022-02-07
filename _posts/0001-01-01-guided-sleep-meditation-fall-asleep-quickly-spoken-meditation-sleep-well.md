@@ -1,0 +1,15 @@
+---
+title: "Guided Sleep Meditation Fall Asleep Quickly, Spoken Meditation"
+image: "https:\/\/i.ytimg.com\/vi\/YBlMI7m89Tg\/hqdefault.jpg"
+vid_id: "YBlMI7m89Tg"
+categories: "Music"
+tags: ["guided sleep meditation","guided sleep meditation deep relaxation","guided sleep meditation anxiety"]
+date: "2022-02-07T12:50:40+03:00"
+vid_date: "2019-10-02T01:15:00Z"
+duration: "PT3H"
+viewcount: "2297070"
+likeCount: "14726"
+dislikeCount: ""
+channel: "Jason Stephenson - Sleep Meditation Music"
+---
+{% raw %}Sleep well with our guided sleep meditation, designed to help you fall asleep quickly. This is a spoken meditation with affirmations.  Calm your mind and improve your sleep with your FREE sleep guided meditation. <a rel="nofollow" target="blank" href="https://www.jasonstephenson.net/lp/sleep-meditation/free-sleep-meditation/?utm_source=youtube-jason-stephenson-sleep-meditation-music-video-description&amp;utm_medium=social&amp;utm_campaign=sleep-guided-meditation-landing-page">https://www.jasonstephenson.net/lp/sleep-meditation/free-sleep-meditation/?utm_source=youtube-jason-stephenson-sleep-meditation-music-video-description&amp;utm_medium=social&amp;utm_campaign=sleep-guided-meditation-landing-page</a><br /><br />#guidedsleepmeditation #fallsleepquickly #jasonstephenson<br /><br />Guided Sleep Meditation (5 spoken sleep meditations in one long meditation) 😴✨<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=lrRqVrZ8VP4&amp;list=PLwRp13WDIrMPzLqtyvvPrs7sMR_lvZ8Bf">https://www.youtube.com/watch?v=lrRqVrZ8VP4&amp;list=PLwRp13WDIrMPzLqtyvvPrs7sMR_lvZ8Bf</a><br /><br />Guided Meditation for Sleep... Floating Amongst the Stars 🌟💫<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=N4qCFFBrrgk&amp;list=PLwRp13WDIrMPzLqtyvvPrs7sMR_lvZ8Bf">https://www.youtube.com/watch?v=N4qCFFBrrgk&amp;list=PLwRp13WDIrMPzLqtyvvPrs7sMR_lvZ8Bf</a><br /><br />Back To Basics Guided Meditation 🌞💕<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=IzV6J4WCwRM&amp;list=PLwRp13WDIrMPzLqtyvvPrs7sMR_lvZ8Bf">https://www.youtube.com/watch?v=IzV6J4WCwRM&amp;list=PLwRp13WDIrMPzLqtyvvPrs7sMR_lvZ8Bf</a><br /><br />Get more great sleep - <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCqPYhcdFgrlUXiGmPRAej1w?sub_confirmation=1">https://www.youtube.com/channel/UCqPYhcdFgrlUXiGmPRAej1w?sub_confirmation=1</a><br /><br />iTunes MP3 download available here now: <a rel="nofollow" target="blank" href="https://music.apple.com/au/album/sea-of-calmness-a-guided-spoken-visualization/1488035397">https://music.apple.com/au/album/sea-of-calmness-a-guided-spoken-visualization/1488035397</a><br /><br />© JASON STEPHENSON &amp; RELAX ME ONLINE AUSTRALIA PTY LTD Copyright 2019 All rights reserved.<br /><br />This work is not intended to substitute for professional medical or counselling advice. If you suffer from a physical or mental illness, please always seek professional help.  <br /><br /><br />DO NOT DRIVE OR OPERATE MACHINERY WHILST LISTENING TO SLEEP MEDITATION MUSIC, BINAURAL BEATS OR GUIDED SLEEP RELAXATIONS.{% endraw %}
