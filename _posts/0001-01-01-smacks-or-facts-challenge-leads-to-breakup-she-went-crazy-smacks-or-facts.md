@@ -1,0 +1,15 @@
+---
+title: "SMACKS OR FACTS CHALLENGE LEADS TO BREAKUP **SHE WENT CRAZY**"
+image: "https:\/\/i.ytimg.com\/vi\/TMDCI92EPRA\/hqdefault.jpg"
+vid_id: "TMDCI92EPRA"
+categories: "People-Blogs"
+tags: ["The Prince Family","The Prince Family Vlogs","The Prince Family Challenges"]
+date: "2022-02-07T21:26:21+03:00"
+vid_date: "2022-02-04T00:02:59Z"
+duration: "PT19M26S"
+viewcount: "415523"
+likeCount: "23732"
+dislikeCount: ""
+channel: "The Prince Family"
+---
+{% raw %}Smacks Or Facts Challenge Part 2 With The Prince Family Leads To Breakup **She Went Crazy**<br /><br />Follow The Prince Family on Facebook: <a rel="nofollow" target="blank" href="https://facebook.com/TheOfficialPrinceFamily">https://facebook.com/TheOfficialPrinceFamily</a><br /><br />Subscribe to The Prince Family on Snapchat: <a rel="nofollow" target="blank" href="http://bit.ly/PrinceFamSnap">http://bit.ly/PrinceFamSnap</a><br /><br />Subscribe to DJ's Clubhouse: <a rel="nofollow" target="blank" href="https://youtube.com/channel/UCqONv8hrKKTd0ELJcxOVNJQ">https://youtube.com/channel/UCqONv8hrKKTd0ELJcxOVNJQ</a><br /><br />Follow Damien:<br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/DamienPrinceJr">https://instagram.com/DamienPrinceJr</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/DamienPrinceJr">https://twitter.com/DamienPrinceJr</a><br />SnapChat: <a rel="nofollow" target="blank" href="https://snapchat.com/add/DamienPrinceJr">https://snapchat.com/add/DamienPrinceJr</a><br />Facebook: <a rel="nofollow" target="blank" href="https://facebook.com/DamienPrinceJr">https://facebook.com/DamienPrinceJr</a><br /><br />Follow Biannca: <br />YouTube Channel: <a rel="nofollow" target="blank" href="https://goo.gl/iCz7K8">https://goo.gl/iCz7K8</a><br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/x_bianncaraines">https://instagram.com/x_bianncaraines</a><br />TikTok: <a rel="nofollow" target="blank" href="https://tiktok.com/@bianncarraines">https://tiktok.com/@bianncarraines</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/bianncarraines">https://twitter.com/bianncarraines</a><br />SnapChat: <a rel="nofollow" target="blank" href="https://snapchat.com/add/BianncaRaines">https://snapchat.com/add/BianncaRaines</a><br /><br />Follow Our Kids on Instagram:<br />Ayla: <a rel="nofollow" target="blank" href="https://instagram.com/aylafaithprince">https://instagram.com/aylafaithprince</a><br />Kyrie: <a rel="nofollow" target="blank" href="https://instagram.com/kyriedenailprince">https://instagram.com/kyriedenailprince</a><br />Nova: <a rel="nofollow" target="blank" href="https://instagram.com/novagraceprince">https://instagram.com/novagraceprince</a><br />DJ: <a rel="nofollow" target="blank" href="https://instagram.com/djandkyrieprince">https://instagram.com/djandkyrieprince</a><br /><br />BUSINESS INQUIRIES: ThePrinceFamilyInquiries@gmail.com<br /><br />#Family <br />#PrinceFamily<br />#ThePrinceFamily{% endraw %}
