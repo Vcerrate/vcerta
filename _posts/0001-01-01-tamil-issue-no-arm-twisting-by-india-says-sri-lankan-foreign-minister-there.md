@@ -1,0 +1,15 @@
+---
+title: "Tamil Issue: No Arm-Twisting By India, Says Sri Lankan Foreign Minister"
+image: "https:\/\/i.ytimg.com\/vi\/6b91o_E5FjQ\/hqdefault.jpg"
+vid_id: "6b91o_E5FjQ"
+categories: "News-Politics"
+tags: ["Tamil","Issue:","Arm-Twisting"]
+date: "2022-02-07T16:47:20+03:00"
+vid_date: "2022-02-07T13:30:01Z"
+duration: "PT29M45S"
+viewcount: "140"
+likeCount: "13"
+dislikeCount: ""
+channel: "StratNewsGlobal"
+---
+{% raw %}There has been no pressure whatsoever from India regarding solving issues faced by Tamils in Sri Lanka’s northern provinces, says Foreign Minister GL Peiris, who is currently on a three-day visit to India. Speaking to StratNews Global Editor-in-Chief Nitin A. Gokhale shortly after landing here, Peiris explained that the problem was more due to ‘inherent institutional shortcomings’ that need to be addressed. “There is no hostility at the grassroots level. That makes us believe that it is by no means an intractable problem,” he added. In this interview, Peiris also talks about the state of the economy and the island nation’s relationship with China.<br /><br /> <br /><br />Here are the highlights from the interview:<br /><br />·        ‘India-Sri Lanka relationship is no longer transactional; it covers very much the entire spectrum.’<br /><br />·        ‘The key to the future is connectivity in different sectors, not only physical connectivity. It’s a win-win situation for both countries.’<br /><br />·        ‘It would be enormously beneficial if Sri Lanka could have electricity grid connectivity with India.’<br /><br />·        ‘Dredging work on the West Container Terminal at Colombo Port is expected to begin in the next two-three months.’<br /><br />·        ‘Main reason for the financial stress is the collapse of tourism during the pandemic, drastic reduction in remittances from Sri Lankans working abroad.’<br /><br />·        ‘Our income from exports in 2021 was better than what it was in 2020.’<br /><br />·        ‘India has been a source of great strength and has always helped us.’<br /><br />·        ‘The fishermen issue has been a constant irritant in the bilateral relationship.’<br /><br />·        Tamil issue: ‘History has told us that any durable solution to the issue has to be based on consensus.’<br /><br />·        ‘Sri Lanka’s relationship with India is sui generis, nothing can detract from that.’<br /><br />·        ‘We value our relationship with China but certainly not at the expense of India.’<br /><br />#SriLanka #India #China #IndiaSriLanka<br /><br />StratNewsGlobal is your one-stop destination for strategic analysis from an Indian perspective. Since many of our well-wishers requested a UPI payment id to contribute and support us, here’s the link: <a rel="nofollow" target="blank" href="https://stratnewsglobal.com/support-us/">https://stratnewsglobal.com/support-us/</a> <br /><br />If you like our work and want us to do more, do consider donating and subscribing. Every bit helps. 🙏 <br /><br />Subscribe to our YouTube channel. Press the 🔔 icon to get the latest updates{% endraw %}
