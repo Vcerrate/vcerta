@@ -1,0 +1,15 @@
+---
+title: "Kent Aune - Et Liv i Sort og Hvitt | Musikkvideo"
+image: "https:\/\/i.ytimg.com\/vi\/H7JKszlhZYc\/hqdefault.jpg"
+vid_id: "H7JKszlhZYc"
+categories: "Sports"
+tags: ["rbkfotball","rosenborg","rosenborg fotball"]
+date: "2022-02-08T07:30:23+03:00"
+vid_date: "2022-02-03T23:00:11Z"
+duration: "PT4M2S"
+viewcount: "8339"
+likeCount: "327"
+dislikeCount: ""
+channel: "Rosenborg Ballklub"
+---
+{% raw %}Innspilt i Strengeleik Studio<br />Vokal, gitarer og kor: Kent Aune<br />Tekst og melodi: Kent Aune<br />Produsent og tekniker: Skjalg Råen<br />Trommer, bass, kor, mandolin og gitarer: Skjalg Råen<br />Foto og film: Adrian Bredesen<br />Mastret av Arnstein Fossvik<br />Produsert av RBK Media<br /><br /><br />Tekst:<br /><br />En liten by et lite laind<br />Sitt d en liten kar han ha gjort sæ klar<br />Ska vær med pappan sin på kamp<br />For aller første gang - får sitt i pappas fang<br /><br />I glede og i sorg<br />Vi ælske Rosenborg <br />Et liv i sort og hvitt <br />Æ syng for laget mitt<br /><br />Om skyan e grå<br />Vi e alltid rbk<br />Historia e stor<br />Vi lage nye spor<br /><br />Åran går dem går i lag<br />T faste plassan sin<br />Med skjerf og flagg så fin<br />Den lille byn vart vældig stor, fikk hele landet med, to stjerna bli snart tre<br /><br />I glede og i sorg<br />Vi ælske Rosenborg <br />Et liv i sort og hvitt <br />Æ syng for laget mitt<br /><br />Om skyan e grå<br />Vi e alltid rbk<br />Historia e stor<br />Vi lage nye spor<br /><br />En dag va ene sete tomt, pappa va itj med, reist t et bedre sted<br />Ikke ensom vi e mang<br />aldri bært no nag har verdens beste lag<br /><br />I glede og i sorg<br />Vi ælske Rosenborg <br />Et liv i sort og hvitt <br />Æ syng for laget mitt<br /><br />Om skyan e grå<br />Vi e alltid rbk<br />Historia e stor<br />Vi lage nye spor<br /><br />I glede og i sorg<br />Vi ælske Rosenborg <br />Et liv i sort og hvitt <br />Æ syng for laget mitt<br /><br />Om skyan e grå<br />Vi e alltid rbk<br />Historia e stor<br />Vi lage nye spor<br /><br />Vi står sammen - I sort og hvitt<br />Vi står sammen - I sort og hvitt<br />Vi står sammen - I sort og hvitt<br />Vi står sammen - I sort og hvitt<br /><br /><br />#rosenborg #rbk<br /><br /><br />Følg kanalen og se ukentlige høydepunkter, treninger og mimre tilbake til vår stolte historie med stjerner som Roar Strand, Bent Skammelsrud, Erik Hoftun, Micke Dorsin, Mini Jakobsen, Marek Sapara, Rade Prica, Steffen Iversen, Ole Selnæs, Jonas Svensson, Per Ciljan Skjelbred, Markus Henriksen og mange mange fler. <br /><br />Husk å følge oss på andre sosiale medier:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/rosenborg">https://www.facebook.com/rosenborg</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/RBKfotball">https://twitter.com/RBKfotball</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/rosenborgballklub/">https://www.instagram.com/rosenborgballklub/</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@rosenborgballklub">https://www.tiktok.com/@rosenborgballklub</a>{% endraw %}
