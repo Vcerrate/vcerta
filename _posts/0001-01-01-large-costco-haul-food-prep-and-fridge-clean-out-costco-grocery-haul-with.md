@@ -1,0 +1,15 @@
+---
+title: "Large Costco Haul, Food Prep, And Fridge Clean Out! Costco Grocery Haul With Prices!"
+image: "https:\/\/i.ytimg.com\/vi\/ZA914nliSJ0\/hqdefault.jpg"
+vid_id: "ZA914nliSJ0"
+categories: "Film-Animation"
+tags: ["the wads","thewads","grocery haul"]
+date: "2022-02-09T02:00:19+03:00"
+vid_date: "2022-02-08T11:30:05Z"
+duration: "PT43M4S"
+viewcount: "44817"
+likeCount: "3341"
+dislikeCount: ""
+channel: "THE WADS"
+---
+{% raw %}Hey party people!  Thanks so much for hanging out with me while I share with you this new costco haul!  It's a pretty large costco grocery haul and I actually went to Publix too, that's my usual grocery shopping day; first stop costco second stop publix. haha I do a little food prep and I decided to clean my fridge out and get everything in there lookin' real good!  Bonus I found some edible cookie dough! woop!  Thanks so much for hanging out to watch this costco haul, food prep, and fridge clean out! <br /><br />Best,<br />  Kim!<br /><br />I N S T A G R A M :<br /><a rel="nofollow" target="blank" href="https://www.Instagram.com/TheWadSquad1">https://www.Instagram.com/TheWadSquad1</a><br /><br />A M A Z O N <br /><a rel="nofollow" target="blank" href="https://www.amazon.com/shop/thewads">https://www.amazon.com/shop/thewads</a><br /><br /><br />Want More?!  Let's Hang Out Some More, Watch These:<br /><br />The Costco Shop With Me February 2022:<br /><a rel="nofollow" target="blank" href="https://youtu.be/c1u7ditGa58">https://youtu.be/c1u7ditGa58</a><br /><br />Costco Shop With Me Playlist:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL06bBbX2BzSGF4gx-v0zNIAk51qJsjVZV">https://youtube.com/playlist?list=PL06bBbX2BzSGF4gx-v0zNIAk51qJsjVZV</a><br /><br />Costco Haul &amp; Food Prep Playlist:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL06bBbX2BzSFiTEN8MLNSPMlt6rMfDQ0y">https://youtube.com/playlist?list=PL06bBbX2BzSFiTEN8MLNSPMlt6rMfDQ0y</a><br /><br />Meal Prep With Me Always New Recipes Playlist:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL06bBbX2BzSFRhWIyiuXQ1H9Q0O5-9AyD">https://youtube.com/playlist?list=PL06bBbX2BzSFRhWIyiuXQ1H9Q0O5-9AyD</a><br /><br />Around The House Happenings Playlist:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL06bBbX2BzSGM636dMDDBKQcxlheUHEWh">https://youtube.com/playlist?list=PL06bBbX2BzSGM636dMDDBKQcxlheUHEWh</a><br /><br />More Around The House / Get It All Done Style Playlist:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL06bBbX2BzSFxSBNHrafa0yMzJ9hEDfaY">https://youtube.com/playlist?list=PL06bBbX2BzSFxSBNHrafa0yMzJ9hEDfaY</a><br /><br />I N S T A G R A M :<br /><a rel="nofollow" target="blank" href="https://www.Instagram.com/TheWadSquad1">https://www.Instagram.com/TheWadSquad1</a><br /><br /><br />W R I T E   M E <br />The Wads<br />PO BOX 273593<br />Tampa, FL 33688-3593<br /><br />Music from Epidemic Sound:<br /><br /><br />#NewAtCostco #CostcoShopWithMe #Costco  #WhatsAtCostco #TheWads #WithMe #ShopWithMe #CostcoHaul #GroceryHaul{% endraw %}
