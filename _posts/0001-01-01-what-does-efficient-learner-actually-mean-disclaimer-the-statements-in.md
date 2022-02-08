@@ -1,0 +1,15 @@
+---
+title: "What Does \"Efficient Learner\" Actually Mean?"
+image: "https:\/\/i.ytimg.com\/vi\/iWrxagzHSSY\/hqdefault.jpg"
+vid_id: "iWrxagzHSSY"
+categories: "Education"
+tags: ["justin sung","dr justin sung"]
+date: "2022-02-08T21:46:16+03:00"
+vid_date: "2022-02-08T14:15:01Z"
+duration: "PT10M54S"
+viewcount: "2450"
+likeCount: "399"
+dislikeCount: ""
+channel: "Justin Sung"
+---
+{% raw %}Disclaimer: The statements in this video around what efficient learning looks like are based less on empirical data and more on my extensive experience of working with and evaluating (at this time) over 7000 students from 71+ countries since 2012. I've identified certain patterns and trends in &quot;efficient learners&quot;, especially when following the same learner across multiple years, where one strategy can be highly successful one year, but directly lead to unsustainability or failure 2 or 3 years later.<br /><br />Unfortunately, despite decades of research on learning theory, there is not much research out there that actually considers &quot;time-efficiency&quot; as a variable. Most studies are in isolated lab environments where the participant learns just a single topic, is tested on basic retrieval, and there is no consideration to multiple assessments, multiple subjects, or the time taken on studying.<br /><br />This is actually such a big issue that I am commencing my PhD research on addressing and filling this research gap.<br /><br />If you enjoyed what I had to give or found it valuable, a subscribe would be sincerely appreciated.<br />---<br />Join my full study skills and time management course at <a rel="nofollow" target="blank" href="https://bit.ly/StudySkillsCourse">https://bit.ly/StudySkillsCourse</a><br />---<br />Justin Sung is an ex-medical doctor, learning coach and educational researcher who is passionate about creating efficient and meaningful change. He believes that a culture of spoon-feeding and tutoring is a societal issue and that most people are not making good career decisions - especially around medicine. He has worked with thousands of students around the world for over 10 years, teaching them to manage their studies and time more efficiently using evidence-based and rigorously field-tested techniques.<br />---<br />Study skills course: <a rel="nofollow" target="blank" href="https://bit.ly/StudySkillsCourse">https://bit.ly/StudySkillsCourse</a><br />Medical Podcast, SubCut: <a rel="nofollow" target="blank" href="https://bit.ly/SubCutPodcast">https://bit.ly/SubCutPodcast</a><br />Instagram: <a rel="nofollow" target="blank" href="https://bit.ly/drjustinsung">https://bit.ly/drjustinsung</a><br />Facebook: <a rel="nofollow" target="blank" href="https://bit.ly/JustinonFB">https://bit.ly/JustinonFB</a><br />LinkedIn: <a rel="nofollow" target="blank" href="https://bit.ly/JustinonLinkedIn">https://bit.ly/JustinonLinkedIn</a><br />Twitter: <a rel="nofollow" target="blank" href="https://bit.ly/JustinSungTwitter">https://bit.ly/JustinSungTwitter</a>{% endraw %}
