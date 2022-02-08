@@ -1,0 +1,15 @@
+---
+title: "How to Draw a Nurse ❤️ Health Care Provider"
+image: "https:\/\/i.ytimg.com\/vi\/3yBBCaxpu-0\/hqdefault.jpg"
+vid_id: "3yBBCaxpu-0"
+categories: "Howto-Style"
+tags: ["how to draw a nurse","cute nurse","medical professional"]
+date: "2022-02-08T06:22:48+03:00"
+vid_date: "2020-04-01T13:00:02Z"
+duration: "PT14M6S"
+viewcount: "165026"
+likeCount: "2756"
+dislikeCount: ""
+channel: "Draw So Cute"
+---
+{% raw %}Let's give a big shoutout and lot's of LOVE to all the nurses risking their lives for us during this Coronavirus Pandemic. They are our Heroes! Thank you for taking care of us and we pledge to stay home for you. Learn How to Draw a cute Nurse wearing a stethoscope easy, step by step drawing lesson. 💕How to Draw the Earth wearing a mask: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ycyh24TDZfg">https://www.youtube.com/watch?v=ycyh24TDZfg</a><br />❤️ SUPPLIES You Might Love (Amazon affiliate links): •Sharpies: <a rel="nofollow" target="blank" href="https://amzn.to/2PXvbf4">https://amzn.to/2PXvbf4</a><br />•Sketch Pad Mini: <a rel="nofollow" target="blank" href="https://amzn.to/2YnwpmC">https://amzn.to/2YnwpmC</a><br />•Sketch Pencils: <a rel="nofollow" target="blank" href="https://amzn.to/2W15lfx">https://amzn.to/2W15lfx</a><br />•Prismacolor Color Pencils: <a rel="nofollow" target="blank" href="https://amzn.to/2YldJUD">https://amzn.to/2YldJUD</a><br />•Marker Paper: <a rel="nofollow" target="blank" href="https://amzn.to/2W5pfpX">https://amzn.to/2W5pfpX</a><br />•Prismacolor Markers: <a rel="nofollow" target="blank" href="https://amzn.to/2VhI1FR">https://amzn.to/2VhI1FR</a><br />•Copic Markers: <a rel="nofollow" target="blank" href="https://amzn.to/2E6vC1Y">https://amzn.to/2E6vC1Y</a>   <a rel="nofollow" target="blank" href="https://amzn.to/3amHZF4">https://amzn.to/3amHZF4</a><br /><br />#howtodraw  #drawsocute<br />★Easy, simple follow along drawing lessons for beginners. Fun, Cute art . ★Learn How to Draw the EASY, Step by Step Way while having fun and building skills and confidence. Learning videos for all ages.<br />★Drawing Tutorials on everything<br />★You can learn how to color with markers, color pencils and much more. <br />★FUN ART CHALLENGES, DIY's and Coloring Pages and Activities can also be found here!<br />★Celebrate Mother's Day, Father's Day, Christmas, Valentines, New Years, Birthdays, etc. with Cute drawings just for the occasion!<br />Enjoy Art and have fun being creative and becoming an artist! ❤<br /><br />❤SUBSCRIBE: <a rel="nofollow" target="blank" href="http://www.youtube.com/channel/UC3dEv...">http://www.youtube.com/channel/UC3dEv...</a><br /><br />-Website: <a rel="nofollow" target="blank" href="http://www.drawsocute.com">http://www.drawsocute.com</a> <br />-Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/drawsoocute">http://www.facebook.com/drawsoocute</a><br />-Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/drawsocutebywen...">https://instagram.com/drawsocutebywen...</a><br />Have a GREAT day and see YOU later! :){% endraw %}
