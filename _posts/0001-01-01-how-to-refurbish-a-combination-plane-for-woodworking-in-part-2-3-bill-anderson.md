@@ -1,0 +1,15 @@
+---
+title: "How to Refurbish a Combination Plane for Woodworking"
+image: "https:\/\/i.ytimg.com\/vi\/_df6-WU1Bdw\/hqdefault.jpg"
+vid_id: "_df6-WU1Bdw"
+categories: "Howto-Style"
+tags: ["woodwork","woodworking","traditional woodworking"]
+date: "2022-02-09T13:51:02+03:00"
+vid_date: "2020-02-12T13:29:06Z"
+duration: "PT8M5S"
+viewcount: "15737"
+likeCount: "287"
+dislikeCount: ""
+channel: "Wood and Shop"
+---
+{% raw %}In part 2/3 Bill Anderson talks about how to refurbish a vintage combination plane, like the Stanley 45 or 55. This excerpt comes from the 4.75 hour video “Choosing, Refurbishing, and Using Joinery Handplanes with Bill Anderson”, which you can download here: <a rel="nofollow" target="blank" href="https://store.woodandshop.com/product/digital-download-choosing-refurbishing-and-using-joinery-handplanes-with-bill-anderson/">https://store.woodandshop.com/product/digital-download-choosing-refurbishing-and-using-joinery-handplanes-with-bill-anderson/</a><br /><br />✪ Part 1: &quot;Choosing &amp; Buying a Combination Plane&quot;: <a rel="nofollow" target="blank" href="https://youtu.be/pWe9LpD2v1M">https://youtu.be/pWe9LpD2v1M</a><br />✪ Part 2: &quot;How to Refurbish a Combination Plane&quot;: <a rel="nofollow" target="blank" href="https://youtu.be/_df6-WU1Bdw">https://youtu.be/_df6-WU1Bdw</a><br />✪ Part 3: &quot;How to Use a Combination Plane&quot; (coming soon)<br /><br />✪ See vintage combination planes for sale: <a rel="nofollow" target="blank" href="https://ebay.to/3855VM4">https://ebay.to/3855VM4</a><br /><br />✪ Subscribe to my channel for regular woodworking tutorials, workshop tours, &amp; reviews: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/WoodAndShop">https://www.youtube.com/user/WoodAndShop</a><br /><br />✪ Get free woodworking updates, tips, and workshop tours in our regular email newsletter: <br /><a rel="nofollow" target="blank" href="https://woodandshop.com/subscribe/">https://woodandshop.com/subscribe/</a><br /><br />✪ Visit our website for amazing traditional woodworking lessons &amp; projects:<br /><a rel="nofollow" target="blank" href="https://woodandshop.com/">https://woodandshop.com/</a><br /><br />✪ See our Woodworker's Hand Tool Buying Guides: <br /><a rel="nofollow" target="blank" href="https://woodandshop.com/which-hand-tools-do-you-need-for-traditional-woodworking/">https://woodandshop.com/which-hand-tools-do-you-need-for-traditional-woodworking/</a><br /><br />✪ Watch our Amazing Woodworking Workshop Tours: <a rel="nofollow" target="blank" href="https://woodandshop.com/traditional-woodworking-index/">https://woodandshop.com/traditional-woodworking-index/</a><br /><br />✪ See my Traditional Woodworking School: <a rel="nofollow" target="blank" href="https://woodandshop.com/school">https://woodandshop.com/school</a><br /><br />✪ Join my free Hand Tool Woodworking Forum: <a rel="nofollow" target="blank" href="https://woodandshop.com/forum/">https://woodandshop.com/forum/</a><br /><br />✪ Shop at my Traditional Woodworker's Store: <a rel="nofollow" target="blank" href="https://store.woodandshop.com/">https://store.woodandshop.com/</a>{% endraw %}
