@@ -1,0 +1,15 @@
+---
+title: "They Fight | MAGNIFY | FOX SPORTS FILMS"
+image: "https:\/\/i.ytimg.com\/vi\/eYiEr6iwOb8\/hqdefault.jpg"
+vid_id: "eYiEr6iwOb8"
+categories: "Sports"
+tags: ["fox","fox sports","fs1"]
+date: "2022-02-09T09:51:22+03:00"
+vid_date: "2018-10-31T19:04:47Z"
+duration: "PT2M21S"
+viewcount: "33965"
+likeCount: "416"
+dislikeCount: ""
+channel: "FOX Sports"
+---
+{% raw %}From Common’s Freedom Road Productions, Argent Pictures and North of Now, FOX Sports Films is proud to present the next installment in its MAGNIFY series: “They Fight.” Set in Washington, D.C.’s Ward 8 neighborhood, the documentary follows the story of boxing stars Ragahleak “Peanut” Bartee and Quincey Williams’ journeys as part of the Lyfe Style Boxing training program. “They Fight” premieres November 11th on FOX.<br /><br />SUBSCRIBE to get the latest FOX Sports content: <a rel="nofollow" target="blank" href="http://foxs.pt/SubscribeFOXSPORTS">http://foxs.pt/SubscribeFOXSPORTS</a><br /><br />▶First Things First's YouTube channel: <a rel="nofollow" target="blank" href="http://foxs.pt/SubscribeFIRSTTHINGSFIRST">http://foxs.pt/SubscribeFIRSTTHINGSFIRST</a><br />►UNDISPUTED’s YouTube channel: <a rel="nofollow" target="blank" href="http://foxs.pt/SubscribeUNDISPUTED">http://foxs.pt/SubscribeUNDISPUTED</a> <br />▶The Herd with Colin Cowherd’s YouTube channel: <a rel="nofollow" target="blank" href="http://foxs.pt/SubscribeTHEHERD">http://foxs.pt/SubscribeTHEHERD</a><br />▶Speak For Yourself's YouTube Channel: <a rel="nofollow" target="blank" href="http://foxs.pt/SubscribeSPEAKFORYOURSELF">http://foxs.pt/SubscribeSPEAKFORYOURSELF</a><br />►UFC on FOX’s YouTube channel: <a rel="nofollow" target="blank" href="http://foxs.pt/SubscribeUFCONFOX">http://foxs.pt/SubscribeUFCONFOX</a><br />►FOX Soccer’s YouTube channel: <a rel="nofollow" target="blank" href="http://foxs.pt/SubscribeFOXSOCCER">http://foxs.pt/SubscribeFOXSOCCER</a><br /><br />Like Fox Sports on Facebook: <a rel="nofollow" target="blank" href="http://foxs.pt/FOXSPORTSFacebook">http://foxs.pt/FOXSPORTSFacebook</a><br />Follow Fox Sports on Twitter: <a rel="nofollow" target="blank" href="http://foxs.pt/FOXSPORTSTwitter">http://foxs.pt/FOXSPORTSTwitter</a> <br />Follow Fox Sports on Instagram: <a rel="nofollow" target="blank" href="http://foxs.pt/FOXSPORTSInstagram">http://foxs.pt/FOXSPORTSInstagram</a><br /><br />About FOX Sports:<br />With exclusive highlights, original programming, and behind the scenes footage, FOX Sports' YouTube channel provides the sports content that fans are hungry for. FOX Sports coverage includes: College Basketball, College Football, MLB, NASCAR, NFL, Soccer, UFC, USGA events and the FIFA World Cup. FS1 original programs include: Undisputed, The Herd, Speak for Yourself, First Things First and more.<br /><br />They Fight | MAGNIFY | FOX SPORTS FILMS<br /><a rel="nofollow" target="blank" href="https://youtu.be/eYiEr6iwOb8">https://youtu.be/eYiEr6iwOb8</a><br /><br />Fox Sports<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/FoxSports">https://www.youtube.com/c/FoxSports</a>{% endraw %}
