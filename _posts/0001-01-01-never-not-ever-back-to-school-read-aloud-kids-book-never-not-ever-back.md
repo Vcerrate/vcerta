@@ -1,0 +1,15 @@
+---
+title: "NEVER, Not EVER! ❌ Back to School Read Aloud Kids Book"
+image: "https:\/\/i.ytimg.com\/vi\/nvGfzZSpMYk\/hqdefault.jpg"
+vid_id: "nvGfzZSpMYk"
+categories: "Education"
+tags: ["kids books","kid stories","childrens books"]
+date: "2022-02-10T01:54:32+03:00"
+vid_date: "2021-08-04T13:00:23Z"
+duration: "PT13M41S"
+viewcount: "178858"
+likeCount: "657"
+dislikeCount: ""
+channel: "KidTimeStoryTime"
+---
+{% raw %}Never, Not Ever! Back to School Read Aloud Kids Book has the CUTEST BAT EVERRRR. She's adorable but for one little flaw. She REFUSES to go to school... unless she shrinks her parents and takes them to school with her! It's a &quot;batty&quot; KidTime StoryTime about learning to fly on your own. <br />This instant classic from award-winning picture book creator Beatrice Alemagna reminds us that small children need their parents to be close by . . . just not TOO close. And the setting in a lakeside forest full of little animal kids and little animal schools is irresistibly adorable.  It comes to us from HarperKids.<br /><br />VISIT OUR WEBSITE FOR FREEBIES &amp; TEACHER STUFF:<br /><a rel="nofollow" target="blank" href="http://KidTimeStoryTime.com/">http://KidTimeStoryTime.com/</a><br /><br />BUY THE BOOK HERE:<br /><a rel="nofollow" target="blank" href="https://kidtimestorytime.com/go/never-not-ever/">https://kidtimestorytime.com/go/never-not-ever/</a><br /><br />BUY PERSONALIZED VIDEOS FROM STORYTELLER &amp; THE PUPPETS:<br /><a rel="nofollow" target="blank" href="https://kidtimestorytime.com/greetings/">https://kidtimestorytime.com/greetings/</a><br /><br />SUBSCRIBE &amp; BECOME A KidTime StoryTimer! <br /><a rel="nofollow" target="blank" href="http://ow.ly/59um50zq812">http://ow.ly/59um50zq812</a><br /><br />KidTime StoryTime is a Kids YouTube Channel all about kids books read aloud with love, funny voices &amp; wacky puppets...to entertain, educate &amp; inspire a love of reading! StoryTeller &amp; her peppy puppets read aloud all kinds of children stories every week. From monsters to princesses to dinosaurs, Disney books, the ABCs, even bilingual and nonfiction story time! Ideal from birth through approximately 99 years of age.  Because kids books are seriously awesome &amp; surprisingly deep. No Kidding.<br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/KidTimeStoryTime/">https://www.facebook.com/KidTimeStoryTime/</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/kidtimestorytime/">https://www.instagram.com/kidtimestorytime/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/KidTimeStory">https://twitter.com/KidTimeStory</a><br />Website: <a rel="nofollow" target="blank" href="http://KidTimeStoryTime.com">http://KidTimeStoryTime.com</a><br />Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/KidTimeStoryTime">https://www.patreon.com/KidTimeStoryTime</a><br /><br />0:00 Never, Not Ever!<br />1:38 Book Start<br />12:27 Book End<br />12:38 Witcheficent<br />13:10 Doug and Green Bear return<br /><br />#KidTimeStoryTime<br />#kidsbooksreadaloud{% endraw %}
