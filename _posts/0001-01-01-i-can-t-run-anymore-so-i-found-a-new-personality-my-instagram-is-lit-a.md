@@ -1,0 +1,15 @@
+---
+title: "I CAN'T RUN ANYMORE so I found a new personality"
+image: "https:\/\/i.ytimg.com\/vi\/T6R69vXyseo\/hqdefault.jpg"
+vid_id: "T6R69vXyseo"
+categories: "People-Blogs"
+tags: ["CAN'T","ANYMORE","found"]
+date: "2022-02-10T21:23:57+03:00"
+vid_date: "2022-02-10T01:52:07Z"
+duration: "PT17M16S"
+viewcount: "6220"
+likeCount: "293"
+dislikeCount: ""
+channel: "Emma Abrahamson"
+---
+{% raw %}MY INSTAGRAM IS LIT: <a rel="nofollow" target="blank" href="http://instagram.com/emmaabrahamson/">http://instagram.com/emmaabrahamson/</a><br /><br />CHECK OUT MY PODCAST: <a rel="nofollow" target="blank" href="https://podcasts.apple.com/us/podcast/convos-over-cold-brew-with-emma-abrahamson/id1514630686">https://podcasts.apple.com/us/podcast/convos-over-cold-brew-with-emma-abrahamson/id1514630686</a><br /><br />Enneagram test: <a rel="nofollow" target="blank" href="https://www.truity.com/test/enneagram-personality-test">https://www.truity.com/test/enneagram-personality-test</a><br /><br />*Everywhere Belt Bag: <a rel="nofollow" target="blank" href="https://rstyle.me/cz-n/fzf5gfcxz5f">https://rstyle.me/cz-n/fzf5gfcxz5f</a><br />*Platform Ugg Boots: <a rel="nofollow" target="blank" href="https://rstyle.me/cz-n/fzadqrcxz5f">https://rstyle.me/cz-n/fzadqrcxz5f</a><br />*Girlfriend Collective Bodysuit: <a rel="nofollow" target="blank" href="https://rstyle.me/cz-n/frwd5ucxz5f">https://rstyle.me/cz-n/frwd5ucxz5f</a><br />*Nike Pullover: <a rel="nofollow" target="blank" href="https://rstyle.me/cz-n/fzkwxvcxz5f">https://rstyle.me/cz-n/fzkwxvcxz5f</a><br /><br />My food Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/onecrazedfoodie/">https://www.instagram.com/onecrazedfoodie/</a><br />My TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@emmaabrahamson4?lang=en&amp;is_copy_url=1&amp;is_from_webapp=v1">https://www.tiktok.com/@emmaabrahamson4?lang=en&amp;is_copy_url=1&amp;is_from_webapp=v1</a><br /><br />*NUUN (use code EMMA25 for 25% off): <a rel="nofollow" target="blank" href="https://nuun.life/emma">https://nuun.life/emma</a><br />*GARMIN: <a rel="nofollow" target="blank" href="https://bit.ly/3cBymFa">https://bit.ly/3cBymFa</a><br />*BEAM (use code EMMA for 15% off): <a rel="nofollow" target="blank" href="https://glnk.io/nw40/onecrazedfoodie">https://glnk.io/nw40/onecrazedfoodie</a><br />Crazed Foods: <a rel="nofollow" target="blank" href="https://www.amazon.com/stores/page/D464D9AC-764D-49BC-A59D-96786E517B01?ingress=3">https://www.amazon.com/stores/page/D464D9AC-764D-49BC-A59D-96786E517B01?ingress=3</a><br />*immi Ramen (use code EMMA for $5 off): <a rel="nofollow" target="blank" href="https://shop.immieats.com/Emma">https://shop.immieats.com/Emma</a><br /><br />*Canon EOS M50: <a rel="nofollow" target="blank" href="https://rstyle.me/cz-n/f6yh8qcxz5f">https://rstyle.me/cz-n/f6yh8qcxz5f</a><br />*Wide Angle Lens: <a rel="nofollow" target="blank" href="https://amzn.to/3nvbj52">https://amzn.to/3nvbj52</a><br /><br />*These links are affiliates links. Thank you for supporting this channel and helping me continue to create that quality content for you fellas!{% endraw %}
