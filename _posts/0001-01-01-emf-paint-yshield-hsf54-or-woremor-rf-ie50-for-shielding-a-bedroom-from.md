@@ -1,0 +1,15 @@
+---
+title: "EMF Paint YShield HSF54 or WOREMOR RF-IE50 for Shielding a Bedroom From a Cell Tower RF Radiation"
+image: "https:\/\/i.ytimg.com\/vi\/JidHf1PWAVs\/hqdefault.jpg"
+vid_id: "JidHf1PWAVs"
+categories: "Howto-Style"
+tags: ["Safety","Home Improvement","EMF"]
+date: "2022-02-10T21:39:28+03:00"
+vid_date: "2016-02-11T15:41:55Z"
+duration: "PT3M59S"
+viewcount: "222007"
+likeCount: "2801"
+dislikeCount: ""
+channel: "EMR Shielding Solutions"
+---
+{% raw %}In this video, EMR Shielding Solutions www.emrss.com is demonstrating how to apply the YShield HSF54 or the WOREMOR RF-IE50 EMF protection paint.<br />WOREMOR and YShield paint are manufactured in Germany. The RF paint is proven to be very effective and affordable solution for blocking EMF radiation. It contains very low VOC level. <br /><br />I would like to mention some of the important points our EMF inspectors and technicians are taking into consideration when applying the EMF paint:<br /><br />1. Mixing the paint for about 1 minute before opening the pail.<br />2. Measuring and identifying the source of EMF radiation. (In our case, the source is from the cell towers. One is located in front of the bedroom (about 200 meters from the house), and another cell tower is located to the right of the bedroom (about 500 meters from the house). The RF signals are directional, therefore once we identified the sources it was sufficient to paint the walls or ceilings that are facing the cell towers directly).<br />3. Attaching the grounding straps to the walls. (It is important to apply the grounding strap first and then begin painting over the grounding strap. The reason is that the grounding strap is conductive only on the top side. The bottom side is only adhesive).<br />4. Applying the EMF paint is straightforward, just as any regular paint. The EMF paint could also be applied on the baseboards and doors if needed.<br />5. Once the paint applied the grounding plate needs to be attached to the wall. Licensed electrician needs to perform the grounding. Usually, electricians charge about 30$ for connecting the grounding plate to the ground and verifying that the ground is good.<br />6. The paint blocking effectiveness needs to be tested after the paint is fully dry. To achieve higher protection, another layer of paint can be applied.<br />7. All openings, such as doors and windows, are needed to be covered. We are usually using WOREMOR Fabric with 40db attenuation to sew curtains for the windows.<br />7.  The EMF paint is black, therefore, two layers of regular paint are required to cover the black paint completely.<br /><br />For your safety, read the instructions and the MSDS that are attached to the paint pail. This information is also available on our web site.<br /><br />The project in the video was not intended to be published, therefore, the EMF readings before and after were not recorded.<br /><br />This video was created as a result of our customers’ requests to have an idea about how to use the paint.{% endraw %}
