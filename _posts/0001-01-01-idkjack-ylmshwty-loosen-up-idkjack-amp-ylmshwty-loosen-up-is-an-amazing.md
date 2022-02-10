@@ -1,0 +1,15 @@
+---
+title: "idkjack & ylmshwty - Loosen Up"
+image: "https:\/\/i.ytimg.com\/vi\/EA6GCAaV4h4\/hqdefault.jpg"
+vid_id: "EA6GCAaV4h4"
+categories: "Music"
+tags: ["Promoting Sounds","chill rap","rap"]
+date: "2022-02-11T00:32:18+03:00"
+vid_date: "2022-02-07T16:25:59Z"
+duration: "PT2M46S"
+viewcount: "25909"
+likeCount: "1852"
+dislikeCount: ""
+channel: "Promoting Sounds"
+---
+{% raw %}idkjack &amp; ylmshwty - Loosen Up is an amazing new song from the underrated artists, and such a good chill vibe, with some Powfu / tommy ice / Post Malone vibes. Enjoy!<br /><br />Artist Social Networks:<br />[YLM SHWTY]<br /><a rel="nofollow" target="blank" href="https://soundcloud.com/ylmshwty">https://soundcloud.com/ylmshwty</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/ylmshwty/">https://www.instagram.com/ylmshwty/</a><br /><br />[IDKJACK]<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/jackidkjack/">https://www.instagram.com/jackidkjack/</a><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/idkjack">https://soundcloud.com/idkjack</a><br /><br />Chapters:<br />0:00 - Intro,<br />0:21 - Beat Drop,<br />1:02 - Featured Comment,<br />2:25 - My song recommendation, <br /><br />Support Promoting Sounds:<br />🎧 - <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/5b0j3TTNSKCByBq4rHYKvG?si=GvWAqqYuTPeoB8owkh51DA">https://open.spotify.com/artist/5b0j3TTNSKCByBq4rHYKvG?si=GvWAqqYuTPeoB8owkh51DA</a><br />🎧 - <a rel="nofollow" target="blank" href="https://soundcloud.com/promotedsounds">https://soundcloud.com/promotedsounds</a><br />🗣️ - <a rel="nofollow" target="blank" href="http://instagram.com/promotingsounds/">http://instagram.com/promotingsounds/</a><br />🗣️ -<a rel="nofollow" target="blank" href="https://twitter.com/PromotingSounds">https://twitter.com/PromotingSounds</a><br /><br />Promoting Sounds is a curation channel for official songs with aims to display the best underrated rap songs, aesthetic rap, sad rap, chill rap, non-copyright songs for gaming, including gaming songs for fortnite, valorant and free fire. The channel includes artists like: Juice WRLD, 637godwin, MEMORIA XI, The Kid LAROI, 1nonly, 22december!, Basco, Kodoku, the kid LAROI, MATHIAS. , Eredaze, MBK Pook, Ouse, Darius King, tommy ice, Phil Smooth, raeusi, Bri-C, Kevin Powers,  Lil Peep, 7RU7H, SadBoyProlific, iann dior, Post Malone, killval, 6o, lil tecca, nick mira, Thekidszn, Rxseboy, Rarin, Killbunk, Pmbata, Arizona Zervas, Polo G. Be sure to comment below what you think of the chill and sad feels music.<br /><br />#PromotingSounds #Rap #NonCopyright{% endraw %}
