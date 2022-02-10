@@ -1,0 +1,15 @@
+---
+title: "Adele - Easy On Me (Lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/y88XlONQh8k\/hqdefault.jpg"
+vid_id: "y88XlONQh8k"
+categories: "Music"
+tags: ["Lyrics Sound","Adele","Easy On Me"]
+date: "2022-02-10T12:38:24+03:00"
+vid_date: "2022-02-06T14:33:50Z"
+duration: "PT4M31S"
+viewcount: "657407"
+likeCount: "7233"
+dislikeCount: ""
+channel: "Lyrics Sound"
+---
+{% raw %}Subscribe and press (🔔) to join the Notification Squad and stay updated with new uploads<br /><br />Official Video for &quot;Easy On Me&quot; by Adele.<br />Shop the &quot;Adele&quot; collection here: <a rel="nofollow" target="blank" href="http://shop.adele.com">http://shop.adele.com</a><br /><br />Follow Adele:<br />Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/Adele">https://www.facebook.com/Adele</a> <br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/Adele">https://twitter.com/Adele</a> <br />Instagram - <a rel="nofollow" target="blank" href="http://instagram.com/Adele">http://instagram.com/Adele</a><br /><br />Follow Lyrics Sound:<br /><a rel="nofollow" target="blank" href="http://Instagram.com/lyrics_sound_youtube">http://Instagram.com/lyrics_sound_youtube</a><br /><br />📷 Wallpaper: <a rel="nofollow" target="blank" href="https://unsplash.com">https://unsplash.com</a><br /><br />©️ If any producer or label has an issue with this song or picture, please get in contact with us and we will delete it immediately.<br /><br />#Adele #EasyOnMe #Lyrics<br /><br />Lyrics:<br /><br />[Verse 1]<br />There ain't no gold in this river<br />That I've been washin' my hands in forever<br />I know there is hope in these waters<br />But I can't bring myself to swim<br />When I am drowning in this silence<br />Baby, let me in<br /><br />[Chorus]<br />Go easy on me, baby<br />I was still a child<br />Didn't get the chance to<br />Feel the world around me<br />I had no time to choose what I chose to do<br />So go easy on me<br /><br />[Verse 2]<br />There ain't no room for things to change<br />When we are both so deeply stuck in our ways<br />You can't deny how hard I have tried<br />I changed who I was to put you both first<br />But now I give up<br /><br />[Chorus]<br />Go easy on me, baby<br />I was still a child<br />Didn't get the chance to<br />Feel the world around me<br />Had no time to choose what I chose to do<br />So go easy on me<br /><br />[Bridge]<br />I had good intentions<br />And the highest hopes<br />But I know right now<br />It probably doesn't even show<br /><br />[Chorus]<br />Go easy on me, baby<br />I was still a child<br />I didn't get the chance to<br />Feel the world around me<br />I had no time to choose what I chose to do<br />So go easy on me<br /><br />Tags ✏️<br />Adele, Easy On Me, Lyrics, Easy On Me Lyrics, Lyrics Easy On Me, Adele Easy On Me, Easy On Me Adele, Adele Easy On Me Lyrics, Adele Lyrics Easy On Me, Easy On Me Lyrics Adele, Easy On Me Adele Adele, Lyrics Adele Easy On Me, Lyrics Easy On Me Adele,<br /><br />#LyricsSound{% endraw %}
