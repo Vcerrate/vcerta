@@ -1,0 +1,15 @@
+---
+title: "What is a Fixed Filter Bank? | Chaos + Control with Zlob VC F3DB"
+image: "https:\/\/i.ytimg.com\/vi\/GrG0ex-0OnU\/hqdefault.jpg"
+vid_id: "GrG0ex-0OnU"
+categories: "Music"
+tags: ["sarah belle reid","sarah reid","trumpet"]
+date: "2022-02-10T08:05:17+03:00"
+vid_date: "2021-07-29T16:00:12Z"
+duration: "PT31M55S"
+viewcount: "7209"
+likeCount: "413"
+dislikeCount: ""
+channel: "Sarah Belle Reid"
+---
+{% raw %}In this video, we explore the history of fixed filter banks in synthesizers (what they are, how they work), demonstrate some classic fixed filter bank concepts, and then dive into a series of patch examples exploring the Zlob Modular VC F3DB.<br /><br />Zlob Modular's VC F3DB is a filter bank for Eurorack modular synthesizers. But it's much more than just that as well; while it can produce the clean, dry, nasal tones you might expect from a classic Moog or Buchla filter bank, it is designed to leverage feedback, clipping, and per-band envelope followers, allowing it to act as a chaotic sound source, spectral decoder, and intense distortion.<br /><br />To access extended audio from this video (aaand there's a lot of it!), check out my Patreon page! You're free to use these sounds as materials for you own music, as well:<br />www.patreon.com/sarahbellereid<br /><br />Video Timestamps:<br />00:00 Intro + Video Overview<br />01:40 What's A Fixed Filter Bank?<br />03:36 What's a Filter Bank Good For? <br />07:42 F3DB Module Overview<br />09:53 Patch #1: Clipping<br />11:37 Patch #2: Adding Modulation<br />16:00 Patch #3: Feedback<br />19:48 Patch #4: Feedback (But Less Crazy This Time)<br />22:00 Patch #5: Feedback with Modulation<br />24:43 Patch #6: Spectral Decoder<br /><br />To find out more about Zlob Modular and the VC F3DB, visit:<br /><a rel="nofollow" target="blank" href="https://zlobmodular.com/">https://zlobmodular.com/</a><br /><br />Explore other modules from Zlob Modular:<br /><a rel="nofollow" target="blank" href="https://link.perfectcircuit.com/t/v1/S0BERUlFSUBFSEZMREZATEpITA?url=https%3A%2F%2Fwww.perfectcircuit.com%2Fzlob-modular">https://link.perfectcircuit.com/t/v1/S0BERUlFSUBFSEZMREZATEpITA?url=https%3A%2F%2Fwww.perfectcircuit.com%2Fzlob-modular</a><br /><br />To learn more about No-Input Mixing, check out my tutorial video here:<br /><a rel="nofollow" target="blank" href="https://youtu.be/oUhfkaVUPY8">https://youtu.be/oUhfkaVUPY8</a><br /><br />------------------------------------------------------------------------------------------------------------------------<br /><br />Sarah Belle Reid is a Canadian performer-composer, active in the fields of electroacoustic trumpet performance, intermedia arts, music technology, and improvisation. <br /><br />www.sarahbellereid.com<br /><br />Join me on Patreon!<br /><br />patreon.com/sarahbellereid<br /><br /><br /><br />Sarah Belle Reid is a Canadian performer-composer, active in the fields of electroacoustic trumpet performance, intermedia arts, music technology, and improvisation. <br /><br /><br /><br />www.sarahbellereid.com{% endraw %}
