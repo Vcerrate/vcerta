@@ -1,0 +1,15 @@
+---
+title: "USA's Obesity Epidemic: Heart Attack Grills, Fat Camps and Plus-Size Beauty Pageants | Documentary"
+image: "https:\/\/i.ytimg.com\/vi\/bm-6_0xiQNc\/hqdefault.jpg"
+vid_id: "bm-6_0xiQNc"
+categories: "News-Politics"
+tags: ["java films","javafilms","javafilmstv"]
+date: "2022-02-10T17:17:01+03:00"
+vid_date: "2021-09-14T16:00:16Z"
+duration: "PT54M6S"
+viewcount: "762626"
+likeCount: "10458"
+dislikeCount: ""
+channel: "Java Discover | Free Global Documentaries & Clips"
+---
+{% raw %}Never in all its history has America been so obese. With 160 million Americans severely overweight, in this documentary explore increasingly aggressive treatments as well as the counter-trend of body positivity and 'Miss Plus' beauty pageants.<br /><br />Despite repeated government efforts to encourage the population to slim down, the obesity rates just keep climbing. <br /><br />Faced with this staggering figure, healthcare professionals are trying to find new, more efficient and more aggressive treatments for this illness… We meet Casey, one of the few people whose weight has become a matter of life and death, and travel to Arizona to see an innovative new academy helping young girls learn healthy habits and slim down.<br /><br />Despite the rising obesity crisis, a new movement is shaking up the United States: body positivity. Through lucrative social media accounts, popular magazine covers and even successful ‘Miss Plus’ beauty pageants, overweight Americans are learning to flaunt their curves and love themselves no matter their size.<br /><br />---<br /><br />SUBSCRIBE for more amazing stories, including free FULL documentaries. At Java Films we have an incredible library of award-winning documentaries: from world-leading investigations to true crime and history, we have something for everyone! <br />Click the SUBSCRIBE button and make sure to set NOTIFICATIONS to stay updated with all new content!<br /><br />Sign up to the Java Films Clubs for exclusive deals and discounts for amazing documentaries - find out first about FREE FULL docs: <a rel="nofollow" target="blank" href="http://eepurl.com/hhNC69">http://eepurl.com/hhNC69</a><br /><br />Head to <a rel="nofollow" target="blank" href="https://www.watchjavafilms.tv/">https://www.watchjavafilms.tv/</a> to check out our catalogue of documentaries available on Demand. <br /><br />You can also find our docs on :<br />Amazon Prime Video: <a rel="nofollow" target="blank" href="https://www.amazon.com/v/javafilms">https://www.amazon.com/v/javafilms</a><br />Vimeo On Demand: <a rel="nofollow" target="blank" href="https://vimeo.com/javafilms/vod_pages">https://vimeo.com/javafilms/vod_pages</a><br /><br />Like us on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/JavaFilms/">https://www.facebook.com/JavaFilms/</a><br />Follow us on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/java_films">https://twitter.com/java_films</a><br />Follow us on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/javafilms.tv/">https://www.instagram.com/javafilms.tv/</a>{% endraw %}
