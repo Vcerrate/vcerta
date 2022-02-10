@@ -1,0 +1,15 @@
+---
+title: "Top 10 Projects You Could do WITHOUT Planning Permission"
+image: "https:\/\/i.ytimg.com\/vi\/AdrSYVJDtvQ\/hqdefault.jpg"
+vid_id: "AdrSYVJDtvQ"
+categories: "Howto-Style"
+tags: ["nextphasedevelopment","nextphasedev","nextphase development"]
+date: "2022-02-10T09:30:09+03:00"
+vid_date: "2020-08-31T18:00:11Z"
+duration: "PT10M23S"
+viewcount: "29471"
+likeCount: "397"
+dislikeCount: ""
+channel: "NextPhase"
+---
+{% raw %}To learn more about how we can help you in the world of development, please visit: <a rel="nofollow" target="blank" href="https://www.nextphase.dev">https://www.nextphase.dev</a><br /><br />In this exciting countdown, Chartered Planning &amp; Development Surveyor, Chris Whitehouse explains to you the top 10 projects you COULD do to your home WITHOUT the need for Planning Permission. Renovating your home can be an exhilarating process but you need to ensure that the area you live in abides by the suitable permitted development rights, we're here to help!<br /><br />Got questions about anything discussed in this video? Drop a comment below and we'll do our best to answer and provide you with all the information you need!<br /><br />TIMESTAMPS:<br />1:41 - Changing windows/doors<br />2:39 - Interior remodelling<br />3:13 - Adding a porch<br />3:40 - Sheds and outbuildings<br />5:01 - Swimming pools<br />5:17 - Garage conversion<br />5:38 - Roof lights<br />6:12 - Loft conversions<br />6:50 - Conservatories and orangeries<br />7:44 - Single story extension<br /><br />Share this video: <a rel="nofollow" target="blank" href="https://youtu.be/AdrSYVJDtvQ">https://youtu.be/AdrSYVJDtvQ</a><br /><br />Learn more about PreApp, our new pre-application service: <a rel="nofollow" target="blank" href="https://www.preapp.co.uk">https://www.preapp.co.uk</a><br /><br />Check out The Developers Series here: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLB1qv36HoIABovrPK-JAL-oy5lzDla4kA">https://www.youtube.com/playlist?list=PLB1qv36HoIABovrPK-JAL-oy5lzDla4kA</a><br /><br />FOLLOW US FOR MORE CONTENT:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/NextPhaseUK">https://www.facebook.com/NextPhaseUK</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/nextphaseuk">https://www.instagram.com/nextphaseuk</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/NextPhase_UK">https://twitter.com/NextPhase_UK</a><br />LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/company/nextphase-development-limited">https://www.linkedin.com/company/nextphase-development-limited</a><br /><br />Subscribe for weekly videos: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCmvMAdcNZQZG1qUYiRb3Tlw?sub_confirmation=1">https://www.youtube.com/channel/UCmvMAdcNZQZG1qUYiRb3Tlw?sub_confirmation=1</a><br /><br />For all your planning and development needs, please contact NextPhase at: mail@nextphase.dev <br /><br />Top 10 Projects You Could do WITHOUT Planning Permission<br />© NextPhase, 2020<br /><br />#PlanningPermission #PropertyDevelopment{% endraw %}
