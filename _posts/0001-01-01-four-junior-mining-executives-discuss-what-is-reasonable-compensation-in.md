@@ -1,0 +1,15 @@
+---
+title: "Four Junior Mining Executives Discuss What Is Reasonable Compensation"
+image: "https:\/\/i.ytimg.com\/vi\/gsuWv-RD6FA\/hqdefault.jpg"
+vid_id: "gsuWv-RD6FA"
+categories: "Education"
+tags: ["mining stocks","junior mining stocks","interview"]
+date: "2022-02-10T13:36:03+03:00"
+vid_date: "2019-10-14T06:00:02Z"
+duration: "PT23M2S"
+viewcount: "1223"
+likeCount: "23"
+dislikeCount: ""
+channel: "MiningStockEducation.com"
+---
+{% raw %}In this episode you will hear from four junior mining executives regarding what constitutes reasonable junior mining company compensation for executives and board members and some things resource investors should look at and consider when analyzing compensation packages.  The discussion is primarily pertinent to pre-revenue juniors not cash-flowing producers.  All four contributors also serve on the board of directors of junior miners and they actively invest their own money in junior mining stocks.  They are Ivan Bebek, Executive Chairman of Auryn Resources, Heye Daun, CEO and Director of Osino Resources; Hugh Agro, President, CEO and Director of Revival Gold; and Doug Ramshaw, President and Director of Minera Alamos.<br /><br />0:05 Introduction<br />2:02 Ivan Bebek of Auryn Resources<br />5:45 Heye Daun of Osino Resources<br />10:56 Hugh Agro of Revival Gold<br />14:58 Doug Ramshaw of Minera Alamos<br /><br />Sign up for our free newsletter and receive interview transcripts, stock profiles and investment ideas: <a rel="nofollow" target="blank" href="http://eepurl.com/cHxJ39">http://eepurl.com/cHxJ39</a> <br /><br />Auryn and Osino are MSE sponsor companies. The content found on MiningStockEducation.com is for informational purposes only and is not to be considered personal legal or investment advice or a recommendation to buy or sell securities or any other product. It is based on opinions, SEC filings, current events, press releases and interviews but is not infallible. It may contain errors and MiningStockEducation.com offers no inferred or explicit warranty as to the accuracy of the information presented. If personal advice is needed, consult a qualified legal, tax or investment professional. Do not base any investment decision on the information contained on MiningStockEducation.com or our videos. We may hold equity positions in and/or be compensated by some of the companies featured on this site and therefore are biased and hold an obvious conflict of interest. MiningStockEducation.com may provide website addresses or links to websites and we disclaim any responsibility for the content of any such other websites. The information you find on MiningStockEducation.com is to be used at your own risk. By reading MiningStockEducation.com, you agree to hold MiningStockEducation.com, its owner, associates, sponsors, affiliates, and partners harmless and to completely release them from any and all liabilities due to any and all losses, damages, or injuries (financial or otherwise) that may be incurred.<br /><br />#gold #goldinvesting #goldstocks #miningstocks #resourceinvesting #investing #pennystocks{% endraw %}
