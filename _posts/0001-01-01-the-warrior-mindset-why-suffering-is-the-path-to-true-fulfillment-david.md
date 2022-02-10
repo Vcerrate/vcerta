@@ -1,0 +1,15 @@
+---
+title: "THE WARRIOR MINDSET - Why Suffering Is The Path To True Fulfillment | David Goggins Motivation"
+image: "https:\/\/i.ytimg.com\/vi\/yTHzmRA_ZZw\/hqdefault.jpg"
+vid_id: "yTHzmRA_ZZw"
+categories: "Education"
+tags: ["success chasers","david goggins","david goggins motivation video"]
+date: "2022-02-10T10:27:30+03:00"
+vid_date: "2019-10-21T14:30:52Z"
+duration: "PT10M55S"
+viewcount: "479113"
+likeCount: "11794"
+dislikeCount: ""
+channel: "SUCCESS CHASERS"
+---
+{% raw %}THE WARRIOR MINDSET - Why Suffering Is The Path To True Fulfillment| David Goggins Motivation<br />Get David Goggins Audiobooks For Free With Audible  - <a rel="nofollow" target="blank" href="https://amzn.to/2zpqHt2">https://amzn.to/2zpqHt2</a><br /><br />===================================================<br /><br />Speaker: DAVID GOGGINS<br /><a rel="nofollow" target="blank" href="https://davidgoggins.com">https://davidgoggins.com</a><br />Book: <a rel="nofollow" target="blank" href="https://amzn.to/2N5MM4X">https://amzn.to/2N5MM4X</a><br /><br />Speaker: Rich Roll<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/richroll66">https://www.youtube.com/user/richroll66</a><br /><br />===================================================<br /><br />Watch the Full Interview: <a rel="nofollow" target="blank" href="https://youtu.be/azROJC2YJ4g">https://youtu.be/azROJC2YJ4g</a><br /><br />===================================================<br /><br />*Footage<br /><br />All the footage are licensed through Storyblocks &amp; Artgrid.<br /><br /><br />*Music from Epidemic Sound<br /><br />===================================================<br /><br />I'm a 22 year old video editor. I'm passionate about self-development and I created this channel with the mission and hope of motivating and helping anybody who is going through a difficult time.<br /><br />*All the footage I use in my videos are licensed through Videoblocks.<br /><br />**All the sound I use in my videos are licensed through EpidemicSound<br /><br />***Copyright disclaimer:<br />We own commercial licenses for all the content used in this video.<br /><br />===================================================<br /><br />*FAIR-USE COPYRIGHT DISCLAIMER*<br /><br />* Copyright Disclaimer Under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, commenting, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational or personal use tips the balance in favor of fair use.<br /><br />1)This video has no negative impact on the original works (It would actually be positive for them)<br />2)This video is also for teaching purposes.<br />3)It is not transformative in nature.<br />4)I only used bits and pieces of videos to get the point across where necessary.<br /><br />===================================================<br /><br />#DavidGoggins #SuccessChasers #Motivation{% endraw %}
