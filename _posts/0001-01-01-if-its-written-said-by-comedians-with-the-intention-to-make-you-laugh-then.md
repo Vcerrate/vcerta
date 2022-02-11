@@ -1,0 +1,15 @@
+---
+title: "If Its Written & Said By COMEDIANS With The Intention To Make You LAUGH… Then LAUGH! Its ok to Laugh"
+image: "https:\/\/i.ytimg.com\/vi\/DLBUc6ZeaAA\/hqdefault.jpg"
+vid_id: "DLBUc6ZeaAA"
+categories: "Comedy"
+tags: ["Bernard manning","Chubby brown","Les dawson"]
+date: "2022-02-11T11:04:18+03:00"
+vid_date: "2021-12-31T20:54:37Z"
+duration: "PT3M20S"
+viewcount: "17"
+likeCount: ""
+dislikeCount: ""
+channel: "J̤̮M̤̮C̤̮"
+---
+{% raw %}Bernard manning<br />British comedy stand up legend<br />Controversial by critics but its comedy. Its humour. Its fucking hilarious. <br />God rest his soul <br />#standupcomedy #comedy #standupgreats<br /> #eminem #rap #hiphop #slimshady #marshallmathers #music #rapgod #rapper #eminemfan #stan #eminemedits #drdre #50cent #pac #eminemfans #drake #eminemquotes #eminemforever #eminemstan #mmlp #eminemmemes #snoopdogg #eminemlyrics #shady #8mile #kamikaze #eminemvideos #shadyrecords #king<br />#eminemfanpage #tupac #rapmusic #kendricklamar #musictobemurderedby #d12 #jayz #kanyewest #hiphopmusic #eminemmusic #theeminemshow #eminemrapgod #ever #life #recovery #icecube #detroit #nas #marshall #revival #eminemlove #jcole #lilwayne #brabbit #mtbmb #marshallmatherslp #eazye #rappers Advent,christmas,Xmas,Gift,Calendar,Festive,Merry,Fitness channel,Help guides and tutorials,inspire,Drive,Goals,Gym,Hard work,Life,Healthy living,Yoga,Stretch,Babes,Eat my shorts,Tiktok,Viral videos on YouTube,Epic,Thanks,babe,sexy,sexiest,models,hardwork,bubble butt,pawg,eatmyshorts,yogaandstretching,stretching at home,workout at home,ab workout,abigail ratchford,miami swim,swimwear,fashion show,beauty pageant,bikini contest,bikini model,bull riding,cowgirl,jade rose,demi rose,mia malkova,uma jolie,jenna jameson,jennifer lopez,alexis texas,megan rain, try on hauls,workout at home, brazilian butt, bubble butt workout exercise,big bank challenge,big bank challenge tiktok big bank,small waist pretty face with a big bank,big bang tiktok,small waist pretty face with a big bank tiktok<br />challenge compilation,small waist pretty face tiktok compilation, buss it tiktok,pretty face with a big bank tiktok, tiktok dances 2021, tik tok, tik tokchallenge, tiktokchallenge, big bank, pretty face,tiktok big bank challenge ,best of tiktok, tiktok dance trends, tiktok leggings, leggings, tiktok, viral tiktok leggings,trending tiktok leggings,tiktok leggings challenge, amazon leggings, tik tok leggings, funny tiktok legging, tiktok challenge,tiktok viral, leggings tiktok, cheap leggings, tiktok leggings haul, leggings on tiktok,leggings auf tiktok, virale tiktok leggings,famous tiktok leggings,leggings from tiktok,testing tiktok leggings, tiktok leggings worth it, trending leggings, TikTok World,Ufc,ufc269,poirer,dustin,oliviera, charles dustin ufc dana white dominic cruz knock out, bundles kayla nicole tiktok, tiktok dance, bundles tik tok,<br />tiktok dances, bundles remix dance, bundles tiktok song,<br />bundles dance, kayla nicole bundles, bundles kayla<br />nicole, tiktok bundles, bundles tiktok dance, bundles{% endraw %}
