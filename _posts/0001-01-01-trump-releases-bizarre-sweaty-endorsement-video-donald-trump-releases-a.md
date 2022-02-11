@@ -1,0 +1,15 @@
+---
+title: "Trump Releases Bizarre Sweaty Endorsement Video"
+image: "https:\/\/i.ytimg.com\/vi\/Q2LEY4UwsY4\/hqdefault.jpg"
+vid_id: "Q2LEY4UwsY4"
+categories: "News-Politics"
+tags: ["trump endorsement video","trump endorsement","trump vernon jones"]
+date: "2022-02-11T08:24:10+03:00"
+vid_date: "2022-02-11T03:30:08Z"
+duration: "PT5M20S"
+viewcount: "27418"
+likeCount: "2650"
+dislikeCount: ""
+channel: "David Pakman Show"
+---
+{% raw %}--Donald Trump releases a bizarre, sweaty endorsement video for Republican Vernon Jones, who has dropped out of the Georgia Senate race and is instead running for Georgia Congressman<br />▶️ Try ThoughtLeaders for $30 using code PAKMAN at <a rel="nofollow" target="blank" href="https://www.thoughtleaders.io/lc/pakman">https://www.thoughtleaders.io/lc/pakman</a><br />---<br />Become a Member: <a rel="nofollow" target="blank" href="https://www.davidpakman.com/membership">https://www.davidpakman.com/membership</a><br />Become a Patron: <a rel="nofollow" target="blank" href="https://www.patreon.com/davidpakmanshow">https://www.patreon.com/davidpakmanshow</a><br />Book David Pakman: <a rel="nofollow" target="blank" href="https://www.cameo.com/davidpakman">https://www.cameo.com/davidpakman</a><br />---<br />Subscribe to the SECOND channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/pakmanlive">https://www.youtube.com/pakmanlive</a><br />Follow David on Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/dpakman">http://www.twitter.com/dpakman</a><br />David on Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/david.pakman">http://www.instagram.com/david.pakman</a><br />TDPS Subreddit: <a rel="nofollow" target="blank" href="http://www.reddit.com/r/thedavidpakmanshow/">http://www.reddit.com/r/thedavidpakmanshow/</a><br />Pakman Discord: <a rel="nofollow" target="blank" href="https://www.davidpakman.com/discord">https://www.davidpakman.com/discord</a><br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/davidpakmanshow">http://www.facebook.com/davidpakmanshow</a><br />Leave a Voicemail Line: (219)-2DAVIDP<br />---<br />David tech:<br />-Camera: Sony PXW-X70 <a rel="nofollow" target="blank" href="https://amzn.to/3emv1v1">https://amzn.to/3emv1v1</a><br />-Microphone: Shure SM7B: <a rel="nofollow" target="blank" href="https://amzn.to/3hEVtSH">https://amzn.to/3hEVtSH</a><br />-Voice Processor: dbx 266xs <a rel="nofollow" target="blank" href="https://amzn.to/3B1SV8N">https://amzn.to/3B1SV8N</a><br />-Stream Controller: Elgato Stream Deck <a rel="nofollow" target="blank" href="https://amzn.to/3B4jPNq">https://amzn.to/3B4jPNq</a><br />-Microphone Cloudlifter: <a rel="nofollow" target="blank" href="https://amzn.to/2T9bhne">https://amzn.to/2T9bhne</a><br /><br />-Timely news is important! We upload new clips every day! Make sure to subscribe!<br /><br />Broadcast on February 10, 2022<br /><br />#davidpakmanshow #trump #endorsement{% endraw %}
