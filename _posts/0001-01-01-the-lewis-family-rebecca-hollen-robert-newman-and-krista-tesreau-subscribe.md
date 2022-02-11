@@ -1,0 +1,15 @@
+---
+title: "The Lewis Family - Rebecca Hollen, Robert Newman and Krista Tesreau"
+image: "https:\/\/i.ytimg.com\/vi\/woHkIhRB1Zw\/hqdefault.jpg"
+vid_id: "woHkIhRB1Zw"
+categories: "Entertainment"
+tags: ["Lewis","Family","Rebecca"]
+date: "2022-02-12T02:55:48+03:00"
+vid_date: "2022-02-11T21:09:49Z"
+duration: "PT1H4M47S"
+viewcount: "817"
+likeCount: "101"
+dislikeCount: ""
+channel: "The Locher Room"
+---
+{% raw %}Subscribe to The Locher Room: <a rel="nofollow" target="blank" href="https://bit.ly/TheLocherRoom">https://bit.ly/TheLocherRoom</a><br /><br /><br /><br />Catch up with The Lewis Family live in The Locher Room on Friday, February 11th at 3 p.m. EST / 12 p.m. PST. Joining me for the hour are Rebecca Hollen (Trish), Robert Newman (Josh) and Krista Tesreau Strauss (Melinda Sue). Rebecca Hollen was the first Lewis to arrive in Springfield in August of 1981 with Robert Newman following soon after in 1981 and with Krista Tesreau joining in 1983.  <br /><br /><br /><br />Rebecca made her daytime television debut on As the World Turns in the role of Tina Cornell in 1978 before joining Guiding Light in 1981. She played the role of Trish until November of 1985 and returned to the show a few times over the years. In addition to Tina and Trish, she played the part of Peggy Lazarus on Another World. Before working in daytime, Rebecca made a living working on stage and in commercials for Nabisco and Hallmark to name a few. <br /><br /><br /><br />Robert Newman played Joshua Lewis on and off the canvas for 28 years. Since Guiding Light left the air, he has appeared on stage, in primetime and on film in several high-profile roles. Some of those roles include The Amazing Spider Man 2, Homeland, House of Cards, Criminal Minds and Law and Order: SVU to name a few. He just took over the role of Ashland Locke on CBS' The Young and the Restless and the fans can't wait to see what trouble Robert stirs up in Genoa City.<br /><br />Robert's first airdate on Y&amp;R is February 9th. <br /><br /><br /><br />Krista Tesreau Strauss played Melinda Sue Lewis for six years before departing Springfield for good in 1989. Fans were always happy to see her return over the years and were thrilled when she came back to the show at the end of the series to bring the &quot;Four Musketeers&quot; together one last time. Krista also returned to daytime television as Andi Klein on Santa Barbara. She assumed the role of the tantalizing Tina Roberts on One Life to Live in 1994, and played that role for three years. In addition to her daytime roles, Krista has appeared in several hit prime-time series. <br /><br /><br /><br />Join us on Friday, February 11th as we look back at The Lewis family and their time in Springfield. <br /><br /><br /><br />LET'S CONNECT:<br /><br /><br /><br /><a rel="nofollow" target="blank" href="https://facebook.com/TheLocherRoom">https://facebook.com/TheLocherRoom</a><br /><br /><a rel="nofollow" target="blank" href="https://instagram.com/TheLocherRoom">https://instagram.com/TheLocherRoom</a><br /><br /><a rel="nofollow" target="blank" href="https://twitter.com/alanglenn66">https://twitter.com/alanglenn66</a>{% endraw %}
