@@ -1,0 +1,15 @@
+---
+title: "\"We have 3 key asks to better our nation\": Grace Tame addresses the National Press Club | ABC News"
+image: "https:\/\/i.ytimg.com\/vi\/9rl7yZJDFaQ\/hqdefault.jpg"
+vid_id: "9rl7yZJDFaQ"
+categories: "News-Politics"
+tags: ["abc news","brittany higgins","grace tame"]
+date: "2022-02-11T11:31:19+03:00"
+vid_date: "2022-02-09T02:40:09Z"
+duration: "PT22M5S"
+viewcount: "24688"
+likeCount: "889"
+dislikeCount: ""
+channel: "ABC News (Australia)"
+---
+{% raw %}A day after receiving a formal apology from the Prime Minister, former Liberal staffer Brittany Higgins and 2021 Australian of the Year Grace Tame give a joint address to the National Press Club. <br /><br />00:00 - Grace Tame addresses the National Press Club<br />02:22 - Recounting her story amid online attacks<br />04:24 - &quot;I am an advocate for all survivors of child sexual abuse, many of whom are male&quot;.<br />07:20 - Grace Tame recounts phone call about appearance at Australian of the Year award<br />13:32 - Grace Tame calls for the government to take the issue of abuse in all its forms seriously with proactive, preventative measures<br />14:36 - Grace Tame calls for more funding for prevention education<br />16:50 - Grace Tame calls for national, consistent, legislative change<br />20:02 - &quot;We mustn't forget how far we've come&quot;<br />Read more: <a rel="nofollow" target="blank" href="https://www.abc.net.au/news/2022-02-09/grace-tame-and-brittany-higgins-at-the-national-press-club-abc/100815916">https://www.abc.net.au/news/2022-02-09/grace-tame-and-brittany-higgins-at-the-national-press-club-abc/100815916</a><br /><br />Subscribe: <a rel="nofollow" target="blank" href="http://ab.co/1svxLVE">http://ab.co/1svxLVE</a>  Read more here: <a rel="nofollow" target="blank" href="https://ab.co/337ImFf">https://ab.co/337ImFf</a><br /><br />ABC News provides around the clock coverage of news events as they break in Australia and abroad, including the latest coronavirus pandemic updates. It's news when you want it, from Australia's most trusted news organisation.<br /><br />For more from ABC News, click here: <a rel="nofollow" target="blank" href="https://ab.co/2kxYCZY">https://ab.co/2kxYCZY</a><br />Watch more ABC News content ad-free on iview: <a rel="nofollow" target="blank" href="https://ab.co/2OB7Mk1">https://ab.co/2OB7Mk1</a><br /><br />Go deeper on our ABC News In-depth channel: <a rel="nofollow" target="blank" href="https://ab.co/2lNeBn2">https://ab.co/2lNeBn2</a><br />Like ABC News on Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/abcnews.au">http://facebook.com/abcnews.au</a><br />Follow ABC News on Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/abcnews_au">http://instagram.com/abcnews_au</a><br />Follow ABC News on Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/abcnews">http://twitter.com/abcnews</a><br /><br />Note: In most cases, our captions are auto-generated.<br /><br />#ABCNews #ABCNewsAustralia{% endraw %}
