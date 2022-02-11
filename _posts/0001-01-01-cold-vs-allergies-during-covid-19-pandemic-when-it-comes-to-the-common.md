@@ -1,0 +1,15 @@
+---
+title: "Cold vs. allergies during COVID-19 pandemic"
+image: "https:\/\/i.ytimg.com\/vi\/rf6C3kPvP0U\/hqdefault.jpg"
+vid_id: "rf6C3kPvP0U"
+categories: "Science-Technology"
+tags: ["Mayo Clinic","Health Care (Issue)","Healthcare Science (Field Of Study)"]
+date: "2022-02-11T17:33:15+03:00"
+vid_date: "2021-05-11T14:01:19Z"
+duration: "PT2M41S"
+viewcount: "154989"
+likeCount: "675"
+dislikeCount: ""
+channel: "Mayo Clinic"
+---
+{% raw %}When it comes to the common cold, allergies and COVID-19, overlapping symptoms can be confusing.<br /><br />In this Q&amp;A, Dr. Arveen Bhasin, a Mayo Clinic allergist and immunologist, provides some clarity by comparing and contrasting the signs and symptoms of these conditions:<br /><br />What are allergy symptoms?<br />Allergy symptoms can affect the nose, sinuses and lungs. These symptoms can present with itchy, watery eyes; runny nose; sneezing; nasal congestion; postnasal drip; coughing; wheezing; and shortness of breath.<br /><br />How do allergy symptoms compare to COVID-19 symptoms?<br />Some of these allergy symptoms, such as coughing, shortness of breath and some wheezing, overlap with COVID-19 symptoms. Fatigue is also common in allergy and COVID-19, as is headache. However, with COVID-19, a lot of times people will have fever, loss of sense of smell or taste, muscle aches, nausea or vomiting, and diarrhea, which are not seen with allergies.<br /><br />With allergies, what happens is the immune system decides to see harmless substances, such as pet dander, pollen or dust, as foreign. So it starts to manifest an immune response to these allergens.<br />_________________________________________________<br /><br />For the safety of its patients, staff and visitors, Mayo Clinic has strict masking policies in place. Anyone shown without a mask was recorded prior to COVID-19 or recorded in an area not designated for patient care, where social distancing and other safety protocols were followed.<br /><br />FOR THE PUBLIC: More health and medical news on the Mayo Clinic News Network. <a rel="nofollow" target="blank" href="https://newsnetwork.mayoclinic.org/">https://newsnetwork.mayoclinic.org/</a><br /><br />FOR THE MEDIA ONLY: Register at <a rel="nofollow" target="blank" href="https://newsnetwork.mayoclinic.org/re...">https://newsnetwork.mayoclinic.org/re...</a> to access clean and nat sound versions of this video on the Mayo Clinic News Network. <a rel="nofollow" target="blank" href="https://newsnetwork.mayoclinic.org/">https://newsnetwork.mayoclinic.org/</a><br /><br />Mayo Clinic <a rel="nofollow" target="blank" href="https://mayocl.in/3tNMAdF">https://mayocl.in/3tNMAdF</a> Follow Mayo Clinic on Instagram: <br /><a rel="nofollow" target="blank" href="https://www.instagram.com/mayoclinic/">https://www.instagram.com/mayoclinic/</a> Like Mayo Clinic on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/">https://www.facebook.com/</a> Follow Mayo Clinic on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/MayoClinic">https://twitter.com/MayoClinic</a>{% endraw %}
