@@ -1,0 +1,15 @@
+---
+title: "She Asked Me to Build This, and I COULDN'T Say No!"
+image: "https:\/\/i.ytimg.com\/vi\/UAHxm0ud_c8\/hqdefault.jpg"
+vid_id: "UAHxm0ud_c8"
+categories: "Howto-Style"
+tags: ["desk","epoxy table","resin table"]
+date: "2022-02-12T15:31:01+03:00"
+vid_date: "2022-01-30T16:00:25Z"
+duration: "PT18M26S"
+viewcount: "553960"
+likeCount: "12485"
+dislikeCount: ""
+channel: "Jonny Builds"
+---
+{% raw %}My daughter asked me to build her a desk and I couldn’t say no! This desk was made from a huge black walnut live edge slab. Use code JONNYBUILDS16 for up to 16 FREE MEALS + 3 Surprise Gifts across 6 HelloFresh boxes plus free shipping at <a rel="nofollow" target="blank" href="https://bit.ly/3EFzfbE!">https://bit.ly/3EFzfbE!</a><br /><br /><br />I carved in a tessellation pattern and filled them with white epoxy. This desk has en epoxy table top made from walnut. The lower cabinet is walnut veneer with maple legs attached with a maple inlay. I got the slab from Vintage Reclaimed Lumber in Oklahoma City vrlumber.com Tell them Jonny Builds sent you for 10% off.<br /><br /><br />Follow Me on INSTAGRAM: www.instagram.com/jonnybuilds<br /><br /><br />Total Boat Epoxy: 10% off with Code JONNYBUILDSTB<br /><a rel="nofollow" target="blank" href="https://www.totalboat.com">https://www.totalboat.com</a><br />High Performance 2:1: <a rel="nofollow" target="blank" href="https://bit.ly/totalboathpepoxy">https://bit.ly/totalboathpepoxy</a><br />UV Resin: <a rel="nofollow" target="blank" href="https://bit.ly/tbuvresin">https://bit.ly/tbuvresin</a><br /><br /><br />Rockler Products:<br />PSA Veneer: <a rel="nofollow" target="blank" href="https://bit.ly/rocklerpsaveneer">https://bit.ly/rocklerpsaveneer</a><br />J Roller: <a rel="nofollow" target="blank" href="https://bit.ly/rocklerjroller">https://bit.ly/rocklerjroller</a><br />90 Degree Clamps: <a rel="nofollow" target="blank" href="https://bit.ly/rockler90degree">https://bit.ly/rockler90degree</a><br />Bar Clamps: <a rel="nofollow" target="blank" href="https://bit.ly/rocklerbarclamp">https://bit.ly/rocklerbarclamp</a><br />Drawer Slides(soft close): <a rel="nofollow" target="blank" href="https://bit.ly/rocklerdrawerslidessc">https://bit.ly/rocklerdrawerslidessc</a><br /><br /><br />Tools &amp; Materials (affiliate links):<br />Adjustable Height Table: <a rel="nofollow" target="blank" href="https://amzn.to/33VLsg5">https://amzn.to/33VLsg5</a><br />Stucco Tape (for epoxy): <a rel="nofollow" target="blank" href="https://amzn.to/32IiH5I">https://amzn.to/32IiH5I</a><br />Tape Roller: <a rel="nofollow" target="blank" href="https://amzn.to/3HfEXmA">https://amzn.to/3HfEXmA</a><br />Drawer Pulls: <a rel="nofollow" target="blank" href="https://amzn.to/3s6Xqvn">https://amzn.to/3s6Xqvn</a><br />Gerber Knife (w/ exacto): <a rel="nofollow" target="blank" href="https://amzn.to/35q5Gi6">https://amzn.to/35q5Gi6</a><br />Pull Saw: <a rel="nofollow" target="blank" href="https://amzn.to/3o9GNxI">https://amzn.to/3o9GNxI</a>{% endraw %}
