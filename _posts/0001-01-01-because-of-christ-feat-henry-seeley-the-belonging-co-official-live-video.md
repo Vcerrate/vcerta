@@ -1,0 +1,15 @@
+---
+title: "Because of Christ (feat. Henry Seeley) \/\/ The Belonging Co"
+image: "https:\/\/i.ytimg.com\/vi\/xcE5TiZwANM\/hqdefault.jpg"
+vid_id: "xcE5TiZwANM"
+categories: "Music"
+tags: ["the belonging co","tbco","the belonging"]
+date: "2022-02-12T07:08:02+03:00"
+vid_date: "2022-02-11T16:00:10Z"
+duration: "PT9M19S"
+viewcount: "2850"
+likeCount: "307"
+dislikeCount: ""
+channel: "The Belonging Co"
+---
+{% raw %}Official Live Video of “Because of Christ” (feat. Henry Seeley). &quot;Because of Christ&quot; is the newest release from The Belonging Co. It is an invitation for listeners to reflect on the life, death, and resurrection of Jesus Christ. This worship moment, captured live at The Belonging Co, is a triumphant declaration of the sacrifice of Christ and releases an anthemic praise for the completed work of the cross. <br /><br />&quot;Because of Christ&quot; is now available. You can also Pre-save The Belonging Co's newest album 'Here' releasing on Friday, March 25, 2022. Click here to listen/pre-save to it on your favorite music platform: <a rel="nofollow" target="blank" href="http://blng.co/here">http://blng.co/here</a> <br /><br />Follow The Belonging Co at:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/thebelongingco/">https://www.instagram.com/thebelongingco/</a>                <br /><a rel="nofollow" target="blank" href="https://www.facebook.com/TheBelongingCo/">https://www.facebook.com/TheBelongingCo/</a>             <br /><a rel="nofollow" target="blank" href="https://thebelonging.co">https://thebelonging.co</a>    <br /><br />Because Of Christ (Feat Henry Seeley)<br />Written By: Mitch Wong, Andrew Holt, Chris Clayton <br /><br /><br />VERSE 1<br />On a hill in Israel <br />Mercy spoke for me <br />Mercy spoke for me <br />Mercy spoke for me <br /><br />It was on Golgotha's tree <br />His death brought liberty <br />His death brought liberty <br />His death brought liberty <br /><br />CHORUS<br />May I never boast in anything <br />Except the cross of Jesus Christ <br />May I not forget the blood He shed <br />It is by His death I am alive <br /><br />Because of Christ, I am alive <br /><br />VERSE 2<br />What a humble sacrifice <br />Love that washed me clean <br />Love that washed me clean <br />Love that washed me clean <br /><br />What a blessed mystery <br />His punishment, my peace<br />His punishment, my peace <br />His punishment, my peace <br /><br />CHORUS (2x)<br /><br />Because of Christ, I am alive <br /><br />BRIDGE (4x)<br />Hallelujah <br />Hallelujah <br />Praise the one who set me free <br />Death has lost its grip on me <br /><br />Hallelujah <br />Hallelujah <br />Jesus rose in victory <br />He's alive, alive in me<br /><br />CHORUS<br /><br />Because of Christ, I am alive <br />Because of Christ, I am alive <br />Because of Christ, I am alive <br /><br />BRIDGE (4x)<br /><br />© 2022 Andrew Holt Music Publishing (BMI) / TBCO Publishing (BMI) (admin at CapitolCMGPublishing.com) / Integrity Praise! Music (BMI) / Six Arrow Creative (BMI). All Rights Reserved. Used by Permission.{% endraw %}
