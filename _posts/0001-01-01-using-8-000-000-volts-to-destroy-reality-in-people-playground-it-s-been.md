@@ -1,0 +1,15 @@
+---
+title: "Using 8,000,000 Volts To DESTROY REALITY in People Playground"
+image: "https:\/\/i.ytimg.com\/vi\/l8Ul09PGxCQ\/hqdefault.jpg"
+vid_id: "l8Ul09PGxCQ"
+categories: "Gaming"
+tags: ["blitz","blitz plays","blits"]
+date: "2022-02-12T13:04:09+03:00"
+vid_date: "2022-02-11T19:00:30Z"
+duration: "PT22M6S"
+viewcount: "102909"
+likeCount: "5322"
+dislikeCount: ""
+channel: "Blitz"
+---
+{% raw %}It's been a long time coming, and Kevin is going to get DESTROYED with the crazy black hole portal machine I'm about to make in People Playground! Buckle up and watch the show!<br /><br />Build your own custom APEX Gaming PC here: <a rel="nofollow" target="blank" href="https://apexgamingpcs.com/pages/blitz">https://apexgamingpcs.com/pages/blitz</a><br />Check out and customize your own GAMING, STREAMING, and even SIGNATURE PC!<br />Use Code: BLITZ to get 5% off your order!<br /><br />Check out my NEW TIERS of membership for exclusive videos, art and potentially more!<br />😄 Become a Member and Support Blitz! <a rel="nofollow" target="blank" href="http://bit.ly/BlitzMember">http://bit.ly/BlitzMember</a><br />- - - - -<br />Keep in touch with more Blitz!<br />★ Follow me on Twitter! <a rel="nofollow" target="blank" href="http://bit.ly/BlitzTweet">http://bit.ly/BlitzTweet</a><br />► Follow me on Instagram! <a rel="nofollow" target="blank" href="http://bit.ly/BlitzInstagram">http://bit.ly/BlitzInstagram</a><br />★ Watch me on Tiktok! <a rel="nofollow" target="blank" href="http://bit.ly/BlitzTiktok">http://bit.ly/BlitzTiktok</a><br />► Official Merch: <a rel="nofollow" target="blank" href="https://bit.ly/BlitztopiaShop">https://bit.ly/BlitztopiaShop</a><br />★ Join my Discord: <a rel="nofollow" target="blank" href="http://discord.gg/YTBlitz">http://discord.gg/YTBlitz</a><br />- - - - -<br />ABOUT &amp; GAMEPLAY: PEOPLE PLAYGROUND<br />This game is for people who enjoy throwing around ragdolls but want it to be more detailed, satisfying, and feel more free while doing so.<br /><br />Check out People Playground!<br /><a rel="nofollow" target="blank" href="https://store.steampowered.com/app/1118200/People_Playground/">https://store.steampowered.com/app/1118200/People_Playground/</a><br />- - - - -<br />Watch Blitz play other awesome games:<br />SUPER AUTO PETS ➞ <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=6Zl2BeSHAQo&amp;list=PL4D232HeetQPd1q2M-l1FrIcUutBg3E58">https://www.youtube.com/watch?v=6Zl2BeSHAQo&amp;list=PL4D232HeetQPd1q2M-l1FrIcUutBg3E58</a><br />WORLDBOX ➞ <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=IfBlWt2Ly30&amp;list=PL4D232HeetQOKPF2xHqPesa0Eys87yzPR">https://www.youtube.com/watch?v=IfBlWt2Ly30&amp;list=PL4D232HeetQOKPF2xHqPesa0Eys87yzPR</a><br />ROUNDS ➞ <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=wAnsCu3Hnjg&amp;list=PL4D232HeetQPz_vrlFWC4qqY597HQMvsH">https://www.youtube.com/watch?v=wAnsCu3Hnjg&amp;list=PL4D232HeetQPz_vrlFWC4qqY597HQMvsH</a><br /><br />#Blitz #PeoplePlayground #Simulator{% endraw %}
