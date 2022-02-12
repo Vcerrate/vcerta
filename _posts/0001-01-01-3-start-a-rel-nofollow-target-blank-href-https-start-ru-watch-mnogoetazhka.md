@@ -1,0 +1,15 @@
+---
+title: "Многоэтажка | Трейлер"
+image: "https:\/\/i.ytimg.com\/vi\/sRVKB64Do-k\/hqdefault.jpg"
+vid_id: "sRVKB64Do-k"
+categories: "Entertainment"
+tags: ["фильм","онлайн смотреть","2022"]
+date: "2022-02-12T15:46:31+03:00"
+vid_date: "2022-02-11T08:47:44Z"
+duration: "PT2M6S"
+viewcount: "60626"
+likeCount: "410"
+dislikeCount: ""
+channel: "START"
+---
+{% raw %}Смотрите премьеру фильма «Многоэтажка» 3 марта на START: <a rel="nofollow" target="blank" href="https://start.ru/watch/mnogoetazhka">https://start.ru/watch/mnogoetazhka</a><br /><br />Потеряться человек может не только на улице, но и в подъезде собственного дома. Как найти кого-то в лабиринте одинаковых коридоров и среди знакомых, но таких чужих людей? <br /><br />«Многоэтажка» — первый оригинальный фильм START, снятый специально для видеосервиса. Это полнометражный дебют режиссера «Вампиров средней полосы» Антона Маслова. Премьера городского триллера состоится на START 3 марта, также картину можно будет посмотреть в избранных кинотеатрах. <br /><br />Главные роли исполнили Денис Никифоров («Молодежка», «Бой с тенью»), Дарья Щербакова («Новенький»), Татьяна Догилева («Доктор Лиза», «Вампиры средней полосы») и Наталья Земцова («Кухня», «Эпидемия»).<br /><br />Жанр: психологический триллер, драма <br />Производство: START<br />Хронометраж: 99 минут<br />Режиссер-постановщик: Антон Маслов <br />Генеральные продюсеры: Эдуард Илоян, Денис Жалинский, Алексей Троцюк, Виталий Шляппо <br />Оператор-постановщик: Сергей Комаров <br />Авторы сценария: Мария Маслова, Антон Маслов <br />Продюсер: Михаил Ткаченко <br />Исполнительный продюсер: Наталья Куренкова<br />Художник-постановщик: Дарья Эдокова<br />Художник по костюмам: Анастасия Вишневская<br />Художник по гриму: Айгуль Хабирова<br />В ролях: Денис Никифоров, Дарья Щербакова, Наталья Земцова, Татьяна Догилева, Евгений Антропов, Наталья Швец, Михаил Жигалов, Мария Карпова, Андрей Шибаршин, Дмитрий Лысенков, Азамат Нигманов, Павел Ворожцов, Артур Ваха, Николай Шрайбер, Анна Котова-Дерябина, Николетта Шонус и другие. <br /><br />Официальный сайт:<br />► Сайт - <a rel="nofollow" target="blank" href="https://start.ru/">https://start.ru/</a><br /><br />Приложение START для iOS и Android:<br />► Скачать приложение на Android - <a rel="nofollow" target="blank" href="https://start.onelink.me/InKb/12080a2b">https://start.onelink.me/InKb/12080a2b</a><br />► Скачать приложение на iOS - <a rel="nofollow" target="blank" href="https://start.onelink.me/pBFx/5d9512c4">https://start.onelink.me/pBFx/5d9512c4</a><br /><br />Социальные сети:<br />► Группа VK - <a rel="nofollow" target="blank" href="https://vk.com/start_ru">https://vk.com/start_ru</a><br />► Мы в Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/start.studio.ru">https://www.facebook.com/start.studio.ru</a><br />► Наш Instagram - <a rel="nofollow" target="blank" href="https://www.instagram.com/start.ru">https://www.instagram.com/start.ru</a><br />► Мы в Одноклассниках - <a rel="nofollow" target="blank" href="https://ok.ru/startru.">https://ok.ru/startru.</a>{% endraw %}
