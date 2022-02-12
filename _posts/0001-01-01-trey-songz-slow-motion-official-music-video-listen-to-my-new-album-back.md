@@ -1,0 +1,15 @@
+---
+title: "Trey Songz - Slow Motion [Official Music Video]"
+image: "https:\/\/i.ytimg.com\/vi\/dXTBbM21plg\/hqdefault.jpg"
+vid_id: "dXTBbM21plg"
+categories: "Entertainment"
+tags: ["Trey Songz","Trey Songs","Trigga"]
+date: "2022-02-12T22:05:21+03:00"
+vid_date: "2015-02-15T00:02:48Z"
+duration: "PT4M1S"
+viewcount: "194090477"
+likeCount: "1114665"
+dislikeCount: ""
+channel: "Trey Songz"
+---
+{% raw %}Listen to my new album, 'Back Home' out now : <a rel="nofollow" target="blank" href="https://treysongz.lnk.to/BackHomeAlbum">https://treysongz.lnk.to/BackHomeAlbum</a><br /><br />Subscribe for more official content from Trey Songz: <a rel="nofollow" target="blank" href="https://Atlantic.lnk.to/TreySongzSubscribe">https://Atlantic.lnk.to/TreySongzSubscribe</a><br /><br />Follow Trey Songz:<br /><a rel="nofollow" target="blank" href="http://www.treysongz.com">http://www.treysongz.com</a><br /><a rel="nofollow" target="blank" href="http://store.treysongz.com">http://store.treysongz.com</a><br /><a rel="nofollow" target="blank" href="http://www.twitter.com/treysongz">http://www.twitter.com/treysongz</a><br /><a rel="nofollow" target="blank" href="http://www.instagram.com/treysongz">http://www.instagram.com/treysongz</a><br /><a rel="nofollow" target="blank" href="http://www.facebook.com/treysongz">http://www.facebook.com/treysongz</a><br /><a rel="nofollow" target="blank" href="https://www.snapchat.com/add/TreySongz">https://www.snapchat.com/add/TreySongz</a><br /><br />Welcome to the official YouTube Channel of Atlantic Records artist Trey Songz. Contemporary R&amp;B vocals blended with hip-hop flows, the actor/singer/songwriter/producer debuted on the scene with his smash hit “Gotta Make It” in 2005. Within the first decade of his career, he released five albums that peaked within the Top 20 of the Billboard 200 chart, including &quot;Ready,&quot; &quot;Pain Passion &amp; Pleasure,&quot; &quot;Chapter V,&quot; and &quot;Trigga&quot; as well as 15 solo singles that hit the Top Ten of the Hot R&amp;B/Hip-Hop chart. <br /><br />Songz’s top hits include platinum “Na Na”,  platinum “Say Ahh”,  RIAA-certified “Bottoms Up” featuring Nicki Minaj, gold “2 Reasons” featuring T.I., platinum “Slow Motion” and as well as platinum “Heart Attack.&quot;  Songz lends his soulful vocals on featured hits from Twista’s &quot;Girl Tonight&quot; to J. Cole’s “Can’t Get Enough.&quot;<br /><br />Subscribe for the latest official music videos, official audio videos, performances, bts and more from Trey Songz.<br /><a rel="nofollow" target="blank" href="https://Atlantic.lnk.to/TreySongzSubscribe">https://Atlantic.lnk.to/TreySongzSubscribe</a><br /><br />#treysongz #atlantic #atlanticrecords  #trigga #songz #RandB #officialmusicvideo #slowmotion<br /><br />Listen to Best of Trey Songz playlist ➤ <a rel="nofollow" target="blank" href="https://bit.ly/2xiLGwI">https://bit.ly/2xiLGwI</a> <br />Watch Trey Songz’s Official Music Videos ➤ <a rel="nofollow" target="blank" href="https://bit.ly/3a7ozEc">https://bit.ly/3a7ozEc</a>{% endraw %}
