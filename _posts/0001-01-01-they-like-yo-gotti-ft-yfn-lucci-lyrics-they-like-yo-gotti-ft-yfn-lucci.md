@@ -1,0 +1,15 @@
+---
+title: "They Like - Yo Gotti ft YFN Lucci (Lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/w8I7KOHrjnU\/hqdefault.jpg"
+vid_id: "w8I7KOHrjnU"
+categories: "Music"
+tags: ["they like - yo gotti","they like","yo gotti"]
+date: "2022-02-13T20:45:55+03:00"
+vid_date: "2020-07-29T16:45:02Z"
+duration: "PT3M1S"
+viewcount: "62376"
+likeCount: "808"
+dislikeCount: ""
+channel: "TikTokPlay"
+---
+{% raw %}They Like - Yo Gotti ft YFN Lucci Lyrics<br />Subscribe: <a rel="nofollow" target="blank" href="https://bit.ly/TikTokPlay">https://bit.ly/TikTokPlay</a><br /><br />♥ THANK YOU FOR WATCHING ♥<br />♪ Like, subscribe, and if you want a lyric video for any songs you don't see on the channel, just leave us a comment.<br /><br />Lyrics:<br />Ay you like in the check, don't it<br />VVS, don't it<br />She like when we say it's stoney, yeah<br />She like, yeah yeah yeah<br />She like, yeah yeah yeah<br />We like in the check, don't it<br />Let me spend a check on it<br />I call VVS, don't it, yeah<br />They like, yeah yeah yeah<br />They like, yeah yeah yeah<br />Talkin' 'bout a nigga, he ain't never gon' win<br />Told a bitch I like her and her girlfriend<br />Told that bitch I want her and her twin sister<br />Then I fucked her with my chains on and my pistol<br />I'm a dope boy, I be ballin'<br />I got dope money in my Balmains<br />Take a nigga bitch, I feel like Scarface<br />Damn her ass too big, I think they all fake<br />Never knew I'm gon' be like that<br />Truck got the big B on that<br />Chain got to seal G on that<br />Price high, we can't eat like that<br />Niggas hatin', you can't eat like that<br />Green light you, we never red<br />Can't knock her 'fore I get no bricks<br />Shawty thick, I just want their head<br />Ay you like in the check, don't it<br />VVS, don't it<br />She like when we say it's stoney, yeah<br />She like, yeah yeah yeah<br />She like, yeah yeah yeah<br />We like in the check, don't it<br />Let me spend a check on it<br />I call VVS, don't it, yeah<br />They like, yeah yeah yeah<br />They like, yeah yeah yeah<br />She like real niggas, she don't do lames<br />Sun Ford, prayin' for it in that Mulsanne<br />She got gangbanged, we call her Wu-Tang<br />Her weave killer, call me 2 Chainz<br />Land on your dick, boy you too lame<br />I been bustin' outta like a shootin' range<br />She text me she ain't fuck, I'm thinkin' who ain't<br />Came through in that Lamb', mood changed<br />Purse on deck, Rollie on set<br />Him? Upset, him? Obsessed<br />We fuckin'? No stress<br />We be fuckin' up checks<br />We ain't doin' nothin' 'less you rocking wit' a gangsta, baby you're blessed<br />Ay you like in the check, don't it<br />VVS, don't it<br />She like when we say it's stoney, yeah<br />She like, yeah yeah yeah<br />She like, yeah yeah yeah<br />We like in the check, don't it<br />Let me spend a check on it<br />I call VVS, don't it, yeah<br />They like, yeah yeah yeah<br />They like, yeah yeah yeah<br />Tags: #tiktok #tiktokplay #lyrics{% endraw %}
