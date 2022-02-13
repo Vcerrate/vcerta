@@ -1,0 +1,15 @@
+---
+title: "Can't LOSE Fat? Try These 2 Tips"
+image: "https:\/\/i.ytimg.com\/vi\/hFk0UylZYX8\/hqdefault.jpg"
+vid_id: "hFk0UylZYX8"
+categories: "Howto-Style"
+tags: ["cant lose fat","not losing weight","can't lose weight"]
+date: "2022-02-13T18:20:48+03:00"
+vid_date: "2021-05-16T13:00:14Z"
+duration: "PT8M22S"
+viewcount: "1051343"
+likeCount: "25589"
+dislikeCount: ""
+channel: "Redefining Strength"
+---
+{% raw %}Can't LOSE Fat? Try These 2 Tips<br /><br />Check out the RS Fat loss formula - <a rel="nofollow" target="blank" href="https://rsformula.com">https://rsformula.com</a><br /><br />Trying to lose weight as quickly as possible on the scale is a completely different focus than fat loss.<br /><br />And often the faster we strive to see weight loss, the more we really don’t control for fat loss nor optimize our body recomposition.<br /><br />Actually the more we can negatively impact our body recomposition results!<br /><br />Because often in our attempt to lose weight faster, we slash our calories super low and try to exercise more. <br /><br />This results in, yes more weight being lost, but this weight is not only fat but also MUSCLE.<br /><br />It can also cause us to create metabolic adaptations and hormonal changes that can make us look SOFTER, which is the opposite of what we want to happen.<br /><br />And this is especially the case when we’re working to lose those last 5 to 10 pounds.<br /><br />You simply can’t out diet or out exercise TIME.<br /><br />And while, yes, calories in vs calories out matters, we can’t focus on purely trying to starve ourselves by slashing our calories super low or creating more of a deficit through our training.<br /><br />Actually we need to stop focusing on our training as a way to burn calories at all.<br /><br />And we need to stop purely focusing on our calorie intake if we want the best fat loss results possible. <br /><br />These improper weight loss practices, and even at times extreme deprivation diets and overtraining, are what lead to that horrible yo-yo dieting cycle.<br /><br />They lead to potentially rapid weight loss on the scale, but also that inevitable weight gain.<br /><br />Through these fad diets, we create unsustainable habits, thrown our bodies out of whack and often create metabolic adaptations that make it even harder to lose the weight the next time we attempt to.<br /><br />So if you’ve ever thought to yourself, “My age just makes it so much harder?”<br /><br />Or “It’s so much harder than it used to be to lose weight?”<br /><br />Well that might have less to do with getting older, and more to do with the improper dieting practices you’ve implemented previously!<br /><br />The great part is though, we CAN reverse much of the “damage” we’ve done. <br /><br />We can retrain our body to eat more and lose fat while restoring our metabolic health.<br /><br />But we have to stop looking for a fast fix. <br /><br />Instead we sort of have to do the OPPOSITE of what we’ve been told to do…<br /><br />We need to focus on these two key things…{% endraw %}
