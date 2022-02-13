@@ -1,0 +1,15 @@
+---
+title: "Adum & Pals: Twilight"
+image: "https:\/\/i.ytimg.com\/vi\/ZaziAPIdaeI\/hqdefault.jpg"
+vid_id: "ZaziAPIdaeI"
+categories: "Entertainment"
+tags: ["Pals:","Twilight"]
+date: "2022-02-13T06:01:44+03:00"
+vid_date: "2020-10-29T17:00:12Z"
+duration: "PT20M31S"
+viewcount: "802650"
+likeCount: "28123"
+dislikeCount: ""
+channel: "YourMovieSucksDOTorg"
+---
+{% raw %}Patreon: <a rel="nofollow" target="blank" href="http://www.patreon.com/YMS">http://www.patreon.com/YMS</a><br />Guests: <a rel="nofollow" target="blank" href="https://twitter.com/notscotthenson">https://twitter.com/notscotthenson</a> <a rel="nofollow" target="blank" href="https://twitter.com/_vexel">https://twitter.com/_vexel</a><br />Edited by: <a rel="nofollow" target="blank" href="https://twitter.com/RegularPeasant">https://twitter.com/RegularPeasant</a><br />Twitch: <a rel="nofollow" target="blank" href="http://www.Twitch.tv/AdumPlaze">http://www.Twitch.tv/AdumPlaze</a><br />Merch: <a rel="nofollow" target="blank" href="https://teespring.com/stores/yms">https://teespring.com/stores/yms</a><br /><br />Subscribestar: <a rel="nofollow" target="blank" href="https://www.subscribestar.com/YMS">https://www.subscribestar.com/YMS</a><br />Website: <a rel="nofollow" target="blank" href="http://www.YourMovie.Sucks">http://www.YourMovie.Sucks</a><br />Bitcoin: <a rel="nofollow" target="blank" href="https://www.yourmoviesucks.org/donate/">https://www.yourmoviesucks.org/donate/</a><br />Reddit: <a rel="nofollow" target="blank" href="http://www.reddit.com/r/YMS">http://www.reddit.com/r/YMS</a><br />Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/2gay2lift">http://www.twitter.com/2gay2lift</a><br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/YourMoviesSuck">http://www.facebook.com/YourMoviesSuck</a><br />Discord: <a rel="nofollow" target="blank" href="https://discord.gg/9eWMRbc">https://discord.gg/9eWMRbc</a><br />Music: <a rel="nofollow" target="blank" href="http://www.anUnkindness.com">http://www.anUnkindness.com</a><br />Music channel: <a rel="nofollow" target="blank" href="http://www.youtube.com/anUnkindnessvideo">http://www.youtube.com/anUnkindnessvideo</a><br />Gaming channel: <a rel="nofollow" target="blank" href="http://www.youtube.com/AdumPlaze">http://www.youtube.com/AdumPlaze</a><br />Plazethroughs: <a rel="nofollow" target="blank" href="http://www.YouTube.com/c/AdumPlazethroughs">http://www.YouTube.com/c/AdumPlazethroughs</a><br />Vlog channel: <a rel="nofollow" target="blank" href="http://www.youtube.com/DarkOceanAdam">http://www.youtube.com/DarkOceanAdam</a><br />Podcast: <a rel="nofollow" target="blank" href="http://www.YouTube.com/c/Sardonicast">http://www.YouTube.com/c/Sardonicast</a><br />YMS Highlights channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCb8mM4kuhD1zf9u7C_IS5mg">https://www.youtube.com/channel/UCb8mM4kuhD1zf9u7C_IS5mg</a><br />Donate: <a rel="nofollow" target="blank" href="http://www.paypal.me/YourMovieSucks">http://www.paypal.me/YourMovieSucks</a>{% endraw %}
