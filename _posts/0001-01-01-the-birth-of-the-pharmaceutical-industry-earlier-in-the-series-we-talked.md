@@ -1,0 +1,15 @@
+---
+title: "The Birth of the Pharmaceutical Industry"
+image: "https:\/\/i.ytimg.com\/vi\/6_G_o1KPYyk\/hqdefault.jpg"
+vid_id: "6_G_o1KPYyk"
+categories: "Education"
+tags: ["Farbwerke Höchst","Bayer","E. Merck"]
+date: "2022-02-14T00:43:59+03:00"
+vid_date: "2022-02-11T16:48:20Z"
+duration: "PT11M21S"
+viewcount: "20141"
+likeCount: "1175"
+dislikeCount: ""
+channel: "Professor Dave Explains"
+---
+{% raw %}Earlier in the series we talked about how it was the artificial dye industry that gave way to the pharmaceutical industry in the latter half of the 19th century. Let's now examine the first large pharma companies to emerge, and the products they were manufacturing at that time. This will include Farbwerke Höchst, Bayer, and E. Merck, which put themselves on the map by producing drugs like antipyrine, novocaine, aspirin, and even heroin. How did this industry get off the ground? What impact did World War I have on this process? Let's discuss all this and more!<br /><br />Script by Vittorio Farina<br />Animation by Cyrene Domogalla: <a rel="nofollow" target="blank" href="https://cyrenedomogalla.myportfolio.com/">https://cyrenedomogalla.myportfolio.com/</a><br /><br />Watch the full series: <a rel="nofollow" target="blank" href="http://bit.ly/ProfDaveHistoryDrugs">http://bit.ly/ProfDaveHistoryDrugs</a><br /><br />General Chemistry Tutorials: <a rel="nofollow" target="blank" href="http://bit.ly/ProfDaveGenChem">http://bit.ly/ProfDaveGenChem</a><br />Organic Chemistry Tutorials: <a rel="nofollow" target="blank" href="http://bit.ly/ProfDaveOrgChem">http://bit.ly/ProfDaveOrgChem</a><br />Biochemistry Tutorials: <a rel="nofollow" target="blank" href="http://bit.ly/ProfDaveBiochem">http://bit.ly/ProfDaveBiochem</a><br />Biology/Genetics Tutorials: <a rel="nofollow" target="blank" href="http://bit.ly/ProfDaveBio">http://bit.ly/ProfDaveBio</a><br />Anatomy &amp; Physiology Tutorials: <a rel="nofollow" target="blank" href="http://bit.ly/ProfDaveAnatPhys">http://bit.ly/ProfDaveAnatPhys</a><br />Biopsychology Tutorials: <a rel="nofollow" target="blank" href="http://bit.ly/ProfDaveBiopsych">http://bit.ly/ProfDaveBiopsych</a><br />Microbiology/Infectious Diseases Tutorials: <a rel="nofollow" target="blank" href="http://bit.ly/ProfDaveMicrobio">http://bit.ly/ProfDaveMicrobio</a><br />Immunology Tutorials: <a rel="nofollow" target="blank" href="http://bit.ly/ProfDaveImmuno">http://bit.ly/ProfDaveImmuno</a><br /><br />EMAIL► ProfessorDaveExplains@gmail.com<br />PATREON► <a rel="nofollow" target="blank" href="http://patreon.com/ProfessorDaveExplains">http://patreon.com/ProfessorDaveExplains</a><br /><br />Check out &quot;Is This Wi-Fi Organic?&quot;, my book on disarming pseudoscience!<br />Amazon: <a rel="nofollow" target="blank" href="https://amzn.to/2HtNpVH">https://amzn.to/2HtNpVH</a><br />Bookshop: <a rel="nofollow" target="blank" href="https://bit.ly/39cKADM">https://bit.ly/39cKADM</a><br /><br />Barnes and Noble: <a rel="nofollow" target="blank" href="https://bit.ly/3pUjmrn">https://bit.ly/3pUjmrn</a> <br />Book Depository: <a rel="nofollow" target="blank" href="http://bit.ly/3aOVDlT">http://bit.ly/3aOVDlT</a>{% endraw %}
