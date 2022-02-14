@@ -1,0 +1,15 @@
+---
+title: "6 Major TURN OFFS That Ruin Your Chances With Women (why you're single)"
+image: "https:\/\/i.ytimg.com\/vi\/TajG9sW9gDc\/hqdefault.jpg"
+vid_id: "TajG9sW9gDc"
+categories: "Howto-Style"
+tags: ["biggest turn offs","turn offs for women","things women hate"]
+date: "2022-02-14T07:05:03+03:00"
+vid_date: "2022-02-10T17:15:00Z"
+duration: "PT11M3S"
+viewcount: "42675"
+likeCount: "2476"
+dislikeCount: ""
+channel: "Marni Your Personal Wing Girl"
+---
+{% raw %}Go to <a rel="nofollow" target="blank" href="https://getroman.com/marni">https://getroman.com/marni</a> to get $15 off your first month of treatment!<br /><br />Learn the Flirting Formula that works on 99.9% of all women here: <a rel="nofollow" target="blank" href="https://www.winggirlmethod.com/become_a_flirt_master">https://www.winggirlmethod.com/become_a_flirt_master</a><br /><br />In this video Marni reveals 6 Major Turn Offs That KILL Your chances with women and you may have no clue you are even doing them.  Watch this video to find out if you are doing any of these 6 turn offs and if you are... STOP doing them!<br /><br />SUBSCRIBE HERE: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/marnikinrys?sub_confirmation=1">https://www.youtube.com/user/marnikinrys?sub_confirmation=1</a><br /><br />MORE MARNI, YOUR PERSONAL WING GIRL (website): <a rel="nofollow" target="blank" href="http://www.winggirlmethod.com">http://www.winggirlmethod.com</a><br /><br />How To Talk To Women &amp; Make Them Want You: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Awx5hgamHrU">https://www.youtube.com/watch?v=Awx5hgamHrU</a><br /><br />What It Means If A Girl Looks At You: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=zVeQ6Vk8y7M">https://www.youtube.com/watch?v=zVeQ6Vk8y7M</a><br /><br />How To Date Beautiful Women, 10 Secrets You Need To Know: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=JmuP5ZWDjOg">https://www.youtube.com/watch?v=JmuP5ZWDjOg</a><br /><br />How To Talk To Women: <a rel="nofollow" target="blank" href="http://www.winggirlmethod.com/how-to-talk-to-women-using-osa/">http://www.winggirlmethod.com/how-to-talk-to-women-using-osa/</a><br /><br />TWITTER: <a rel="nofollow" target="blank" href="https://twitter.com/winggirlmethod">https://twitter.com/winggirlmethod</a><br />PODCAST: <a rel="nofollow" target="blank" href="http://www.winggirlmethod.com/podcast">http://www.winggirlmethod.com/podcast</a><br /><br />MORE TIPS, ADVICE &amp; SECRETS ABOUT WOMEN: <a rel="nofollow" target="blank" href="http://www.winggirlmethod.com">http://www.winggirlmethod.com</a><br /><br />Top dating advice for men coming directly from a woman! Marni is now your personal Wing Girl and she's going to tell you how to attract women, date women, seduce women and get any woman you want.  She's helped 100's of thousands of men around the world be more confident with women so they can make women want them. Now she'll do the same for you!{% endraw %}
