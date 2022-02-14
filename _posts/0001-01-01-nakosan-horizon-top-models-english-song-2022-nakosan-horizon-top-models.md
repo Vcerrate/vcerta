@@ -1,0 +1,15 @@
+---
+title: "NAKOSAN -   Horizon, Top Models, English Song 2022"
+image: "https:\/\/i.ytimg.com\/vi\/KzGtLwmDfao\/hqdefault.jpg"
+vid_id: "KzGtLwmDfao"
+categories: "Music"
+tags: ["best car music","car bass music","otilia"]
+date: "2022-02-14T14:57:23+03:00"
+vid_date: "2022-02-12T16:00:20Z"
+duration: "PT4M45S"
+viewcount: "6212"
+likeCount: "114"
+dislikeCount: ""
+channel: "BodyMix TV"
+---
+{% raw %}NAKOSAN -   Horizon, Top Models, English Song 2022<br /><br />✔ Enable notifications (🔔) to keep up to date with new uploads.<br />Now you can support the team. Tap Subscribe and allow notifications. # Comment #Share #Like<br /><br />Song promoted by WingStart.net  - Next generation for Artist Promotion.<br /><br />Welcome to the BodyMix TV channel, which is now a subdivision of the Jhaps Records network. <br />In case you didn't know, JHaps Records has a network of over 10 million subscribers, the audience for all tastes from deep-house, reggaeton, pop, and even Bass House,  EDM, or future House. We currently manage over 20 artists whose songs exceed 2 billion views, but none of these could have happened without our listener's help.<br /><br />These days record companies are looking for numbers, but how can you make numbers if no one promotes you?<br /><br />We plan to post good music and promote as many artists as possible, especially those music producers who are talented but not considered by anyone because they didn't make song hits or no views on their tracks.<br /><br /><br />From JHaps Records music catalog over the years we have released songs that have become hits from Otilia with  songs  in english or spanish reggaeton songs deep house dance music bass boosted remixes car 2020: Bilionera billionaire Adelante otila remix song  Diamante Aventura devocion latina I don't know Balim with Serdar Ortaq, Wine my body, Otilia turkish album with the single Deli Gibi, Azar. Also Y3MR$ made a huge remix for Adelante in february 2020 entitled Adelante Y3MR$ remix. Y3MR$ it's originar from Turkey and was signed with Ultra Records after the promotion made by JHaps Records.<br /><br />Also from our catalog are parts from Mario joy new English trap songs or deep house dance music bass boosted remixes car 2020 and ready for 2021: California Miss California Gold Digger Ganja Can't get you Highway of love Alone secrets Glamour girl Bad Habit<br /> <br /><br /><br />Andrea new english spanish reggaeton songs deep house dance music bass boosted remixes car 2020: Costi Haide Opa, miss California, upotrebena, soledad <br /><br />#share #subscribe #comment <br /><br />Our JHaps Records record label its founded in 2010.  Artists that were promoted over the years Andrea Baga banini Robber Dj, PARA DEEP Dj Crazy Goat, Peppa Dj, Amor124, also until October 2020 Otilia and Mario Joy. We can continue with Paw JAR, BAd Ninja Nakosan, DOn Hertz, SAve or CYdo.<br /><br />Cydo its one of the artist of Jhaps Records that was very successuful in 2020, we are sure for 2021 too.<br /><br />With great respect<br />JHaps Records Team{% endraw %}
