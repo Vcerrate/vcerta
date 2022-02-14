@@ -1,0 +1,15 @@
+---
+title: "The EASIEST 5-Ingredient Family Meals! | 5 Quick & EASY Tasty Dinner Recipes! | Julia Pacheco"
+image: "https:\/\/i.ytimg.com\/vi\/poHkKR--rhQ\/hqdefault.jpg"
+vid_id: "poHkKR--rhQ"
+categories: "Howto-Style"
+tags: ["5 ingredient recipes","5 ingredient meals","5 ingredient casserole recipes"]
+date: "2022-02-14T13:17:29+03:00"
+vid_date: "2022-02-13T13:00:32Z"
+duration: "PT12M47S"
+viewcount: "45512"
+likeCount: "3810"
+dislikeCount: ""
+channel: "Julia Pacheco"
+---
+{% raw %}Walmart has everything you need to create a special V-Day for everyone you love, for less. #WalmartDateNight #WalmartPartner <a rel="nofollow" target="blank" href="https://www.walmart.com/cp/valentines-day/1091064?adid=1500000020090000049483&amp;veh=dsp_inf&amp;wmlspartner=VRTN_con_CPC&amp;cn=FY23-spring-SpringContentInfluencerCommerce_mult_pw_mult_dis_othr_xcat_oth_N_N">https://www.walmart.com/cp/valentines-day/1091064?adid=1500000020090000049483&amp;veh=dsp_inf&amp;wmlspartner=VRTN_con_CPC&amp;cn=FY23-spring-SpringContentInfluencerCommerce_mult_pw_mult_dis_othr_xcat_oth_N_N</a><br />TASTY 5 INGREDIENT MEALS | QUICK &amp; EASY RECIPES | WHAT'S FOR DINNER? | LET'S GET COOKING! <br /><br />HI COOKING FRIENDS! In an attempt to make grocery shopping and cooking dinner the EASIEST thing you do all day, i'm excited to share FIVE delish 5-ingredient meal ideas that you will adore! I hope you find a little cooking inspiration! Your support means the world! ♥️<br /><br />0:00 Welcome! ❖ Today's Recipes<br />0:22 No Peek Chicken <a rel="nofollow" target="blank" href="https://www.juliapacheco.com/no-peek-chicken-and-rice-casserole/">https://www.juliapacheco.com/no-peek-chicken-and-rice-casserole/</a><br />2:18 Sausage &amp; Cheese Tortellini <a rel="nofollow" target="blank" href="https://www.juliapacheco.com/sausage-tortellini/">https://www.juliapacheco.com/sausage-tortellini/</a><br />4:17 BBQ Chicken Pizza w/ 2-ingredient Pizza Dough <a rel="nofollow" target="blank" href="https://www.juliapacheco.com/2-ingredient-pizza-dough-bbq-chicken-pizza/">https://www.juliapacheco.com/2-ingredient-pizza-dough-bbq-chicken-pizza/</a><br />7:52 Loaded Creamy Chicken Bacon Bake <a rel="nofollow" target="blank" href="https://www.juliapacheco.com/crack-chicken-bake/">https://www.juliapacheco.com/crack-chicken-bake/</a><br />9:39 Macaroni &amp; Cheese <a rel="nofollow" target="blank" href="https://www.juliapacheco.com/homemade-macaroni-cheese/">https://www.juliapacheco.com/homemade-macaroni-cheese/</a><br /><br />Find me on Instagram @Julia.Pacheco.Cooking or click here: <a rel="nofollow" target="blank" href="https://www.instagram.com/julia.pacheco.cooking/?ref=badge">https://www.instagram.com/julia.pacheco.cooking/?ref=badge</a><br /><br />Get the recipes from to today's video plus more here: <a rel="nofollow" target="blank" href="https://www.juliapacheco.com/">https://www.juliapacheco.com/</a><br /><br />For business inquiries please contact me at: pachecojuliacooking@gmail.com<br /><br />📍 SUBSCRIBE so you don't miss a thing!!{% endraw %}
