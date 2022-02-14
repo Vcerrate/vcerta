@@ -1,0 +1,15 @@
+---
+title: "Remueven del cargo a general Hernando Herrera por presuntas reuniones con narcotraficantes en Cauca"
+image: "https:\/\/i.ytimg.com\/vi\/HS7rxfhkojs\/hqdefault.jpg"
+vid_id: "HS7rxfhkojs"
+categories: "News-Politics"
+tags: ["Cauca","ELN","Ejército Nacional"]
+date: "2022-02-14T19:31:15+03:00"
+vid_date: "2022-02-14T13:01:41Z"
+duration: "PT2M22S"
+viewcount: "8887"
+likeCount: "392"
+dislikeCount: ""
+channel: "Noticias Caracol"
+---
+{% raw %}En un comunicado, el Ejército Nacional informó que el general Hernando Herrera Díaz, actual comandante de la Sexta División, fue removido del cargo tras el reportaje publicado por la Revista Cambio y Noticias Uno en el que se revelaron audios del alto oficial, de julio de 2019, con los que habría admitido que se reunió con jefes narcotraficantes del Cauca.<br /><br /><br /><br />#NoticiasCaracol #NoticiasColombia #NoticiasInternacionales<br /><br /><br /><br />Suscríbase [GRATIS] a nuestro canal en YouTube: <a rel="nofollow" target="blank" href="http://bit.ly/2Jhc3oO.">http://bit.ly/2Jhc3oO.</a><br /><br /><br /><br />Descargue nuestra aplicación: <a rel="nofollow" target="blank" href="http://hyperurl.co/appnoticias">http://hyperurl.co/appnoticias</a><br /><br />Síganos en Google: <a rel="nofollow" target="blank" href="http://bit.ly/2MrIZP3">http://bit.ly/2MrIZP3</a><br /><br />WhatsApp El Periodista Soy Yo: <a rel="nofollow" target="blank" href="http://bit.ly/2QD18rw">http://bit.ly/2QD18rw</a><br /><br />WhatsApp Noticias Caracol Ahora: <a rel="nofollow" target="blank" href="http://bit.ly/34ed1uQ">http://bit.ly/34ed1uQ</a><br /><br /><br /><br />Síganos en redes sociales:<br /><br /><br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/NoticiasCaracol">https://www.facebook.com/NoticiasCaracol</a><br /><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/NoticiasCaracol">https://twitter.com/NoticiasCaracol</a> (@NoticiasCaracol)<br /><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/noticiascaracol/">https://www.instagram.com/noticiascaracol/</a><br /><br /><br /><br />Nuestros canales en YouTube:<br /><br /><br /><br />Caracol Televisión: <a rel="nofollow" target="blank" href="http://bit.ly/2CHpld2">http://bit.ly/2CHpld2</a> Suscribirse<br /><br />Gol Caracol: <a rel="nofollow" target="blank" href="http://bit.ly/2yAIGcU">http://bit.ly/2yAIGcU</a> Suscribirse<br /><br />Volk: <a rel="nofollow" target="blank" href="https://bit.ly/3nNojU9">https://bit.ly/3nNojU9</a> Suscribirse<br /><br />Shock: <a rel="nofollow" target="blank" href="http://bit.ly/2CHNKzi">http://bit.ly/2CHNKzi</a> Suscribirse<br /><br />Blu Radio: <a rel="nofollow" target="blank" href="http://bit.ly/2CFF7Fo">http://bit.ly/2CFF7Fo</a> Suscribirse<br /><br />La Kalle: <a rel="nofollow" target="blank" href="http://bit.ly/2JkgfEz">http://bit.ly/2JkgfEz</a> Suscribirse<br /><br />Caracol Play: <a rel="nofollow" target="blank" href="http://bit.ly/2SkyjlM">http://bit.ly/2SkyjlM</a> Suscribirse<br /><br />El Espectador: <a rel="nofollow" target="blank" href="http://bit.ly/2D4rkt7">http://bit.ly/2D4rkt7</a> Suscribirse{% endraw %}
