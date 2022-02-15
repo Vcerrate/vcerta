@@ -1,0 +1,15 @@
+---
+title: "10 States That Don't Want You.(7.8 Really Don't)"
+image: "https:\/\/i.ytimg.com\/vi\/lebZAGtsvw0\/hqdefault.jpg"
+vid_id: "lebZAGtsvw0"
+categories: "Travel-Events"
+tags: ["where to live in America","Top 10","Top Ten Lists"]
+date: "2022-02-16T00:20:10+03:00"
+vid_date: "2022-02-05T17:30:15Z"
+duration: "PT9M30S"
+viewcount: "120302"
+likeCount: "6094"
+dislikeCount: ""
+channel: "World According To Briggs"
+---
+{% raw %}Have you ever wondered what states locals don't want you to move to their state? Wonder no more, I've done the research for you. <br />   Today we look at the United States of We Don't Want You. <br />The fact is in the United States you can move to any state you want. The locals might not like it, but they can't stop you. I am sure every state has a portion of its population that doesn't want outsiders. The local government and local businesses do because new blood means more money.  But, for the local population, more people means more traffic and prices go up.  I feel tech jobs are what are driving migration to most of these states.<br />  Some of the states on this list may surprise you. I know I was. Some states just have a bunch of Karens.<br />I hope you enjoy the video.<br />united states of America map<br /><br />Other videos you might like:<br />► Oldest City in Each State- <a rel="nofollow" target="blank" href="https://youtu.be/tqHxn38ylMI">https://youtu.be/tqHxn38ylMI</a><br />► Worst States to move to in 2022 - <a rel="nofollow" target="blank" href="https://youtu.be/H1g6iz-u-xU">https://youtu.be/H1g6iz-u-xU</a><br /><br />Join to help support this channel: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCecPJBL6E1PVky1-gj6KH5g/join">https://www.youtube.com/channel/UCecPJBL6E1PVky1-gj6KH5g/join</a><br /><br /><br /><br />🔹🔹🔹🔹🔹🔹🔹🔹🔹🔹🔹🔹🔹🔹🔹<br /> 🔶My Other Channels: <br />    🟥  On This Day  <br />    <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCs9MGJ6xVKLKG_YsQkQNLjg">https://www.youtube.com/channel/UCs9MGJ6xVKLKG_YsQkQNLjg</a><br />    <br />   Our website:<br /><a rel="nofollow" target="blank" href="https://www.worldaccordingtobriggs.com/">https://www.worldaccordingtobriggs.com/</a><br />   <br />#UnitedStates<br /> #Rude<br /><br /><br /><br />❤Things You should watch or listen to:<br />    Hermens Outdoors:<br />    <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCgEIwkmBTuhy6Djx6XipM3g">https://www.youtube.com/channel/UCgEIwkmBTuhy6Djx6XipM3g</a><br /><br />Caffeinated Humor Podcast:<br /><a rel="nofollow" target="blank" href="https://podcasts.apple.com/us/podcast/caffeinated-humor-sarcastic-comedy-for-the-masses/id1485476178">https://podcasts.apple.com/us/podcast/caffeinated-humor-sarcastic-comedy-for-the-masses/id1485476178</a><br /><br />  <br /><br />Business &amp; Voice over email: World2Briggs@gmail.com<br /><br />Mailing Address:   World According to Briggs<br />                                 20449 SW Tualatin Valley Hwy<br />                                 # 354<br />                                 Aloha, Oregon 97003{% endraw %}
