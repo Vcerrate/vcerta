@@ -1,0 +1,15 @@
+---
+title: "Thomas Jefferson Was The Joe Rogan Of His Time"
+image: "https:\/\/i.ytimg.com\/vi\/P4nWkfxfVa4\/hqdefault.jpg"
+vid_id: "P4nWkfxfVa4"
+categories: "News-Politics"
+tags: ["podcast","sam seder","breaking news"]
+date: "2022-02-15T04:43:48+03:00"
+vid_date: "2022-02-15T01:00:03Z"
+duration: "PT13M13S"
+viewcount: "2324"
+likeCount: "184"
+dislikeCount: ""
+channel: "The Majority Report w\/ Sam Seder"
+---
+{% raw %}A MR caller says that Thomas Jefferson was the Joe Rogan of his time, as was Noah, the one with arc, and Jesus. The Majority Report crew discuss with the caller about Joe Rogan’s mistakes. To which the caller says he does not and goes on talk about what even are mistakes.<br /><br />We stream our live show every day at 12 PM ET.<br /><br /><br /><br />We need your help to keep providing free videos! Support the Majority Report's video content by going to <a rel="nofollow" target="blank" href="http://www.Patreon.com/MajorityReport">http://www.Patreon.com/MajorityReport</a><br /><br /><br /><br />Watch the Majority Report live M–F at 12 p.m. EST at youtube.com/samseder or listen via daily podcast at <a rel="nofollow" target="blank" href="http://Majority.FM">http://Majority.FM</a><br /><br /><br /><br />Download our FREE app: <a rel="nofollow" target="blank" href="http://majorityapp.com">http://majorityapp.com</a><br /><br /><br /><br />SUPPORT the show by becoming a member: <a rel="nofollow" target="blank" href="http://jointhemajorityreport.com">http://jointhemajorityreport.com</a><br /><br />We Have Merch!!! <a rel="nofollow" target="blank" href="http://shop.majorityreportradio.com">http://shop.majorityreportradio.com</a><br /><br /><br /><br />LIKE us on Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/MajorityReport">http://facebook.com/MajorityReport</a><br /><br /><br /><br />FOLLOW us on Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/MajorityFM">http://twitter.com/MajorityFM</a><br /><br /><br /><br />SUBSCRIBE to us on YouTube: <a rel="nofollow" target="blank" href="http://youtube.com/SamSeder">http://youtube.com/SamSeder</a><br /><br />Caller: um hello..<br /><br />Crew: Hello<br /><br />Caller: Yes, hello hi oh hi Sam, this is Brett I'm calling here with my wife Heather you have disparaged us for several years now. I've kept my mouth shut because I'm an idea I'm an ideas guy.<br /><br />Sam Seder: right? We should just say that you have a horse head podcast right his dark horse oh dark course dark horse right <br /><br />Caller: Correct has nothing to do with ivermectin I should say <br /><br />Emma Vigeland: Okay I mean that seems something other than something to get out of the way right okay keep going good thing you said...<br /><br />Caller: That part was a coincidence but I just want to say you can say what you will about me and about my wife but you keep joe Rogan's name out of your filthy mouth okay he is my best friend and he is maybe the most important man ever to have lived on this or any other planet...{% endraw %}
