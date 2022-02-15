@@ -1,0 +1,15 @@
+---
+title: "Supply List for Noobs and People Who Lost Their Hobby Desk in a Fire"
+image: "https:\/\/i.ytimg.com\/vi\/04RrMJBJviY\/hqdefault.jpg"
+vid_id: "04RrMJBJviY"
+categories: "Howto-Style"
+tags: ["Bravely","hobby","podcast"]
+date: "2022-02-15T17:03:12+03:00"
+vid_date: "2022-02-14T19:11:12Z"
+duration: "PT1H23M6S"
+viewcount: "936"
+likeCount: "87"
+dislikeCount: ""
+channel: "Paint Bravely The Podcast"
+---
+{% raw %}This week Casey and Brent talk about products that you might want to consider if you are starting out in the hobby, or if you need to start over. <br /><br /><br />Unfortunately the audio got a little wonky this week. We are working out the kinks and the next episode should be back to the quality that you’ve come to expect! Thank you for understanding :) <br />-Casey and Brent<br /><br /><br /><br />Miniac Kickstarter:<br /><br /><a rel="nofollow" target="blank" href="https://www.kickstarter.com/projects/miniac/miniacs-minipainting-menagerie?fbclid=IwAR2WJB35e4ktI2cDHaFCDX1UEg8NXYVB3ameTbnVW99A_zoutHQkwkaEt1A">https://www.kickstarter.com/projects/miniac/miniacs-minipainting-menagerie?fbclid=IwAR2WJB35e4ktI2cDHaFCDX1UEg8NXYVB3ameTbnVW99A_zoutHQkwkaEt1A</a><br /><br /><br /><br />~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~<br /><br />MERCH:<br />Would you believe it we actually have merch for sale? If you would like to support this podcast and help keep it going, this is a tremendous way to do so, otherwise, we absolutely appreciate your support through subscribing and commenting, thank you!<br /><br /><a rel="nofollow" target="blank" href="https://teespring.com/paint-bravely?pid=1027&amp;cid=104079">https://teespring.com/paint-bravely?pid=1027&amp;cid=104079</a><br /><br /><br />YOUTUBE CHANNEL LINKS:<br /><br />eBay Miniature Rescues<br />H<a rel="nofollow" target="blank" href="ttp://www.youtube.com/ebayminiaturerescues">ttp://www.youtube.com/ebayminiaturerescues</a><br /><br />Goobertown Hobbies<br />H<a rel="nofollow" target="blank" href="ttp://youtube.com/goobertownhobbies">ttp://youtube.com/goobertownhobbies</a><br /><br /><br />EQUIPMENT:<br /><br />We use Skype to monitor video and use Call Recorder to capture all of the audio and data up front, as a backup.<br /><br />We record video and audio independently, so it's a little nicer quality than a skype call. In order to do this Brent uses a Panasonic Lumix GH4 and an MXL 990 Mic to capture everything in camera and on his computer via Audacity. Casey also uses a Panasonic Lumix GH4 and an MXL 990 Mic, everything is recorded in camera and in Adobe Audition. Doing this gives us the freedom to be able to edit video and audio in high quality for the podcast. Everything is edited in Adobe Premiere Pro and output to Youtube and Podcast services.<br /><br />These podcasts are edited and uploaded by Editor Matt! Whom you should continue to thank in the comments of each video, and give as much crap to as possible..we kid of course, these podcasts wouldn't be uploaded probably ever if it weren't for him!<br /><br /><br />Music:<br />EpidemicSound{% endraw %}
