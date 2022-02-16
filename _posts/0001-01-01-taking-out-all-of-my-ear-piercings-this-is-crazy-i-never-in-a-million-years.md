@@ -1,0 +1,15 @@
+---
+title: "Taking Out ALL Of My Ear Piercings?! | This is CRAZY!"
+image: "https:\/\/i.ytimg.com\/vi\/ul9aicdk1VM\/hqdefault.jpg"
+vid_id: "ul9aicdk1VM"
+categories: "Howto-Style"
+tags: ["Beauty","Haul","Tutorial"]
+date: "2022-02-16T11:21:36+03:00"
+vid_date: "2022-02-14T17:00:26Z"
+duration: "PT16M17S"
+viewcount: "4043"
+likeCount: "331"
+dislikeCount: ""
+channel: "BreeAnn Marie"
+---
+{% raw %}I never in a million years thought I would do this! In today's video I am removing ALL of my ear piercings! WHAT?! But the question is, is this permanent? Have I moved on my from my piercing obsession? NO WAY! I wanted to record myself removing all of my ear piercings, give them a good clean, and then put them all back in. This was so fun, stressful, scary, and interesting all at the same time! Glad I did this! What do you guys think about this? Isn't this weird?! Share all your thoughts down in the comments and give this video a thumbs up before you go! xoxo<br /><br />↓↓OPEN ME↓↓<br />WATCH IN 1080p HD!<br /><br />#breeannmarie #bodyjewelry #earpiercings<br /><br />❤MY SOCIAL MEDIA!<br />♡Facebook Fanpage: <a rel="nofollow" target="blank" href="https://www.facebook.com/BreeAnnxMarie/">https://www.facebook.com/BreeAnnxMarie/</a><br />♡Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/breeannxmarie/">https://www.instagram.com/breeannxmarie/</a> Or @breeannxmarie<br />♡My Dog's Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/jackyl_and_avril/">https://www.instagram.com/jackyl_and_avril/</a> Or @Jackyl_and_Avril<br />♡Snap Chat: littleb893<br />♡Twitter: @BreeAnnB893<br /><br />BUSINESS E-MAIL ONLY (Please do NOT contact me about piercing questions!): breeann.streng@gmail.com <br /><br />FTC Disclaimer-None of the products, businesses, or companies mentioned or used in this video are sponsoring me or paying me to use them in any way, shape, or form. These are always my own personal &amp; honest opinions. I do include some affiliate links in the description of my videos.<br /><br />-------------------------------------------------------------------------<br />❤CLICK the LINK To Visit My Playlist of Piercing Information, aftercare, etc.<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLdX-EyE5P4Rx-SRR5h7_tSbssuYYX9QN7">https://www.youtube.com/playlist?list=PLdX-EyE5P4Rx-SRR5h7_tSbssuYYX9QN7</a><br />-------------------------------------------------------------------------------------------------------------<br />❤Camera I Use: Canon EOS Rebel t3i 600D<br />❤Editing Program I Use: Windows Movie Maker<br />❤VLOGGING Camera I Use: Sony Cyber-Shot DSC-HX90V<br /><br /><br />Disclaimer: This YouTube Channel &amp; the accounts you see at the top of the description box are the ONLY accounts that I have open for my YouTube fans. I have 1 other Facebook page that is kept to myself and personal friends ONLY. <br />Any other social media sites are fake accounts so please report! Thank you!❤<br /><br />Love you guys,<br /><br />-BreeAnn xoxo{% endraw %}
