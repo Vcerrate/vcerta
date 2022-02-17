@@ -1,0 +1,15 @@
+---
+title: "NSB Day Trip to the Beach!!"
+image: "https:\/\/i.ytimg.com\/vi\/9SddgFXeFcU\/hqdefault.jpg"
+vid_id: "9SddgFXeFcU"
+categories: "Entertainment"
+tags: ["North Star Boys","NSB","nsb boys"]
+date: "2022-02-18T02:23:57+03:00"
+vid_date: "2022-02-17T19:24:18Z"
+duration: "PT18M18S"
+viewcount: "19186"
+likeCount: "4903"
+dislikeCount: ""
+channel: "NorthStarBoys"
+---
+{% raw %}NSB takes a visit to the beach. Regie and Justin are handcuffed from losing a challenge. Kane's dream comes true. Ryan still hates everyone.<br /><br />JOIN OUR DISCORD: <a rel="nofollow" target="blank" href="https://discord.gg/nsb">https://discord.gg/nsb</a><br />North Star Boys FIRST TIME Date (Valentines Day)<br /><br />MAKE SURE TO SUBSCRIBE!!<br /><br />North Star Boys Shorts:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCoR8muhzlQsMVVXg8Aep5Jg/videos?view=0&amp;sort=p&amp;flow=grid">https://www.youtube.com/channel/UCoR8muhzlQsMVVXg8Aep5Jg/videos?view=0&amp;sort=p&amp;flow=grid</a><br /><br />North Star Boys Social Media:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/northstarboys/">https://www.instagram.com/northstarboys/</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/NorthStarBoys7">https://twitter.com/NorthStarBoys7</a><br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@northstarboys?">https://www.tiktok.com/@northstarboys?</a><br /><br />Follow our personal channels: <br /><br />Oliver Moy:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/olivermoy">https://www.youtube.com/c/olivermoy</a><br /><br />Sebastian Moy:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/SebastianMoy">https://www.youtube.com/c/SebastianMoy</a><br /><br />Justin Phan:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCKP56N99F9YhLDwlvzI7ONg">https://www.youtube.com/channel/UCKP56N99F9YhLDwlvzI7ONg</a><br /><br />Kane Ratan:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCo2VvHgrIK9Dj7xAaW40gBw">https://www.youtube.com/channel/UCo2VvHgrIK9Dj7xAaW40gBw</a><br /><br />Azngami (Ryan):<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/beastryan1">https://www.youtube.com/user/beastryan1</a><br /><br />Darren Liang:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC47Iprn3Mt_Gvckh_MT62Ag">https://www.youtube.com/channel/UC47Iprn3Mt_Gvckh_MT62Ag</a><br /><br />Regie Macalino:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCXYYvUl386JoZ6Ca2bDEQGg">https://www.youtube.com/channel/UCXYYvUl386JoZ6Ca2bDEQGg</a><br /><br />Manager Ty:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCLbJPLio5FVmatqoLB4Iosg">https://www.youtube.com/channel/UCLbJPLio5FVmatqoLB4Iosg</a><br /><br />Media Team:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/baemerola/">https://www.instagram.com/baemerola/</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/ayescobar/">https://www.instagram.com/ayescobar/</a><br /><br />#NorthStarBoys #NSB{% endraw %}
