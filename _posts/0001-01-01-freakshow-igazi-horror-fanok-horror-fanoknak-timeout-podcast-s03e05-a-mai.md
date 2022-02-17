@@ -1,0 +1,15 @@
+---
+title: "FreakShow: Igazi horror fanok, horror fanoknak! | TIMEOUT Podcast S03E05"
+image: "https:\/\/i.ytimg.com\/vi\/gqa8A5608io\/hqdefault.jpg"
+vid_id: "gqa8A5608io"
+categories: "People-Blogs"
+tags: ["TheVR","WeAreTheVR","TIMEOUT"]
+date: "2022-02-17T22:03:11+03:00"
+vid_date: "2022-02-10T17:30:11Z"
+duration: "PT2H32M42S"
+viewcount: "64606"
+likeCount: "2417"
+dislikeCount: ""
+channel: "TIMEOUT Podcast"
+---
+{% raw %}A mai TIMEOUT Podcast vendégeink Jancsik Zsolt és Csender Dezső, a FreakShow Youtube csatorna tagjai voltak. Kiveséztük velük a horror filmek különböző típusait, jellegzetességeit, a szerethető és az utálható részeket, valamint kitaláltuk az új szlogenjüket: Két langyos víz.<br /><br />FreakShow YouTube csatorna: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/FreakShowhu">https://www.youtube.com/c/FreakShowhu</a><br /><br />Kövess minket élőben ► <a rel="nofollow" target="blank" href="https://thevr.tv">https://thevr.tv</a><br />Twitch menetrend ► <a rel="nofollow" target="blank" href="https://www.thevr.hu/menetrend/">https://www.thevr.hu/menetrend/</a><br />TheVR Happy Hour Podcast ► <a rel="nofollow" target="blank" href="https://anchor.fm/thevr-happy-hour">https://anchor.fm/thevr-happy-hour</a><br /><br />Csatlakozz hozzánk ► <a rel="nofollow" target="blank" href="http://tinyurl.com/JoinTheVR">http://tinyurl.com/JoinTheVR</a><br />Tech csatornánk ► <a rel="nofollow" target="blank" href="http://tinyurl.com/JoinTheVRTech">http://tinyurl.com/JoinTheVRTech</a><br /><br />TheVR Shop ► <a rel="nofollow" target="blank" href="http://shop.thevr.hu">http://shop.thevr.hu</a><br />Mivel nyomjuk? ► <a rel="nofollow" target="blank" href="http://thevr.hu/mivel-nyomjuk/">http://thevr.hu/mivel-nyomjuk/</a><br /><br />Honlapunk ► <a rel="nofollow" target="blank" href="http://thevr.hu">http://thevr.hu</a><br />Facebook ► <a rel="nofollow" target="blank" href="http://facebook.com/thevrhu">http://facebook.com/thevrhu</a><br />Instagram ► <a rel="nofollow" target="blank" href="https://www.instagram.com/wearethevr">https://www.instagram.com/wearethevr</a><br />TikTok ► <a rel="nofollow" target="blank" href="https://www.tiktok.com/@wearethevr_official">https://www.tiktok.com/@wearethevr_official</a><br />TheVR Happy Hour Podcast ► <a rel="nofollow" target="blank" href="https://anchor.fm/thevr-happy-hour">https://anchor.fm/thevr-happy-hour</a><br />Twitter ► <a rel="nofollow" target="blank" href="http://twitter.com/wearethevr">http://twitter.com/wearethevr</a><br />Pisti Twitter ► <a rel="nofollow" target="blank" href="https://twitter.com/thevrpisti">https://twitter.com/thevrpisti</a><br />Jani Twitter ► <a rel="nofollow" target="blank" href="https://twitter.com/thevrjani">https://twitter.com/thevrjani</a><br />Bazsi Twitter ► <a rel="nofollow" target="blank" href="https://twitter.com/thevrbazsi">https://twitter.com/thevrbazsi</a><br />Dani Twitter ► <a rel="nofollow" target="blank" href="https://twitter.com/TheVR_Dani">https://twitter.com/TheVR_Dani</a><br />#TheVR #WeAreTheVR{% endraw %}
