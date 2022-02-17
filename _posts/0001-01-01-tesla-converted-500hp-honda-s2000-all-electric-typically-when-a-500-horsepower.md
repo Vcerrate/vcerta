@@ -1,0 +1,15 @@
+---
+title: "Tesla Converted 500hp Honda S2000 -- All-Electric!"
+image: "https:\/\/i.ytimg.com\/vi\/p52k6JQD1PU\/hqdefault.jpg"
+vid_id: "p52k6JQD1PU"
+categories: "Autos-Vehicles"
+tags: ["Hoonigan","hoonegan","Ken Block"]
+date: "2022-02-17T12:35:50+03:00"
+vid_date: "2022-02-16T17:00:39Z"
+duration: "PT22M54S"
+viewcount: "122578"
+likeCount: "5790"
+dislikeCount: ""
+channel: "Hoonigan"
+---
+{% raw %}Typically when a 500 horsepower Honda S2000 comes around it has a built motor with a huge turbo strapped to it all while making all the wildest sounds imaginable. But our friends at @Rywire Motorsports Electronics had something different in mind. They took a Tesla motor and fully integrated it into their Honda S2000 in the cleanest way possible. This might be the easiest or the hardest 500 horsepower swap ever done, ha! The future is coming in hot… whether you like it or not.<br /><br />HOONIGAN Crew Gear<br /><br />Ron: <br />Definition Pullover Hoodie: <a rel="nofollow" target="blank" href="https://www.hoonigan.com/collections/electric-s2000-build-biology/products/definition-pullover-hoodie">https://www.hoonigan.com/collections/electric-s2000-build-biology/products/definition-pullover-hoodie</a><br />Yard Dad Hat: <a rel="nofollow" target="blank" href="https://www.hoonigan.com/collections/electric-s2000-build-biology/products/yard-dad-hat">https://www.hoonigan.com/collections/electric-s2000-build-biology/products/yard-dad-hat</a><br /><br />We’ve got channels for all your car content needs. Subscribe, nerds!<br /><br />The Hoonigans: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/TheHoonigans?sub_confirmation=1">https://www.youtube.com/user/TheHoonigans?sub_confirmation=1</a><br /><br />Project Cars: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/HooniganProjectCars?sub_confirmation=1">https://www.youtube.com/c/HooniganProjectCars?sub_confirmation=1</a><br /><br />Ken Block: <a rel="nofollow" target="blank" href="https://www.youtube.com/KenBlockHHIC?sub_confirmation=1">https://www.youtube.com/KenBlockHHIC?sub_confirmation=1</a><br /><br />Bonus: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCFhUumuHyYL-mAXSeZVbqMg?sub_confirmation=1">https://www.youtube.com/channel/UCFhUumuHyYL-mAXSeZVbqMg?sub_confirmation=1</a><br /><br />Stay fresh with the latest apparel: <a rel="nofollow" target="blank" href="https://www.hoonigan.com/thenewnew">https://www.hoonigan.com/thenewnew</a><br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/TheHoonigans/">https://www.facebook.com/TheHoonigans/</a><br /><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/thehoonigans/">https://www.instagram.com/thehoonigans/</a><br /><br />Follow Our Crew:<br />@brianscotto<br />@hertlife<br />@vin_tra<br />@mister_zachary<br />@suppymk4<br />@roncar<br />@grimmaro<br /><br />And don’t forget to turn on notifications so you don’t miss out on our latest uploads!<br /><br /><a rel="nofollow" target="blank" href="http://www.hoonigan.com">http://www.hoonigan.com</a>{% endraw %}
