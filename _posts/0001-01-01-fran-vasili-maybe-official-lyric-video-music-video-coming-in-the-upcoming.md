@@ -1,0 +1,15 @@
+---
+title: "Fran Vasilić - Maybe (Official Lyric Video)"
+image: "https:\/\/i.ytimg.com\/vi\/WrBfnlfG_rw\/hqdefault.jpg"
+vid_id: "WrBfnlfG_rw"
+categories: "Music"
+tags: ["Vasilić","Maybe","(Official"]
+date: "2022-02-17T18:26:38+03:00"
+vid_date: "2022-02-11T05:00:13Z"
+duration: "PT2M59S"
+viewcount: "22957"
+likeCount: "2617"
+dislikeCount: ""
+channel: "Fran Vasilić"
+---
+{% raw %}Music video coming in the upcoming weeks.<br /><br />STREAM MAYBE: <a rel="nofollow" target="blank" href="https://musaic.bio/fran-vasilic/Maybe">https://musaic.bio/fran-vasilic/Maybe</a><br /><br />SOCIALS:<br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@fran.vasilic">https://www.tiktok.com/@fran.vasilic</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/frnvslc/">https://www.instagram.com/frnvslc/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/frnvslc">https://www.facebook.com/frnvslc</a><br /><br />CREDITS:<br />Background animation: Marin Ćosić (<a rel="nofollow" target="blank" href="https://instagram.com/hrapavastr)">https://instagram.com/hrapavastr)</a><br />Lyric animation: Nathan Cook (<a rel="nofollow" target="blank" href="https://www.youtube.com/Incept/)">https://www.youtube.com/Incept/)</a><br /><br />LYRICS:<br />trains keep running<br />hearts keep breaking<br />i keep writing<br />songs<br /><br />about things<br />that<br />are out<br />of my<br />control<br />but i<br />pretend<br />they're not<br /><br />and then wonder why<br />the outcome's not what i planned for<br /><br />oh, cos lately<br />i tend to answer with<br />“maybe”<br />cos commitment seems so<br />scary<br />and i miss just being<br />bored<br />(bored, bored, bored...)<br /><br />i swear baby,<br />i’m not the one that’s<br />crazy<br />you say that i’m just too<br />picky<br />but there’s too much on my plate<br />(plate, plate, plate...)<br /><br />i've never been the one to spend hours together<br />i love my friends but i like silence even better and<br />i love my parents but i can't keep all my promises, yeah<br /><br />maybe i should start thinking less<br />live my life how it fits me best<br />cut off all the ones who cannot comprehend that<br />maybe<br />i'm not doing well<br />and maybe<br />it's not about them<br /><br />oh cos<br />lately<br />i tend to answer with<br />“maybe”<br />cos commitment seems so<br />scary<br />and i miss just being<br />bored<br />(bored, bored, bored...)<br /><br />i swear baby,<br />i’m not the one that’s<br />crazy<br />you say that i’m just too<br />picky<br />but there’s too much on my plate<br />(plate, plate, plate...)<br /><br />here's my promise<br />to myself and whoever is bothered<br />by the fact that i don't know how to say &quot;yes&quot; or &quot;no&quot;,<br />that i need control and that i cannot<br />“just let it go&quot;, so<br />i promise<br />i'll take the pills that you feed me<br />i promise<br />i'll let go of the parts of myself that i like<br />i'll be focused and nice,<br />perfect slave to the system we're in{% endraw %}
