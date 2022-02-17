@@ -1,0 +1,15 @@
+---
+title: "Rams Super Bowl Parade Photographer Fractures Spine In Scary Fall From Stage | TMZ Sports"
+image: "https:\/\/i.ytimg.com\/vi\/Yr-J1vzPTCU\/hqdefault.jpg"
+vid_id: "Yr-J1vzPTCU"
+categories: "Sports"
+tags: ["TMZ","TMZ Sports","TMZ Sports Channel"]
+date: "2022-02-17T22:56:05+03:00"
+vid_date: "2022-02-17T14:34:08Z"
+duration: "PT1M"
+viewcount: "25586"
+likeCount: "431"
+dislikeCount: ""
+channel: "TMZSports"
+---
+{% raw %}A woman fell from the stage at the L.A. Rams' Super Bowl parade on Wednesday ... and the spill was so nasty, she says she suffered a fractured spine and broke her cameras in the fall.<br /><br />The incident happened toward the end of the celebration in Los Angeles ... when Kelly Smiley tripped while appearing to take a photo of Matthew Stafford and his wife, Kelly Stafford.<br /><br />SUBSCRIBE -- <a rel="nofollow" target="blank" href="http://tmz.me/j0hSW37">http://tmz.me/j0hSW37</a><br /><br />About TMZ Sports:<br />Some of the best stories in sports have been off the field and we’re reporting on athletes from NFL, NBA, UFC, WWE, MLB and more!  <br /><br />Subscribe to TMZ Sports on YouTube for the latest news, exclusive interviews, clips from TMZ Sports on FS1 and videos of your favorite athletes and celebs. <br /><br />Need More TMZ?<br />TMZ Sports Website: <a rel="nofollow" target="blank" href="http://tmz.me/jMBERbb">http://tmz.me/jMBERbb</a><br />LIKE TMZ on Facebook! <a rel="nofollow" target="blank" href="http://tmz.me/9sGB00a">http://tmz.me/9sGB00a</a><br />FOLLOW TMZ on Twitter! <a rel="nofollow" target="blank" href="http://tmz.me/9LeeNWQ">http://tmz.me/9LeeNWQ</a><br />FOLLOW TMZ on Instagram! <a rel="nofollow" target="blank" href="http://tmz.me/ep7d8Bn">http://tmz.me/ep7d8Bn</a><br />TMZ on TV &amp; TMZ Sports on FS1 Tune In Info: <a rel="nofollow" target="blank" href="http://tmz.me/ccuirUZ">http://tmz.me/ccuirUZ</a><br />TMZ is on iOS! <a rel="nofollow" target="blank" href="http://tmz.me/ecOjgiH">http://tmz.me/ecOjgiH</a><br />TMZ is on Android! <a rel="nofollow" target="blank" href="http://tmz.me/pkwieRA">http://tmz.me/pkwieRA</a><br /><br />Got a Tip?<br />Contact TMZ: <a rel="nofollow" target="blank" href="http://tmz.me/UsxYCvE">http://tmz.me/UsxYCvE</a><br /><br />Check out TMZ, TMZ Live, and toofab!<br />TMZ: <a rel="nofollow" target="blank" href="http://tmz.me/fPrTwZt">http://tmz.me/fPrTwZt</a><br />Subscribe! TMZ: <a rel="nofollow" target="blank" href="http://tmz.me/wONe5NO">http://tmz.me/wONe5NO</a><br />TMZ Live: <a rel="nofollow" target="blank" href="http://tmz.me/GxCXCfl">http://tmz.me/GxCXCfl</a><br />Subscribe! TMZ Live: <a rel="nofollow" target="blank" href="http://tmz.me/cLxA82p">http://tmz.me/cLxA82p</a><br />Toofab: <a rel="nofollow" target="blank" href="http://tmz.me/dsXztns">http://tmz.me/dsXztns</a><br />Subscribe! toofab: <a rel="nofollow" target="blank" href="http://tmz.me/VeVLMmi">http://tmz.me/VeVLMmi</a><br /><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/tmzsports">https://www.youtube.com/c/tmzsports</a>{% endraw %}
