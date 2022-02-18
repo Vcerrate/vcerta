@@ -1,0 +1,15 @@
+---
+title: "The Most SAFEST Tower in Minecraft!"
+image: "https:\/\/i.ytimg.com\/vi\/klrYU91v5Tk\/hqdefault.jpg"
+vid_id: "klrYU91v5Tk"
+categories: "Gaming"
+tags: ["SAFEST","Tower","Minecraft!"]
+date: "2022-02-18T21:30:44+03:00"
+vid_date: "2022-02-12T10:00:31Z"
+duration: "PT9M55S"
+viewcount: "931871"
+likeCount: "22464"
+dislikeCount: ""
+channel: "BBlocks"
+---
+{% raw %}This WORLD SAFEST TOWER in Minecraft. REDSTONE TRAPS to protect your Diamonds from your Friends! CAN MY FRIEND REACH THE DIAMONDS?<br />WATCH this video to the end to FIND OUT!<br /><br />👇 Subscribe To My Channel for More Awesome Tricks! 👇<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/BBlocks?sub_confirmation=1">https://www.youtube.com/c/BBlocks?sub_confirmation=1</a><br /><br />Minecraft Safest Base. Build this house with awesome traps for friends in minecraft. Troll your friends in this tower or protect yourself from all the zombies in your survival World. All your friends will have a lot of fun and enjoy this secret minecraft base secret house. It looks like Dream got lost in his Manhunt with SapNap and GeorgeNotFound FINALE! Could Dream escape the diamonds?<br />Recording videos like Minecraft: 10 Simple Redstone Builds! , Minecraft: How to make a working Elevator (easy) and Minecraft: 10+ Among Us Build Hacks is a really fun thing to do and I love to come up with new Ideas and Designs and present them in my Youtube-videos.<br />Watch The MOST Safest House in Minecraft or The MOST Safest Base in Minecraft next!<br /><br />SUBSCRIBE NOW! SUBSCRIBE SUBSCRIBE SUBSCRIBE! I want to reach 5 Million Subs by the end of 2022!<br /><br />👇 Join My Discord-Server here! 👇<br /><a rel="nofollow" target="blank" href="https://discord.gg/gDAHNV3VUk">https://discord.gg/gDAHNV3VUk</a><br /><br />SUBSCRIBE for More Awesome Builds!<br />Stay Safe, BBlocks! :)<br /><br />SONGS:<br />Intro/Outro:<br />&quot;Makai Symphony - Dragon Castle&quot; is under a Creative Commons license (CC BY-SA 3.0).<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/Makai-symphony">https://www.youtube.com/c/Makai-symphony</a> <br />Music promoted by BreakingCopyright: <a rel="nofollow" target="blank" href="https://bit.ly/bc-dragon-castle-song">https://bit.ly/bc-dragon-castle-song</a><br />Others:<br />Song: Fredji &amp; Tobsky - Flow (Vlog No Copyright Music)<br />Music promoted by Vlog No Copyright Music.<br />Video Link: <a rel="nofollow" target="blank" href="https://youtu.be/6EBy3JmrKXg">https://youtu.be/6EBy3JmrKXg</a><br />Song: Fredji ft. Arcade - Ocean (Vlog No Copyright Music)<br />Music promoted by Vlog No Copyright Music.<br />Video Link: <a rel="nofollow" target="blank" href="https://youtu.be/5JpC2-8ZqUg">https://youtu.be/5JpC2-8ZqUg</a><br />Song: Fredji - Welcome Sunshine (Vlog No Copyright Music)<br />Music promoted by Vlog No Copyright Music.<br />Video Link: <a rel="nofollow" target="blank" href="https://youtu.be/cKoTJl4srrM">https://youtu.be/cKoTJl4srrM</a><br />Thanks to these artists!{% endraw %}
