@@ -1,0 +1,15 @@
+---
+title: "Stop - 16 Shkurt 2022 (Emisioni i Plotë)"
+image: "https:\/\/i.ytimg.com\/vi\/bNHgBocJL48\/hqdefault.jpg"
+vid_id: "bNHgBocJL48"
+categories: "News-Politics"
+tags: ["albania","denonco","emision satirik"]
+date: "2022-02-18T03:34:28+03:00"
+vid_date: "2022-02-16T20:00:41Z"
+duration: "PT38M27S"
+viewcount: "20442"
+likeCount: "137"
+dislikeCount: ""
+channel: "RTV KLAN"
+---
+{% raw %}Kush qau per Berishen/ profili i Bashes sipas Rames.<br /><br />Ish kryeministri Berisha ishte sot në Shkozet të Durrësit, në kuadër të fushatës për zgjedhjet e 6 marsit. Gjatë një takimi një një biznes këpucësh, Berisha u suprizua, kur biznesmeni e prezantoi me djalin e tij, duke i treguar, sesa kishte qarë ai, kur Berisha dha dorëheqjen.Kryeministri Rama tha nga Washingtoni, se Basha nuk di gjë tjetër, vecse të humbasë, ndaj dhe në 6 mars do t’i qëndrojë besnik profilit të tij<br /><br />#stoptvklan #stop16shkurt #BerishaShkozet #Rama #Basha #SaimirKodra #GentianZenelaj #parashikimiRames <br /><br />Falsifikoi testamentin, Majlinda Lleshi merr peng denoncuesen.<br /><br />Zonja Arta Çika denoncon në “Stop” procedurën e hapjes së testamentit nga noterja Majlinda Lleshi në Borsh.Testamenti është bërë në vitin 2013.Majlida Lleshi rezulton notere te firma e burrit të kunatës së zonjës Arta Cika “Hodaj SHPK”. Në testament rezultojnë një seri problemesh. Firma e të moshuarës, që ka ndërruar jetë, rezulton e falsifikuar.Nuk ka patur një dëshmitar, kur është bërë testamenti, pasi e ndjera trajtohej me kemp si e verbër.<br /><br />#stoptvklan #stop16shkurt #denoncimi #notereMajlindaLleshi #rrehgazetarin #rrehoperatorin #dhunanoteres #SaimirKodra #GentianZenelaj<br />  <br />Noterja Lleshi godet ne menyre shtazarake grupin e “Stop”-it.<br /><br />Qytetarja Arta Cika mbetet peng në zyrën e noteres Majlinda Lleshi, pasi kjo e fundit nuk e le të dalë dhe thërret policinë.Pasi vjen policia, noterja Lleshi në sy të forcave të rendit kërcënon gazetarin e “Stop”, se do ta vrasë dhe godet fizikisht gazetarin dhe kameramanin.<br /> <br />#stoptvklan #stop16shkurt #denoncimi #notereMajlindaLleshi #rrehgazetarin #rrehoperatorin #dhunanoteres #SaimirKodra #GentianZenelaj<br /><br />Stop Tv Klan | Një format satiro-investigativ nga Saimir Kodra &amp; Gentian Zenelaj.<br /><br />SUBSCRIBE to “RTV KLAN” on YouTube for more videos!<br /><br />Për më shumë informacione vizitoni faqen tonë web <a rel="nofollow" target="blank" href="https://tvklan.al/">https://tvklan.al/</a><br />Videot e fundit nga Tv Klan i gjeni në faqen <a rel="nofollow" target="blank" href="https://tvklan.al/video/">https://tvklan.al/video/</a><br />Follow Tvklan on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/tvklan/">https://www.facebook.com/tvklan/</a><br />Follow Tvklan on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/rtvklan/">https://www.instagram.com/rtvklan/</a><br />Programet e Tv Klan mund t’i ndiqni edhe në faqen <a rel="nofollow" target="blank" href="https://tvklan.al/programe/">https://tvklan.al/programe/</a>{% endraw %}
