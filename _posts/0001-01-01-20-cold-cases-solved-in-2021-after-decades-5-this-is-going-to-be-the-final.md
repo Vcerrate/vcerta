@@ -1,0 +1,15 @@
+---
+title: "20 Cold Cases Solved in 2021 (After Decades) #5"
+image: "https:\/\/i.ytimg.com\/vi\/ptvqJBL4ljA\/hqdefault.jpg"
+vid_id: "ptvqJBL4ljA"
+categories: "Education"
+tags: ["missing persons","solved cases","solved in 2021"]
+date: "2022-02-20T00:46:02+03:00"
+vid_date: "2022-01-09T21:15:01Z"
+duration: "PT2H41S"
+viewcount: "1816260"
+likeCount: "16289"
+dislikeCount: ""
+channel: "Mysterious 5"
+---
+{% raw %}This is going to be the final video on cold cases that were solved in 2021. The first case is of Kara Enid Vaugha, who went missing in 1993.  In 2021, it was finally discovered what had happened to her. The second case is of Angela Mack Cox, she disappeared under mysterious circumstances in the summer of 2002. After almost 20 years, her solved case is raising more questions than answers. The third case is of Barbara Tucker from June of 1980. The fourth case is of Krista Leuth, who went missing in 2008. The rest of the cases are already covered on the channel but are put together to create a complete final video.<br /><br />00:00- 3:04 (1.Case of  Kara Enid Vaughn)<br />03:05-14:47  (2.Case of Angela Mack Cox )<br />14:48- 20:29  (3.Case of Barbara Tucker ) <br />20:30-24:50 (4.Case of Krista Lueth)<br />24:51-  28:16  (5. Case of Denise  Marie Stafford)<br />28:17-  34:35 (6.Case of Sonia Carmen Herok Stone)<br />34:36- 39:18  (7.The 3 Florida Cold Cases )<br />39:19-44:56  ( 8.Cases of Althea  Oakley and Kaitlin Arquette)<br />44:56-50:13  (9.Case of  Michelle Wyatt)<br />50:14- 1:04:47 (10.Cases of  Patricia Kalitzke  and Lloyd Dwayne Bogle )<br />1:04:48- 1:11:19 ( 11.Case of Varginia  Hannon)<br />1:11:20- 1:17:13 (12.Case of Janet Brochu)<br />1:17:14- 1:20:32 (13.Case of  Leola  Jordan)<br />1:20:33-1:26:57 (14.Case of Pecos Jane Doe ) <br />1:26:58-1:33:43 (15.Case of Edward Surrat)<br />1:33:44- 1:41:43 ( 16.Cases of  Annette Schnee and Bobbie Oberholtzer )<br />1:41:44- 1:45:42 ( 17.Case of Gayle Barrus)<br />1:45:43-1:49:26  (18.Case of Stephanie Sommers )<br />1:49:27- 1:55:00 (19.Case of Sylvia  Mae Quayle )<br />1:55:01- 2:00:24 (20.Case of Bonny Baker)<br /><br /><br /><br />Channel for Scary stories, Mr. Reality's channel:-<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC1V3awAzjMHTVDLUEuXAqmQ">https://www.youtube.com/channel/UC1V3awAzjMHTVDLUEuXAqmQ</a><br /><br />Background music:-<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCcavSftXHgxLBWwLDm_bNvA">https://www.youtube.com/channel/UCcavSftXHgxLBWwLDm_bNvA</a><br /><br /><br />Credit/Source for pictures:-<br /><br />Picayune photo:-<br /><br /><a rel="nofollow" target="blank" href="https://commons.m.wikimedia.org/wiki/File:Main_Street_in_Picayune.jpg#mw-jump-to-license">https://commons.m.wikimedia.org/wiki/File:Main_Street_in_Picayune.jpg#mw-jump-to-license</a><br /><br />West Columbia photo:-<br /><br /><a rel="nofollow" target="blank" href="https://commons.wikimedia.org/wiki/File:West_Columbia,_SC.jpg">https://commons.wikimedia.org/wiki/File:West_Columbia,_SC.jpg</a><br /><br />For any matter please contact:- mysterious5info@gmail.com{% endraw %}
