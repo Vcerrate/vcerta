@@ -1,0 +1,15 @@
+---
+title: "HOW MANY DIFFERENT DOG BREEDS CAN I FIT ON ONE PAGE?!"
+image: "https:\/\/i.ytimg.com\/vi\/7pAj0R4RQ4U\/hqdefault.jpg"
+vid_id: "7pAj0R4RQ4U"
+categories: "Entertainment"
+tags: ["DrawingWiffWaffles","drawing","wiff"]
+date: "2022-02-19T23:47:48+03:00"
+vid_date: "2022-02-19T14:07:00Z"
+duration: "PT30M12S"
+viewcount: "33052"
+likeCount: "4644"
+dislikeCount: ""
+channel: "DrawingWiffWaffles"
+---
+{% raw %}Today I drew as many dog breeds in one spread of my sketchbook as I could. Or I suppose felt like... haha Actually I did a few more then I felt like it but I don't regret a single one. So I hope you enjoy todays video. I had so much fun. I've never tried to draw so many different breeds and its exciting to see how they differ and how they are similar. <br /><br />► FAVORITE SUPPLIES:<br />Purple Sketchbook: <a rel="nofollow" target="blank" href="https://plumchester.com/products/plumchester-square-sketchbook">https://plumchester.com/products/plumchester-square-sketchbook</a><br />illo Sketchbook 8x8: <a rel="nofollow" target="blank" href="https://amzn.to/2Q8mCAm">https://amzn.to/2Q8mCAm</a><br />Copic Sketch Markers: <a rel="nofollow" target="blank" href="https://amzn.to/2TuJklp">https://amzn.to/2TuJklp</a><br />Ohuhu Brushmarkers: <a rel="nofollow" target="blank" href="https://amzn.to/2KPN67H">https://amzn.to/2KPN67H</a> <br />Ohuhu Pastel: <a rel="nofollow" target="blank" href="https://amzn.to/38uHzxX">https://amzn.to/38uHzxX</a> <br />Ohuhu Fineliners: <a rel="nofollow" target="blank" href="https://amzn.to/2VqDsMa">https://amzn.to/2VqDsMa</a><br />Sakura Gelly Roll - 10 Bold: <a rel="nofollow" target="blank" href="https://amzn.to/354XMbH">https://amzn.to/354XMbH</a><br />White Posca Pen: <a rel="nofollow" target="blank" href="https://amzn.to/2FtHHBp">https://amzn.to/2FtHHBp</a><br />Col-Erase Pencils: <a rel="nofollow" target="blank" href="https://amzn.to/2UlTsNB">https://amzn.to/2UlTsNB</a><br /><br />♦ ♦ I COLLECT MY REFERENCES HERE: ♦ ♦<br /><a rel="nofollow" target="blank" href="https://www.pinterest.com/drawwiffwaffles/">https://www.pinterest.com/drawwiffwaffles/</a><br /><br />♦ ♦ SOCIAL MEDIA LINKS ♦ ♦ <br /><a rel="nofollow" target="blank" href="http://drawingwiffwaffles.com/">http://drawingwiffwaffles.com/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/DrawingWiffWaffles">https://www.facebook.com/DrawingWiffWaffles</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/DrawWiffWaffles">https://twitter.com/DrawWiffWaffles</a><br />Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/drawingwiffwaffles">http://instagram.com/drawingwiffwaffles</a><br /><br />♥ some links are affiliate, thanks for supporting me at no extra cost to you! ♥<br />Thank you Becca, for the help with editing on this video!<br />Thanks to Amanda for helping me out with Captions! ♥ [<a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCjF_jBdRCbHqKiJgmBKxdog?sub_confirmation=1]">https://www.youtube.com/channel/UCjF_jBdRCbHqKiJgmBKxdog?sub_confirmation=1]</a>{% endraw %}
