@@ -1,0 +1,15 @@
+---
+title: "Get Ready for the Day With \"Cheer\" Star Morgan Simianer | Waking Up With | ELLE"
+image: "https:\/\/i.ytimg.com\/vi\/8R33-3-GWhc\/hqdefault.jpg"
+vid_id: "8R33-3-GWhc"
+categories: "Howto-Style"
+tags: ["elle","elle magazine","elle video"]
+date: "2022-02-19T22:44:40+03:00"
+vid_date: "2022-02-19T00:03:06Z"
+duration: "PT13M42S"
+viewcount: "6146"
+likeCount: "379"
+dislikeCount: ""
+channel: "ELLE"
+---
+{% raw %}Professional cheerleader #MorganSimianer takes sleep very seriously- and being a night owl requires #WakingUpWith &quot;a million alarms&quot; and a cup of creamer with a side of coffee to get ready for the day ahead. Today she takes #ELLE through her makeup, hair, and outfit routine as she prepares for a day full of interviews. Want to know more about Morgan? Be sure to check out Season 2 of “Cheer” on Netflix, streaming now!<br /><br />Stream Season 2 of “Cheer” Here: <a rel="nofollow" target="blank" href="https://www.netflix.com/title/81039393">https://www.netflix.com/title/81039393</a><br />Follow Morgan on IG: <a rel="nofollow" target="blank" href="https://www.instagram.com/morgannlyn/">https://www.instagram.com/morgannlyn/</a><br /><br />For more ELLE: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLG8Rnf78qVIFtrbuVoFDxXCU735qP7Zom">https://www.youtube.com/playlist?list=PLG8Rnf78qVIFtrbuVoFDxXCU735qP7Zom</a> <br /><br />SUBSCRIBE TO ELLE!: <a rel="nofollow" target="blank" href="http://bit.ly/">http://bit.ly/</a> <br /><br />ELLE SHOWS: <br /><br />LATEST SEASON OF SONG ASSOCIATION: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Jc8UR...">https://www.youtube.com/watch?v=Jc8UR...</a> <br />WATCH ALL SEASONS OF SONG ASSOCIATION HERE: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/ELLE/playlists">https://www.youtube.com/c/ELLE/playlists</a><br />Waking Up With: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=4tC2-...">https://www.youtube.com/watch?v=4tC2-...</a> <br />Thirst Trap: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=5Bmp-...">https://www.youtube.com/watch?v=5Bmp-...</a> <br />Ask Me Anything: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=DV_EZ...">https://www.youtube.com/watch?v=DV_EZ...</a> <br />The Clothes of Our Lives: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=i7xp9...">https://www.youtube.com/watch?v=i7xp9...</a> <br />Mama I Made It: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=dEVNt...">https://www.youtube.com/watch?v=dEVNt...</a> <br /><br />Read us at: <a rel="nofollow" target="blank" href="https://www.elle.com">https://www.elle.com</a> <br />Like us on Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/ELLEMagazine">http://facebook.com/ELLEMagazine</a> <br />Follow us on Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/ELLEMagazine">http://twitter.com/ELLEMagazine</a> <br />Keep up with us on Instagram: <a rel="nofollow" target="blank" href="http://instagr.am/ELLEUSA">http://instagr.am/ELLEUSA</a>{% endraw %}
