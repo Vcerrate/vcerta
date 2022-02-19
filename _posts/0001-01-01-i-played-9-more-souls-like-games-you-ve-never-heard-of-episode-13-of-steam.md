@@ -1,0 +1,15 @@
+---
+title: "I played 9 MORE Souls-Like games you've never heard of"
+image: "https:\/\/i.ytimg.com\/vi\/n5elr3rsIGQ\/hqdefault.jpg"
+vid_id: "n5elr3rsIGQ"
+categories: "Gaming"
+tags: ["soulslike","souls like","iron pineapple"]
+date: "2022-02-19T16:53:07+03:00"
+vid_date: "2022-02-17T21:49:34Z"
+duration: "PT35M24S"
+viewcount: "767068"
+likeCount: "46130"
+dislikeCount: ""
+channel: "Iron Pineapple"
+---
+{% raw %}episode 13 of Steam Dumpster Diving with somehow, once again, even more &quot;souls-likes&quot; you (probably) haven't heard of<br />twitter: <a rel="nofollow" target="blank" href="https://twitter.com/IronPineapple_">https://twitter.com/IronPineapple_</a><br />twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/iron_pineapple">https://www.twitch.tv/iron_pineapple</a><br /><br />TIMESTAMPS<br />0:00 Intro<br />0:25 Spirits of Light<br />5:13 Spark in the Dark<br />7:38 Mortal Rite<br />11:53 Runewaker<br />15:43 Gods Will Fall<br />20:00 Edge of the Abyss Awaken<br />23:33 Devil Spire<br />27:54 Boss Rush Mythology<br />31:05 Northern Journey<br />34:52 outro<br /><br />also big thanks for help from:<br />Hugo Junstrand for the cool &quot;steam dumpster diving&quot; animation as well as the music in the intro: <a rel="nofollow" target="blank" href="https://twitter.com/HugoJunstrand">https://twitter.com/HugoJunstrand</a><br />Onua for creating the SFM pose of the knight in the thumbnail: <a rel="nofollow" target="blank" href="https://twitter.com/Odynom">https://twitter.com/Odynom</a><br /><br />games played (in order of appearance)<br /><a rel="nofollow" target="blank" href="https://store.steampowered.com/app/1855380/Spirits_of_Light/">https://store.steampowered.com/app/1855380/Spirits_of_Light/</a><br /><a rel="nofollow" target="blank" href="https://store.steampowered.com/app/1315180/Spark_in_the_Dark/">https://store.steampowered.com/app/1315180/Spark_in_the_Dark/</a><br /><a rel="nofollow" target="blank" href="https://store.steampowered.com/app/1655990/Mortal_Rite/">https://store.steampowered.com/app/1655990/Mortal_Rite/</a><br /><a rel="nofollow" target="blank" href="https://store.steampowered.com/app/1842430/Runewaker/">https://store.steampowered.com/app/1842430/Runewaker/</a><br /><a rel="nofollow" target="blank" href="https://store.steampowered.com/app/1243690/Gods_Will_Fall/">https://store.steampowered.com/app/1243690/Gods_Will_Fall/</a><br /><a rel="nofollow" target="blank" href="https://store.steampowered.com/app/1641670/EdgeOfTheAbyssAwaken/">https://store.steampowered.com/app/1641670/EdgeOfTheAbyssAwaken/</a><br /><a rel="nofollow" target="blank" href="https://store.steampowered.com/app/1861290/Devil_Spire/">https://store.steampowered.com/app/1861290/Devil_Spire/</a><br /><a rel="nofollow" target="blank" href="https://store.steampowered.com/app/1237870/Boss_Rush_Mythology/">https://store.steampowered.com/app/1237870/Boss_Rush_Mythology/</a><br /><a rel="nofollow" target="blank" href="https://store.steampowered.com/app/1639790/Northern_Journey/">https://store.steampowered.com/app/1639790/Northern_Journey/</a>{% endraw %}
