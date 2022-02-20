@@ -1,0 +1,15 @@
+---
+title: "A special ANNOUNCEMENT and some CRAZY BANGERS || HATO's Crate Digging Show (HCDS) 42"
+image: "https:\/\/i.ytimg.com\/vi\/5F96g9mDOD0\/hqdefault.jpg"
+vid_id: "5F96g9mDOD0"
+categories: "Entertainment"
+tags: ["Crate Digging Show","HATO","HCDS"]
+date: "2022-02-20T19:49:12+03:00"
+vid_date: "2022-02-18T20:00:11Z"
+duration: "PT22M17S"
+viewcount: "30760"
+likeCount: "1953"
+dislikeCount: ""
+channel: "HATO"
+---
+{% raw %}In HATO's Crate Digging Show (HCDS) 42 I have a special announcement to make and we find some crazy bangers! <br /><br />GET YA MERCH HERE: <a rel="nofollow" target="blank" href="https://www.hato.dj/">https://www.hato.dj/</a> <br /><br />*** SOCIALS ****<br />WWW.HATO.DJ<br />INSTAGRAM: <a rel="nofollow" target="blank" href="http://www.instagram.com/hato.dj">http://www.instagram.com/hato.dj</a><br />TikTok: <a rel="nofollow" target="blank" href="https://vm.tiktok.com/ZMRCTRcwy/">https://vm.tiktok.com/ZMRCTRcwy/</a><br />FACEBOOK: <a rel="nofollow" target="blank" href="http://www.facebook.com/hato.dj">http://www.facebook.com/hato.dj</a><br />SPOTIFY: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/5Riqx3AaUzngHRUXOcQ9tu?si=AjEKz-LMR02kpfjMr6gORQ&amp;dl_branch=1">https://open.spotify.com/artist/5Riqx3AaUzngHRUXOcQ9tu?si=AjEKz-LMR02kpfjMr6gORQ&amp;dl_branch=1</a><br /><br />***TRACKLIST****<br />TBA<br /><br />audio version: TBA<br /><br />*** WELCOME TO HATO'S CRATE DIGGING SHOW ***<br />In HATO's Crate Digging Show (aka HCDS) we search the web for new music I can use in my DJ sets, make remixes of or simply vibe out to. So that means you'll see me react to music as I'm hearing it for the first time. Since I like to rage and turn the F up, we're especially looking for BANGERS! <br /><br />- Want your song featured in the next episode? Send it to crate@hato.dj <br />edit: damn! Y'all flooded my inbox haha! Currently figuring out a better way to do this, because I can't keep up anymore :(<br /><br />- Found a song that isn't yours, but you're like, &quot;omg, HATO might like this&quot;, then send it to crate@hato.dj ! We're in this together !<br />edit: see edit above<br /><br />- See a yellow check mark in the video? That means the song was added to one of the playlists! <br /><br />- Follow the playlist! Pro tip: make sure you choose the 'new to old' order in the playlists. That way you'll always have the latest songs on top *mindblown*!<br /><br />*** PLAYLISTS ***<br />- HATO&quot;s Spotify Crates:  <br />Head over to my artist page and scroll down to playlists: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/5Riqx3AaUzngHRUXOcQ9tu?si=AjEKz-LMR02kpfjMr6gORQ&amp;dl_branch=1">https://open.spotify.com/artist/5Riqx3AaUzngHRUXOcQ9tu?si=AjEKz-LMR02kpfjMr6gORQ&amp;dl_branch=1</a><br />- HATO's SoundCloud Crate: <br /><a rel="nofollow" target="blank" href="https://soundcloud.com/hato/sets/crate">https://soundcloud.com/hato/sets/crate</a><br /><br />#HATOsCrateDiggingShow #HCDS #HATO #DropsOnly{% endraw %}
