@@ -1,0 +1,15 @@
+---
+title: "Easily Add HDMI To Any Android Phone Or Tablet With A Cheap Displaylink Dock!"
+image: "https:\/\/i.ytimg.com\/vi\/Zim9w_iU3Og\/hqdefault.jpg"
+vid_id: "Zim9w_iU3Og"
+categories: "Gaming"
+tags: ["etaprime","eta prime","hdmi android to tv"]
+date: "2022-02-20T16:29:48+03:00"
+vid_date: "2022-02-15T15:14:53Z"
+duration: "PT8M17S"
+viewcount: "68149"
+likeCount: "2798"
+dislikeCount: ""
+channel: "ETA PRIME"
+---
+{% raw %}You can easily Add HDMI to any android phone or tablet using an inexpensive Displaylink adapter from eBay! <br />I've tested this with the POCK F3, Google Pixel 6 Pro, Galaxy A32 and the Moto G Play and it works with all of them.<br />This is a great option for those who want HDMI video on an Android device that dent natively supports Alt Mode or Dimply over USB C.<br /><br />Buy a Used Dimply Link Adapter from eBay: <a rel="nofollow" target="blank" href="https://ebay.us/mILevr">https://ebay.us/mILevr</a><br />Or get a New One From Amazon: <a rel="nofollow" target="blank" href="https://amzn.to/3GQrS2b">https://amzn.to/3GQrS2b</a><br />Poco f3:<a rel="nofollow" target="blank" href="https://ebay.us/HjvpOl">https://ebay.us/HjvpOl</a><br />Pixel 6 Pro:<a rel="nofollow" target="blank" href="https://amzn.to/34YRCfd">https://amzn.to/34YRCfd</a><br /><br />Follow Me On Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/theetaprime">https://twitter.com/theetaprime</a><br />Follow Me On Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/etaprime/">https://www.instagram.com/etaprime/</a><br /><br />00:00-Intro<br />00:30-Demo<br />01:57-Displaylink adapter overview<br />03:17-Displaylink Presentor App Install<br />04:03-Pixel 6 Pro HDMI Test<br />04:33-CHeap Android phone Test<br />05:32-POCO F3 Test Emulation and Gaming<br />07:22-FInal Thoughts<br /><br />Equipment I Use:<br />Screen Capture Device: <a rel="nofollow" target="blank" href="https://amzn.to/2STpX4C">https://amzn.to/2STpX4C</a><br />Tool Kit: <a rel="nofollow" target="blank" href="https://amzn.to/2M6l9WS">https://amzn.to/2M6l9WS</a><br />Soldering Station: <a rel="nofollow" target="blank" href="https://amzn.to/2FtdVeu">https://amzn.to/2FtdVeu</a><br />Camera: <a rel="nofollow" target="blank" href="https://amzn.to/2M6KFLB">https://amzn.to/2M6KFLB</a><br />Tripod: <a rel="nofollow" target="blank" href="https://amzn.to/2CmdYVY">https://amzn.to/2CmdYVY</a> <br />Raspberry Pi 4: <a rel="nofollow" target="blank" href="https://amzn.to/3cCrvKb">https://amzn.to/3cCrvKb</a><br />Flirc Case: <a rel="nofollow" target="blank" href="https://amzn.to/2OBQTXz">https://amzn.to/2OBQTXz</a><br /><br />DISCLAIMER: This video and description contains affiliate links, which means that if you click on one of the product links, I’ll receive a small commission at no extra cost to you!<br /><br />This video and Channel and Video are for viewers 14 years older and up. This video is not made for viewers under the age of 14. <br /><br />Want to send me something?<br />ETAPRIME <br />12520 Capital Blvd Ste 401 Number 108<br />Wake Forest, NC 27587 US<br /><br />THIS VIDEO IS FOR EDUCATIONAL PURPOSES ONLY!{% endraw %}
