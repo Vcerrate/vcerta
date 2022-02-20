@@ -1,0 +1,15 @@
+---
+title: "Do All Youtubers Think The Same?"
+image: "https:\/\/i.ytimg.com\/vi\/sd99m9VatJk\/hqdefault.jpg"
+vid_id: "sd99m9VatJk"
+categories: "Comedy"
+tags: ["jubille","kian and jc","knj"]
+date: "2022-02-20T10:37:21+03:00"
+vid_date: "2022-02-16T01:29:41Z"
+duration: "PT1H4M8S"
+viewcount: "390259"
+likeCount: "26150"
+dislikeCount: ""
+channel: "David Alvareeezy"
+---
+{% raw %}BUY YOUR OWN OKAI NEON ELECTRIC SCOOTER: <a rel="nofollow" target="blank" href="https://bit.ly/3orT94z">https://bit.ly/3orT94z</a><br />USE MY CODE: YYBEND8M<br />HASHTAGS: #okai #okaineon #okaielectricscooter<br /><br />If you liked this video please like and comment! helps me out a lot <br /><br />Follow me on TWITCH<br /><br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/davidalvareeezy">https://www.twitch.tv/davidalvareeezy</a><br /><br />FOLLOW ME!<br />David Alvarez: <br />Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/davidalvareeezy">http://www.twitter.com/davidalvareeezy</a><br />Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/davidalvareeezy">http://www.instagram.com/davidalvareeezy</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/DavidAlvaree...">https://www.facebook.com/DavidAlvaree...</a><br />For business inquires: Please Email me at AlphaMonkeysBusiness@gmail.com<br /><br />video inspired by Jubilee! make sure to check out their channel<br /><a rel="nofollow" target="blank" href="https://youtu.be/mCmoqUqHGCk">https://youtu.be/mCmoqUqHGCk</a><br />--------<br /><br />DIRECTED BY<br />Carlos Alvarez<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/carlosalvareezy/">https://www.instagram.com/carlosalvareezy/</a><br /><br /><br />Produced by Team Playback<br />Website: <a rel="nofollow" target="blank" href="https://www.teamplayback.com">https://www.teamplayback.com</a><br />IG: <a rel="nofollow" target="blank" href="https://www.instagram.com/team.playback/">https://www.instagram.com/team.playback/</a><br />Biz Inquiries: matt@teamplayback.com<br />——————-——————————-<br /><br /><br />follow my FRIENDS!<br /><br />Alex Wassabi<br /><a rel="nofollow" target="blank" href="https://youtube.com/c/Wassabi">https://youtube.com/c/Wassabi</a><br /><br />Nezza<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/nezza/videos">https://www.youtube.com/c/nezza/videos</a><br /><br />Tara Yummy<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/Tarayummy">https://www.youtube.com/c/Tarayummy</a><br /><br />Manny Mua<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/MannyMua733">https://www.youtube.com/c/MannyMua733</a><br /><br />Ryan Abe<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/RyansAverageLife">https://www.youtube.com/user/RyansAverageLife</a><br /><br />Devonte<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/SAVONTE">https://www.youtube.com/c/SAVONTE</a><br /><br /><br /><br /><br />if you see this comment “David you're only KIND of funny”{% endraw %}
