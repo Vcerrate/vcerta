@@ -1,0 +1,15 @@
+---
+title: "Tizian Hugo: No Matter What (Calum Scott) | Castings | DSDS 2022"
+image: "https:\/\/i.ytimg.com\/vi\/0pj7jh5-AIw\/hqdefault.jpg"
+vid_id: "0pj7jh5-AIw"
+categories: "Entertainment"
+tags: ["DSDS","RTLDSDS2012","Superstar"]
+date: "2022-02-21T01:16:15+03:00"
+vid_date: "2022-02-12T20:40:38Z"
+duration: "PT7M31S"
+viewcount: "204727"
+likeCount: "3209"
+dislikeCount: ""
+channel: "Deutschland sucht den Superstar"
+---
+{% raw %}Jetzt streamen: <a rel="nofollow" target="blank" href="https://www.rtlplus.com/shows/deutschland-sucht-den-superstar-13?utm_source=youtube&amp;utm_medium=editorial&amp;utm_campaign=beschreibung&amp;utm_term=dsds">https://www.rtlplus.com/shows/deutschland-sucht-den-superstar-13?utm_source=youtube&amp;utm_medium=editorial&amp;utm_campaign=beschreibung&amp;utm_term=dsds</a><br />&quot;Ich möchte die Leute mit meiner Musik inspirieren und packen, ihnen das Gefühl geben, dass ich ihnen mit meiner Musik beistehen werde - egal welche Phase sie durchleben!&quot;, ist die Botschaft von Tizian Hugo (22) aus Freiburg. Das passt gut zum Einzelhandelskaufmann, der im Alltag ein emotionaler Typ sein kann und seine Gefühle gern mit der Musik verarbeitet. Sein neun Jahre jüngerer Bruder ist für ihn das Wichtigste, deshalb bezeichnet er eine Familie auch als seinen persönlichen Glücksbringer. Dieses Glück will er nun nutzen, indem er alle Zuhörer mit einem von Jury-Mitglied Toby Gad produzierten Song in seinen Bann ziehen möchte.<br /><br />Alle Infos &amp; Clips: <a rel="nofollow" target="blank" href="http://www.rtl.de/cms/sendungen/superstar.html?utm_source=youtube&amp;utm_medium=editorial&amp;utm_campaign=beschreibung&amp;utm_term=dsds">http://www.rtl.de/cms/sendungen/superstar.html?utm_source=youtube&amp;utm_medium=editorial&amp;utm_campaign=beschreibung&amp;utm_term=dsds</a><br /><br />Kanal abonnieren! 👉 <a rel="nofollow" target="blank" href="https://www.youtube.com/c/DSDS?sub_confirmation=1">https://www.youtube.com/c/DSDS?sub_confirmation=1</a> <br /><br />DSDS bei Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/dsds/">https://www.instagram.com/dsds/</a><br />DSDS auf TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@dsds.rtl">https://www.tiktok.com/@dsds.rtl</a><br />DSDS bei Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/DSDS/">https://www.facebook.com/DSDS/</a><br />DSDS bei Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/RTLde">https://twitter.com/RTLde</a><br /><br />RTL+ im App Store: <a rel="nofollow" target="blank" href="https://apps.apple.com/de/app/tv-now/id1057991212">https://apps.apple.com/de/app/tv-now/id1057991212</a> <br />RTL+ bei Google Play: <a rel="nofollow" target="blank" href="https://play.google.com/store/apps/details?id=de.rtli.tvnow">https://play.google.com/store/apps/details?id=de.rtli.tvnow</a> <br />RTL+ bei Amazon: <a rel="nofollow" target="blank" href="https://www.amazon.de/RTL-interactive-GmbH-NOW-PLUS/dp/B01MTVGZE1">https://www.amazon.de/RTL-interactive-GmbH-NOW-PLUS/dp/B01MTVGZE1</a><br /><br />#DSDS #RTL #RTLPlus{% endraw %}
