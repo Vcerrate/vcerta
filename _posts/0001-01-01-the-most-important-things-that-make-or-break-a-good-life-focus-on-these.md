@@ -1,0 +1,15 @@
+---
+title: "The Most Important Things That Make or Break a Good Life"
+image: "https:\/\/i.ytimg.com\/vi\/DLvGkIt7xS8\/hqdefault.jpg"
+vid_id: "DLvGkIt7xS8"
+categories: "Education"
+tags: ["Alux","Alux.com","Alux Youtube"]
+date: "2022-02-20T09:03:37+03:00"
+vid_date: "2022-02-19T15:12:42Z"
+duration: "PT8M4S"
+viewcount: "42357"
+likeCount: "2840"
+dislikeCount: ""
+channel: "Alux.com"
+---
+{% raw %}Focus on these things and you are good to go. <br /><br />SUBSCRIBE to ALUX: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCNjPtOCvMrKY5eLwr_-7eUg?sub_confirmation=1">https://www.youtube.com/channel/UCNjPtOCvMrKY5eLwr_-7eUg?sub_confirmation=1</a><br /><br />Watch World of Alux: <a rel="nofollow" target="blank" href="https://youtu.be/bTpdHE7v9e0">https://youtu.be/bTpdHE7v9e0</a><br /><br />-<br />Get Rich Playlist: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLP35LyTOQVIsxb5Mf-Pr1xHJMZPtdIX8q">https://www.youtube.com/playlist?list=PLP35LyTOQVIsxb5Mf-Pr1xHJMZPtdIX8q</a><br /><br />Take Action Playlist: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLP35LyTOQVIuhLj_V6ThqHhVN52kozybm">https://www.youtube.com/playlist?list=PLP35LyTOQVIuhLj_V6ThqHhVN52kozybm</a><br /><br />All Sunday Motivational Videos: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLP35LyTOQVItYEFKYW1WdjcHFuXt0s5h-">https://www.youtube.com/playlist?list=PLP35LyTOQVItYEFKYW1WdjcHFuXt0s5h-</a><br /><br />Book Club: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLP35LyTOQVIvGYVKBE8qEwmP-S_Z7i0lL">https://www.youtube.com/playlist?list=PLP35LyTOQVIvGYVKBE8qEwmP-S_Z7i0lL</a><br />-<br />Social Media:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/alux/">https://www.instagram.com/alux/</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/alux">https://www.facebook.com/alux</a><br /><a rel="nofollow" target="blank" href="https://www.twitter.com/aluxcom">https://www.twitter.com/aluxcom</a><br />---<br />Alux.com is the largest community of luxury &amp; fine living enthusiasts in the world. We are the #1 online resource for ranking the most expensive things in the world and frequently referenced in publications such as Forbes, USAToday, Wikipedia and many more, as the GO-TO destination for luxury content!<br /><br />Our website: <a rel="nofollow" target="blank" href="https://www.alux.com">https://www.alux.com</a> is the largest social network for people who are passionate about LUXURY! Join today!<br /><br />SUBSCRIBE so you never miss another video: <a rel="nofollow" target="blank" href="https://goo.gl/KPRQT8">https://goo.gl/KPRQT8</a><br />--<br />To see how rich is your favorite celebrity go to: <a rel="nofollow" target="blank" href="https://www.alux.com/networth/">https://www.alux.com/networth/</a><br />--<br />For businesses inquiries we're available at:<br /><a rel="nofollow" target="blank" href="https://www.alux.com/contact/">https://www.alux.com/contact/</a>{% endraw %}
