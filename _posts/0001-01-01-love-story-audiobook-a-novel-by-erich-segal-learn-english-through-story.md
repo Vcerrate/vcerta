@@ -1,0 +1,15 @@
+---
+title: "LOVE STORY Audiobook | A Novel by Erich Segal | Learn English Through Story"
+image: "https:\/\/i.ytimg.com\/vi\/vhIaj1OlqJk\/hqdefault.jpg"
+vid_id: "vhIaj1OlqJk"
+categories: "Education"
+tags: ["love story by erich segal","love story","love story audio"]
+date: "2022-02-21T03:39:26+03:00"
+vid_date: "2022-02-07T11:44:41Z"
+duration: "PT1H19M57S"
+viewcount: "43853"
+likeCount: "1442"
+dislikeCount: ""
+channel: "Let's Learn English"
+---
+{% raw %}Learn English through story, &quot;Love Story&quot;, a romantic and tragic novel by the American writer Erich Segal.<br />One of the most adored novels of our time, this is the book that defined a generation; a story of uncompromising devotion, of life as it really is . . . and love that changes everything.<br />The story addresses love and sacrifice. It also shows how family expectations and demands are prioritized over parents love and support for their child.<br />Listen to “Love Story” audiobook.<br />Learn English through story with subtitles is one of the best ways to learn English and improve your vocabulary<br />Learn English through story with subtitles is one of the best ways to learn English and improve your vocabulary<br /><br />We really appreciate you SUBSCRIBE , LIKE and COMMENT on our videos! Thanks!<br /><br />Click to subscribe: <a rel="nofollow" target="blank" href="https://tinyurl.com/yyoa78n7">https://tinyurl.com/yyoa78n7</a><br /><br />Playlists:<br />Horror stories:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL9oBumW6T3DS9UJwXXoKf5R6_kQXZt4Fm">https://youtube.com/playlist?list=PL9oBumW6T3DS9UJwXXoKf5R6_kQXZt4Fm</a><br />English Stories:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL9oBumW6T3DRETqknOsehCIWe1ffRTPGC">https://youtube.com/playlist?list=PL9oBumW6T3DRETqknOsehCIWe1ffRTPGC</a><br /><br />Listening and reading  practice:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL9oBumW6T3DTJre7fYFNxcTj2LJYldbTd">https://youtube.com/playlist?list=PL9oBumW6T3DTJre7fYFNxcTj2LJYldbTd</a><br /><br />Basic English:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL9oBumW6T3DT4asd630ayKTvc1GiYm8FH">https://youtube.com/playlist?list=PL9oBumW6T3DT4asd630ayKTvc1GiYm8FH</a><br /><br />Learn idioms:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL9oBumW6T3DQXC6b1V4sk58ZfCYZhW5pB">https://youtube.com/playlist?list=PL9oBumW6T3DQXC6b1V4sk58ZfCYZhW5pB</a><br /><br />Hotel conversations:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL9oBumW6T3DTxiUiRgJadseaHrTl2Jowc">https://youtube.com/playlist?list=PL9oBumW6T3DTxiUiRgJadseaHrTl2Jowc</a><br /><br />Learn English with tv series Lost:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL9oBumW6T3DRB6lJK4KpapQtXw8WHyrx1">https://youtube.com/playlist?list=PL9oBumW6T3DRB6lJK4KpapQtXw8WHyrx1</a><br /><br />#Learnenglishthroughstory  #Learnenglish  #audiobook{% endraw %}
