@@ -1,0 +1,15 @@
+---
+title: "PERFECT RISOTTO AT HOME THAT ANYBODY CAN MAKE! | SAM THE COOKING GUY"
+image: "https:\/\/i.ytimg.com\/vi\/FkxAhGdY3FI\/hqdefault.jpg"
+vid_id: "FkxAhGdY3FI"
+categories: "Entertainment"
+tags: ["sam the cooking guy","cooking","sam cooking"]
+date: "2022-02-22T02:22:13+03:00"
+vid_date: "2022-02-21T20:49:48Z"
+duration: "PT11M29S"
+viewcount: "22880"
+likeCount: "2011"
+dislikeCount: ""
+channel: "SAM THE COOKING GUY"
+---
+{% raw %}It's RISOTTO Day! We're showing you how to make the perect risotto at home and literally ANYBODY can make this 🤤<br />🔴 SHOP: <a rel="nofollow" target="blank" href="http://shopstcg.com">http://shopstcg.com</a><br />     ⭕️ STCG KNIVES ➔ <a rel="nofollow" target="blank" href="http://shopstcg.com">http://shopstcg.com</a><br />     ⭕️ STCG MERCH ➔ <a rel="nofollow" target="blank" href="http://makeamericacook.com">http://makeamericacook.com</a><br />     ⭕️ STCG KITCHEN MUST-HAVES ➔ <a rel="nofollow" target="blank" href="http://bit.ly/stcg-kitchen-musthaves">http://bit.ly/stcg-kitchen-musthaves</a><br /><br />🔴 JOIN THE COMMUNITY:<br />     ⭕️ REDDIT ➔ <a rel="nofollow" target="blank" href="http://bit.ly/stcg-reddit">http://bit.ly/stcg-reddit</a><br />     ⭕️ DISCORD SERVER ➔ <a rel="nofollow" target="blank" href="https://discord.gg/stcg">https://discord.gg/stcg</a><br /><br />🔴 CONNECT:<br />     ⭕️ INSTAGRAM ➔ <a rel="nofollow" target="blank" href="http://bit.ly/stcg-insta">http://bit.ly/stcg-insta</a> <br />     ⭕️ TIKTOK ➔ <a rel="nofollow" target="blank" href="https://bit.ly/stcg-tiktok">https://bit.ly/stcg-tiktok</a><br />     ⭕️ TWITTER ➔ <a rel="nofollow" target="blank" href="http://bit.ly/stcg-twitter">http://bit.ly/stcg-twitter</a> <br />     ⭕️ FACEBOOK ➔ <a rel="nofollow" target="blank" href="http://bit.ly/stcg-fbook">http://bit.ly/stcg-fbook</a> <br /><br />🔴 MORE SAM:<br />     ⭕️ MY WEBSITE ➔ <a rel="nofollow" target="blank" href="http://thecookingguy.com">http://thecookingguy.com</a><br />     ⭕️ MY COOKBOOK ➔ <a rel="nofollow" target="blank" href="https://bit.ly/stcg-cookbook">https://bit.ly/stcg-cookbook</a><br />     ⭕️ MY RECIPES ➔ <a rel="nofollow" target="blank" href="http://thecookingguy.com/recipes/">http://thecookingguy.com/recipes/</a> <br /><br />🔴 FOR BUSINESS INQUIRIES: <br />     ⭕️ reach out to ➔ info@thecookingguy.com<br /><br />— <br /><br />Please SUBSCRIBE and enable notifications to see NEW EPISODES❗️<br /><br />— <br /><br />New videos uploaded every MONDAY + WEDNESDAY + FRIDAY ❗️<br /><br />— <br />We really just have one goal - to make your food life better. Ok that, and be entertained at the same time. And have you learn a few things along the way. So let’s make it 3 goals then. <br /><br />If you only want the steps to make something, like those vids shot from above with no people, no conversation no nuthin - then we are absolutely not for you. But if you wanna a little fun while you learn, then this is the place. <br /><br />Cooking doesn’t have to be hard, it just has to be delicious. <br /><br />— <br /><br />THANK YOU ❗️{% endraw %}
