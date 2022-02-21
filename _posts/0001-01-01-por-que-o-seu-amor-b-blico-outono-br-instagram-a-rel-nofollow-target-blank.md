@@ -1,0 +1,15 @@
+---
+title: "por que o seu amor é bíblico..."
+image: "https:\/\/i.ytimg.com\/vi\/QpBH7Mcm_dw\/hqdefault.jpg"
+vid_id: "QpBH7Mcm_dw"
+categories: "Music"
+tags: ["bíblico..."]
+date: "2022-02-21T09:59:32+03:00"
+vid_date: "2021-07-21T15:34:01Z"
+duration: "PT3M46S"
+viewcount: "237149"
+likeCount: "25801"
+dislikeCount: ""
+channel: "OUTONO LEGENDAS"
+---
+{% raw %}+ OUTONO:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/outonolegendas/">https://www.instagram.com/outonolegendas/</a><br />Pinterest: <a rel="nofollow" target="blank" href="https://br.pinterest.com/Outono1/_saved/">https://br.pinterest.com/Outono1/_saved/</a><br />Canal Secundário: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCZb3pVij2qeoo-m1ZeNAwVA/featured">https://www.youtube.com/channel/UCZb3pVij2qeoo-m1ZeNAwVA/featured</a><br /><br />música: Biblical<br />artista: Calum Scott <br /><br />lyric:<br /><br />[Verse 1]<br />Didn't know that I'd fall so hard<br />That my feet left the ground<br />Gravity don't make no sense when you're around<br />I come up against myself when<br />Demons in my head get loud<br />I don't know how you do it but you turn them down<br /><br />[Pre-Chorus]<br />I slip and wonder who I'd be<br />If I never found you and you never found me<br />Well, I don't wanna see<br /><br />[Chorus]<br />So won't you give me tonight<br />And the rest of your life<br />I wanna have it all with you<br />I wanna have it all with you<br />And when you open your eyes<br />I'll be there by your side<br />I wanna have it all with you<br />I wanna have it all with you<br /><br />[Post-Chorus]<br />'Cause your love is biblical<br />Biblical, it's biblical<br /><br />[Verse 2]<br />If you evеr go to pieces<br />Fall between thе thunder clouds<br />I will put you back together, I won't let you down<br /><br />[Pre-Chorus]<br />I slip and wonder what I'd do<br />If you never found me and I never found you<br />I don't know what I'd do<br /><br />[Chorus]<br />So won't you give me tonight<br />And the rest of your life<br />I wanna have it all with you<br />I wanna have it all with you<br />And when you open your eyes<br />I'll be there by your side<br />I wanna have it all with you<br />I wanna have it all with you<br /><br />[Post-Chorus]<br />I wanna have it all (I wanna have it all)<br />I wanna have it all (I wanna have it all)<br />I wanna have it, I wanna have it all (I wanna have it all)<br />'Cause your love is biblical<br />Biblical, it's biblical<br /><br />[Chorus]<br />So won't you give me tonight<br />And the rest of your life<br />I wanna have it all with you<br />I wanna have it all with you<br />So come and give me tonight<br />And the rest of your life<br />I wanna have it all with you<br />I wanna have it all with you<br />And when you open your eyes<br />I'll be there by your side<br />I wanna have it all with you<br />I wanna have it all with you<br /><br />[Post-Chorus]<br />'Cause your love is biblical<br />Biblical, it's biblical{% endraw %}
