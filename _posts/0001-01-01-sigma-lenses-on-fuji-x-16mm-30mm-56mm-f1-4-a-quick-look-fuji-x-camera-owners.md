@@ -1,0 +1,15 @@
+---
+title: "Sigma lenses on Fuji X! 16mm, 30mm, 56mm f1.4: a quick look."
+image: "https:\/\/i.ytimg.com\/vi\/zyHX0CBewwM\/hqdefault.jpg"
+vid_id: "zyHX0CBewwM"
+categories: "Howto-Style"
+tags: ["lens","review","with"]
+date: "2022-02-21T20:06:46+03:00"
+vid_date: "2022-02-21T12:00:26Z"
+duration: "PT4M21S"
+viewcount: "6735"
+likeCount: "502"
+dislikeCount: ""
+channel: "Christopher Frost"
+---
+{% raw %}Fuji X camera owners can further rejoice as now Sigma are joining the party!<br /><br />16mm f/1.4 review (Sony E): <a rel="nofollow" target="blank" href="https://youtu.be/5v8J2YeQzSo">https://youtu.be/5v8J2YeQzSo</a><br />16mm f/1.4 review (Canon EF-M): <a rel="nofollow" target="blank" href="https://youtu.be/Kbjw0FSvirU">https://youtu.be/Kbjw0FSvirU</a><br /><br />30mm f/1.4 review (Both formats): <a rel="nofollow" target="blank" href="https://youtu.be/3p7ukIDfbnA">https://youtu.be/3p7ukIDfbnA</a><br /><br />56mm f/1.4 review (Sony E): <a rel="nofollow" target="blank" href="https://youtu.be/V9a7KXvboNI">https://youtu.be/V9a7KXvboNI</a><br />56mm f/1.4 review (Canon EF-M): <a rel="nofollow" target="blank" href="https://youtu.be/Z0J-MpASheU">https://youtu.be/Z0J-MpASheU</a><br /><br />All pictures taken by me on a Fuji X-T3 camera.<br /><br />Support me on Patreon! <a rel="nofollow" target="blank" href="https://www.patreon.com/christopherfrost">https://www.patreon.com/christopherfrost</a><br /><br />Equipment I use to make my videos (Amazon affiliate links):<br />Canon EOS R5: <a rel="nofollow" target="blank" href="https://geni.us/CanonEOSR5Body">https://geni.us/CanonEOSR5Body</a><br />Canon EF-RF Adaptor: <a rel="nofollow" target="blank" href="https://geni.us/CanonEFtoRF">https://geni.us/CanonEFtoRF</a><br />Sigma 50mm f/1.4 'Art': <a rel="nofollow" target="blank" href="https://geni.us/Sigma50mm14Art">https://geni.us/Sigma50mm14Art</a><br />Canon RF 35mm f/1.8 IS STM: <a rel="nofollow" target="blank" href="https://geni.us/CanonRF35mm18Macro">https://geni.us/CanonRF35mm18Macro</a><br />Marumi Fit and Slim CPL Filter: <a rel="nofollow" target="blank" href="https://geni.us/MarumiFitSlim77">https://geni.us/MarumiFitSlim77</a><br />AudioTechnica AT2020USB+ Microphone: <a rel="nofollow" target="blank" href="https://geni.us/AT2020USBPlusMic">https://geni.us/AT2020USBPlusMic</a><br />Rode Smartlav+ Microphone: <a rel="nofollow" target="blank" href="https://geni.us/RodeSmartLavalierPlus">https://geni.us/RodeSmartLavalierPlus</a><br />Rode SC3 adapter: <a rel="nofollow" target="blank" href="https://geni.us/RodeSC3MicAdaptor">https://geni.us/RodeSC3MicAdaptor</a><br />Zoom H1n Recorder: <a rel="nofollow" target="blank" href="https://geni.us/ZoomH1nMiniRecorder">https://geni.us/ZoomH1nMiniRecorder</a><br />DJI Mini 2 Drone: <a rel="nofollow" target="blank" href="https://geni.us/DJIMini2FlyMore">https://geni.us/DJIMini2FlyMore</a><br /><br />Music: <br />'Opportunity Walks', Kevin MacLeod (incompetech.com)<br />Licensed under Creative Commons: By Attribution 3.0<br /><a rel="nofollow" target="blank" href="http://creativecommons.org/licenses/b...">http://creativecommons.org/licenses/b...</a>{% endraw %}
