@@ -1,0 +1,15 @@
+---
+title: "America Needs To Admit How Racist It Is | The Problem With Jon Stewart Podcast | Apple TV+"
+image: "https:\/\/i.ytimg.com\/vi\/k2C0FHfy6RA\/hqdefault.jpg"
+vid_id: "k2C0FHfy6RA"
+categories: "Comedy"
+tags: ["America","Needs","Admit"]
+date: "2022-02-22T19:56:38+03:00"
+vid_date: "2022-02-21T11:00:31Z"
+duration: "PT53M11S"
+viewcount: "80616"
+likeCount: "3504"
+dislikeCount: ""
+channel: "The Problem With Jon Stewart"
+---
+{% raw %}Listen to the full episode:<br /><a rel="nofollow" target="blank" href="https://theproblem.link/BryanStevenson">https://theproblem.link/BryanStevenson</a><br /><br />Jon talks to Bryan Stevenson, civil rights lawyer and founder of Equal Justice Initiative, about how racism has poisoned America from the very start. The good news is he has some ideas about how we can reckon with our past and repair the damage it continues to do — and he also definitely thinks he’s better looking than Michael B. Jordan, who played him in “Just Mercy.”<br /><br /><br />The Problem With Jon Stewart is now streaming on Apple TV+ <a rel="nofollow" target="blank" href="https://theproblem.link/AppleTV">https://theproblem.link/AppleTV</a><br /><br />Listen to The Problem With Jon Stewart podcast on Apple Podcasts, where available. <br /><a rel="nofollow" target="blank" href="https://theproblem.link/ApplePodcast">https://theproblem.link/ApplePodcast</a><br /><br />Subscribe to The Problem with Jon Stewart’s YouTube channel: <br /><a rel="nofollow" target="blank" href="https://theproblem.link/YouTube">https://theproblem.link/YouTube</a><br /><br />Follow The Problem With Jon Stewart<br />Instagram: <br /><a rel="nofollow" target="blank" href="https://theproblem.link/Insta">https://theproblem.link/Insta</a><br /><br />Twitter: <br /><a rel="nofollow" target="blank" href="https://theproblem.link/Twitter">https://theproblem.link/Twitter</a><br /><br /><br />Follow Apple TV:<br />Instagram: <br /><a rel="nofollow" target="blank" href="https://theproblem.link/AppleTVInsta">https://theproblem.link/AppleTVInsta</a><br /><br />Facebook: <br /><a rel="nofollow" target="blank" href="https://theproblem.link/AppleTVFacebook">https://theproblem.link/AppleTVFacebook</a><br /><br />Twitter: <br /><a rel="nofollow" target="blank" href="https://theproblem.link/AppleTVTwitter">https://theproblem.link/AppleTVTwitter</a><br /><br />Giphy: <br /><a rel="nofollow" target="blank" href="https://theproblem.link/AppleTVGiphy">https://theproblem.link/AppleTVGiphy</a><br /><br /><br />Follow Apple TV+<br />Instagram: <br /><a rel="nofollow" target="blank" href="https://theproblem.link/AppleTVPlusInsta">https://theproblem.link/AppleTVPlusInsta</a><br /> <br /><br />Apple TV+ is a streaming service with original stories from the most creative minds in TV and film. Watch now on the Apple TV app: <br /><a rel="nofollow" target="blank" href="https://apple.co/AppleTVapp">https://apple.co/AppleTVapp</a><br /><br />#TheProblemWithJonStewart #Podcast #AppleTV{% endraw %}
