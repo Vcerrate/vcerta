@@ -1,0 +1,15 @@
+---
+title: "Essentials for a Well-Stocked Kitchen."
+image: "https:\/\/i.ytimg.com\/vi\/MWmDBNMiIyI\/hqdefault.jpg"
+vid_id: "MWmDBNMiIyI"
+categories: "People-Blogs"
+tags: ["vegan","vegetarian","diet"]
+date: "2022-02-23T00:42:23+03:00"
+vid_date: "2020-04-30T04:29:02Z"
+duration: "PT10M56S"
+viewcount: "446"
+likeCount: "52"
+dislikeCount: ""
+channel: "Colleen Patrick-Goudreau"
+---
+{% raw %}I'd like to think I've been preparing you for this moment for the last 20 years. The principles I've been emphasizing for the last two decades are essential during this time of insecurity, loss, and confinement. <br /><br />Knowing what types of food to stock in your pantry, cupboards, refrigerator, and freezer will not only prepare you for eating healthfully and compassionately EVERY DAY, it will also provide some security and predictability when the future is uncertain and people are social distancing and sheltering at home, such as during the time of the Coronavirus pandemic 2020.<br /><br />So, check out the new Food for Thought Podcast episode called Essentials for a Well-Stocked Kitchen. Subscribe wherever you listen to podcasts, or check out colleenpatrickgoudreau.com to be sure to find it. <br /><br />In the meantime, be safe, be well, be happy, and healthy. My thoughts and affection are with you always. <br />⁠<br />👉(If you're a supporter, you will have received the transcript to this episode, along with a printable PDF of a shopping list you can use during this crisis and long after. Check your Patreon account for what you need over at Patreon.com/ColleenPatrickGoudreau.com<br /><br />For more videos on living vegan and zero waste, subscribe to my YouTube channel, and visit <a rel="nofollow" target="blank" href="http://www.ColleenPatrickGoudreau.com">http://www.ColleenPatrickGoudreau.com</a> to join the mailing list and read/watch/listen to lots more! Plus, get your FREE Joyful Vegan Starter Guide! <br /><br />=============================================<br />⇨ FIND ME ON OTHER SOCIAL MEDIA:<br />WEBSITE: (<a rel="nofollow" target="blank" href="http://www.joyfulvegan.com">http://www.joyfulvegan.com</a> and <a rel="nofollow" target="blank" href="http://www.colleenpatrickgoudreau.com">http://www.colleenpatrickgoudreau.com</a> and <a rel="nofollow" target="blank" href="http://www.30dayveganchallenge.com)">http://www.30dayveganchallenge.com)</a><br />I N S T A G R A M : JoyfulVegan (<a rel="nofollow" target="blank" href="https://www.instagram.com/JoyfulVegan)">https://www.instagram.com/JoyfulVegan)</a><br />F A C E B O O K: (<a rel="nofollow" target="blank" href="https://www.facebook.com/ColleenPatrickGoudreau)">https://www.facebook.com/ColleenPatrickGoudreau)</a><br />BECOME A SUPPORTER AND GET PERKS: <a rel="nofollow" target="blank" href="http://www.patreon.com/colleenpatrickgoudreau">http://www.patreon.com/colleenpatrickgoudreau</a><br /><br />Help us caption &amp; translate this video!<br /><br /><a rel="nofollow" target="blank" href="https://amara.org/v/C0twi/">https://amara.org/v/C0twi/</a>{% endraw %}
