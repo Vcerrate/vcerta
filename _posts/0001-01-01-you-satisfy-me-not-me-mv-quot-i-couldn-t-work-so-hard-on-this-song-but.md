@@ -1,0 +1,15 @@
+---
+title: "You Satisfy Me | NOT ME เขา...ไม่ใช่ผม [MV]"
+image: "https:\/\/i.ytimg.com\/vi\/0OHa1kmV-hs\/hqdefault.jpg"
+vid_id: "0OHa1kmV-hs"
+categories: "Music"
+tags: ["NOT ME เขา...ไม่ใช่ผม","bl","gmmtv"]
+date: "2022-02-23T00:32:08+03:00"
+vid_date: "2022-02-13T16:37:37Z"
+duration: "PT3M23S"
+viewcount: "335987"
+likeCount: "5969"
+dislikeCount: ""
+channel: "Kleytton Herivelto"
+---
+{% raw %}&quot;I couldn't work so hard on this song but I think it turned out good in the end. Hope you like it. Share too. Love you, Kisses ❤️&quot;<br />➖➖➖➖➖➖<br />Artist (ศิลปิน): Kleytton Herivelto<br />Song (เพลง): No Meu Mundo Agora Existe Você<br />🎙️ My Original Song 🖤<br /><br />🎶DOWNLOAD MY SONG FREE: <br />▶ <a rel="nofollow" target="blank" href="https://soundcloud.com/kleytton-herivelto/no-meu-mundo-agora-existe-voce-ost-not-me-series">https://soundcloud.com/kleytton-herivelto/no-meu-mundo-agora-existe-voce-ost-not-me-series</a><br />▶ <a rel="nofollow" target="blank" href="https://www.palcomp3.com.br/kleyttonherivelto/no-meu-mundo-agora-existe-voce-ost-not-me-series/">https://www.palcomp3.com.br/kleyttonherivelto/no-meu-mundo-agora-existe-voce-ost-not-me-series/</a><br /><br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/album/5UZLelc2PqG1O4mTbQrHQK">https://open.spotify.com/album/5UZLelc2PqG1O4mTbQrHQK</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/kleyttonherivelto/">https://www.instagram.com/kleyttonherivelto/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/KleyttonH">https://twitter.com/KleyttonH</a><br /><a rel="nofollow" target="blank" href="https://www.kleyttonherivelto.com/">https://www.kleyttonherivelto.com/</a><br />➖➖➖➖➖➖<br /><br />LYRIC:<br /><br />Eu me senti tão perto de você<br />Como faço pra te esquecer<br />No meu mundo agora existe você<br />Agora entendo, como te entender<br /><br />Essa timidez foi embora, ah!<br />Na cama grudadinho, me abraça<br />Ah, ah, ah<br />Ah, ah, ah<br />Talvez você me satisfaz...<br /><br />Eu quero ser seu descuido<br />Seu simples gostinho<br />Nada mais me importa<br />Quando você chega de mansinho<br /><br />É verdade você me atraiu<br />Me deixa quente mesmo em dias frios<br />Sua dor me chamou<br />Mas agora o virou amor<br />Mas agora o virou amor<br /><br />O seu corpo me faz flutuar<br />E com isso que eu posso me expressar<br />Em linhas começo a te entender<br />Como eu quero me perde em você<br /><br />Na dúvida é só não olhar pra mim<br />Porque largo tudo só pra te fazer sorrir<br /><br />Eu quero ser seu descuido<br />Seu simples gostinho<br />Nada mais me importa<br />Quando você chega de mansinho<br /><br />É verdade você me atraiu<br />Me deixa quente mesmo em dias frios<br />Sua dor me chamou<br />Mas agora o virou amor<br /><br />Agora não consigo te esquecer<br />No meu mundo agora existe você<br />Agora não consigo te esquecer<br />No meu mundo agora existe você<br /><br />#NotmeSeries #KleyttonHerivelto #GMMTV{% endraw %}
