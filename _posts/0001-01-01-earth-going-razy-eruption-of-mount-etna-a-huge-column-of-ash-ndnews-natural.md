@@ -1,0 +1,15 @@
+---
+title: "Earth going Сrazy? Eruption of Mount Etna, a Huge column of Ash."
+image: "https:\/\/i.ytimg.com\/vi\/aFI08BtMka0\/hqdefault.jpg"
+vid_id: "aFI08BtMka0"
+categories: "News-Politics"
+tags: ["sicily","catania","italy"]
+date: "2022-02-23T16:42:56+03:00"
+vid_date: "2022-02-22T19:03:36Z"
+duration: "PT2M3S"
+viewcount: "156321"
+likeCount: "3250"
+dislikeCount: ""
+channel: "NDNews Weather"
+---
+{% raw %}#NDNews: Natural disasters news every day. Disaster February 21-22. Live news live about bad weather. Earth's pain will cleanse the Planet from the humanity. In the world in a day about severe nature. Catastrophes are here and now. Global warming is not far off.<br />-------------------------------------------------------------------------<br />Earth going crazy? Eruption of Mount Etna, a huge column of ash.<br /><br />Mount Etna blasted a massive 12-kilometer-high (7.5-mile) pillar of volcanic ash into the sky. In Catania say activity centered on a lava flow on the mountain's southeast slope. Authorities have previously issued a warning to aircraft in the area. Ash from the eruption blanketed nearby towns. There have been no immediate reports of injuries or property damage. Vincenzo Bellini international airport in nearby Catania closed at lunchtime due to the eruption.<br />-------------------------------------------------------------------------<br />The channel lists such natural disasters as:<br />1) Geological emergencies: Earthquake, volcanic eruption, mudflow, landslide, landfall, avalanche;<br />2) Hydrological emergencies:  Flood, Tsunami, Limnological catastrophe, floods, flooding;<br />3) Fires: Forest fire, Peat fire, Glass Fire, Wildfire;<br />4) Meteorological emergencies: Tornado, Cyclone, Blizzard, Hail, Drought, Hail, Hurricane, Storm, Thunderstorm, typhoon, Tempest, Lightning.<br /><br />Playlist by region, EUROPE:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLbH6z1iKVeiRJvgjL9Kcl7TyfOH_TODSA">https://www.youtube.com/playlist?list=PLbH6z1iKVeiRJvgjL9Kcl7TyfOH_TODSA</a><br /><br />Playlist by disaster type, GEOLOGICAL:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLbH6z1iKVeiQ1QFKrw2sVNFfVB-F6LMfa">https://www.youtube.com/playlist?list=PLbH6z1iKVeiQ1QFKrw2sVNFfVB-F6LMfa</a><br /><br />If you find any improper use of your copyrighted content (videos, photos and music) in the video, please contact us by  e-mail specified in the &quot;about the channel&quot; tab.<br /><br />ATTENTION: Video material is taken from social networks. It is selected by date of publication, title, description and location of the event. Sometimes, due to unscrupulous posting of news on social networks, the video may contain fragments that do not correspond to the date and place. It is not always possible to check their reliability. Thank you for your understanding.<br /><br /> #weather #news #earthquake #tsunami #ndn #rain #sicily #catania #italy #etna #volcano #eruption #lava{% endraw %}
