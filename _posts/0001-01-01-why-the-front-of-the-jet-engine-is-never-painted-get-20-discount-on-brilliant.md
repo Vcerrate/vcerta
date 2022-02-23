@@ -1,0 +1,15 @@
+---
+title: "Why the front of the Jet Engine is NEVER painted.."
+image: "https:\/\/i.ytimg.com\/vi\/F7JLsnzjcfQ\/hqdefault.jpg"
+vid_id: "F7JLsnzjcfQ"
+categories: "People-Blogs"
+tags: ["jet engine","pilot life","mentour pilot"]
+date: "2022-02-23T23:15:53+03:00"
+vid_date: "2019-09-20T19:00:03Z"
+duration: "PT12M10S"
+viewcount: "634674"
+likeCount: "15841"
+dislikeCount: ""
+channel: "Mentour Pilot"
+---
+{% raw %}Get 20% discount on Brilliant.org 👉 <a rel="nofollow" target="blank" href="https://brilliant.org/mentourpilot/">https://brilliant.org/mentourpilot/</a><br /><br />Why are most aircraft painted WHITE and why is the front of the Jet engines NEVER painted? Those are a few of the questions I will explain in this weeks video. Make sure to subscribe to the channel and highlight ALWAYS on the little notification bell to avoid missing any new content!<br /><br />If you want to discuss aviation directly with ME or thousands of other aviation enthusiasts, get my FREE app, Mentour aviation using the links below. 👇🏻<br />📲IOS: <a rel="nofollow" target="blank" href="https://appstore.com/mentouraviation">https://appstore.com/mentouraviation</a> <br />📲Android: <a rel="nofollow" target="blank" href="https://play.google.com/store/apps/details?id=com.teamta.mentouraviation">https://play.google.com/store/apps/details?id=com.teamta.mentouraviation</a><br /><br />If you are interested in supporting the channel and be part of my Patreon Crew, use the link below: <br />📲<a rel="nofollow" target="blank" href="https://www.patreon.com/mentourpilot">https://www.patreon.com/mentourpilot</a><br /><br />To follow my life on Instagram, and see pictures from the cockpit 👇🏻<br />📲<a rel="nofollow" target="blank" href="https://www.instagram.com/mentour_pilot">https://www.instagram.com/mentour_pilot</a><br /><br />I want to send a huge &quot;Thank You&quot; to the featured channels in todays episode. Check out their channels and full length videos below 👇🏻<br /><br />Boeing (B737MAX display)<br /><a rel="nofollow" target="blank" href="https://youtu.be/1XEsSRqnOwc">https://youtu.be/1XEsSRqnOwc</a><br /><br />Safran (LEAP engine explained)<br /><a rel="nofollow" target="blank" href="https://youtu.be/kz5kv0RfeUc">https://youtu.be/kz5kv0RfeUc</a><br /><br />flightdeck2sim (Use of Anti Ice systems B737)<br /><a rel="nofollow" target="blank" href="https://youtu.be/pHnY25xZAyw">https://youtu.be/pHnY25xZAyw</a><br /><br />MrMusicoutloud (Boeing 747 painting time-lapse)<br /><a rel="nofollow" target="blank" href="https://youtu.be/VujxYs1NtV4">https://youtu.be/VujxYs1NtV4</a><br /><br />Westjet  (Painting the Magicplane timelapse)<br /><a rel="nofollow" target="blank" href="https://youtu.be/BZGzaDexRYE">https://youtu.be/BZGzaDexRYE</a><br /><br />Mdx media (Painting a B737MAX)<br /><a rel="nofollow" target="blank" href="https://youtu.be/5SgZ9FwWLQ4">https://youtu.be/5SgZ9FwWLQ4</a><br /><br />Buzzfeed Multiplayer (Difference in car surface temperature) <br /><a rel="nofollow" target="blank" href="https://youtu.be/ZS95SPm4f2I">https://youtu.be/ZS95SPm4f2I</a>{% endraw %}
