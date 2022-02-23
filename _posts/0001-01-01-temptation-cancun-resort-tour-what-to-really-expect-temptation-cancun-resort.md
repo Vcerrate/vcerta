@@ -1,0 +1,15 @@
+---
+title: "TEMPTATION CANCUN RESORT TOUR | WHAT TO REALLY EXPECT"
+image: "https:\/\/i.ytimg.com\/vi\/nfmo0J_eQM4\/hqdefault.jpg"
+vid_id: "nfmo0J_eQM4"
+categories: "Travel-Events"
+tags: ["temptation resort cancun","temptation resort cancun what to really expect","cancun"]
+date: "2022-02-24T01:29:16+03:00"
+vid_date: "2022-02-20T22:33:03Z"
+duration: "PT8M58S"
+viewcount: "1058"
+likeCount: "37"
+dislikeCount: ""
+channel: "Breathless Getaways"
+---
+{% raw %}TEMPTATION CANCUN RESORT TOUR | WHAT TO REALLY EXPECT<br /><br />I visited Temptation Cancun Resort in January 2022.  In this video you will see what Temptation looks like from the rooms, to the restaurants to the pool areas. You'll also hear what to really expect when you visit Temptation. For those that are looking for the best all inclusive resort in Cancun to party and have a good time, this is the resort for you!!  It's great for a couples trip to Cancun, a girls trip and definitely a guys trip.<br /><br />To start planning your Temptation getaway or to plan a vacation anywhere around the world, email me at adrienne@breathlessgetaways.com. I'm a Travel Advisor and will craft a personalized experience for solo travers, couples, groups and families.<br /><br />TO JOIN OUR CABO GROUP GETAWAY and have an experience of a lifetime - Email us at cabo2022@breathlessgetaways.com for more information!<br /><br />If you are new to my channel, please click SUBSCRIBE and LIKE this video. Thank you for watching!<br /><br />Click below for more travel videos and for some travel inspo!<br /><br />▶️ My Other Videos: <br />Get to Know Me Q&amp;A: <a rel="nofollow" target="blank" href="https://youtu.be/GL77bLWeng8">https://youtu.be/GL77bLWeng8</a><br />My Cabo Experience: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=QthC6...">https://www.youtube.com/watch?v=QthC6...</a><br />SLS Baha Mar Bahamas: <a rel="nofollow" target="blank" href="https://youtu.be/1lCsqzU0_Bs">https://youtu.be/1lCsqzU0_Bs</a><br />Beaches Turks &amp; Caicos: <a rel="nofollow" target="blank" href="https://youtu.be/AcWji7G149g">https://youtu.be/AcWji7G149g</a><br /><br />▶️ Visit for travel inspiration and travel tips: www.breathlessgetaways.com<br />--------------------------------------------------------<br />▶️ Follow us on: <br />• Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/breathlessg...">https://www.instagram.com/breathlessg...</a><br />• Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/BGLuxuryTravel/">https://www.facebook.com/BGLuxuryTravel/</a><br />• Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/bgluxurytravels">https://twitter.com/bgluxurytravels</a><br />--------------------------------------------------------<br />▶️ For business inquiries: adrienne@breathlessgetaways.com<br /><br /><br />Music by Animus Volt - Love Like Savages - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=BF106345">https://thmatc.co/?l=BF106345</a>{% endraw %}
