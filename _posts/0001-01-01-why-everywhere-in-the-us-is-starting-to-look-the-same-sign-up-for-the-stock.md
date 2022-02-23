@@ -1,0 +1,15 @@
+---
+title: "Why Everywhere in the US is Starting to Look the Same"
+image: "https:\/\/i.ytimg.com\/vi\/UX4KklvCDmg\/hqdefault.jpg"
+vid_id: "UX4KklvCDmg"
+categories: "Education"
+tags: ["Everywhere","Starting"]
+date: "2022-02-24T02:14:35+03:00"
+vid_date: "2022-02-23T15:30:39Z"
+duration: "PT20M9S"
+viewcount: "280706"
+likeCount: "16477"
+dislikeCount: ""
+channel: "Wendover Productions"
+---
+{% raw %}Sign up for the stock footage provider that we use: <a rel="nofollow" target="blank" href="http://storyblocks.com/wendover">http://storyblocks.com/wendover</a><br /><br />Watch Extremities at <a rel="nofollow" target="blank" href="http://youtube.com/extremities">http://youtube.com/extremities</a><br /><br />Buy a Wendover Productions t-shirt: <a rel="nofollow" target="blank" href="https://standard.tv/collections/wendover-productions/products/wendover-productions-shirt">https://standard.tv/collections/wendover-productions/products/wendover-productions-shirt</a><br /><br />Subscribe to Half as Interesting (The other channel from Wendover Productions): <a rel="nofollow" target="blank" href="https://www.youtube.com/halfasinteresting">https://www.youtube.com/halfasinteresting</a><br /><br />Youtube: <a rel="nofollow" target="blank" href="http://www.YouTube.com/WendoverProductions">http://www.YouTube.com/WendoverProductions</a><br />Instagram: <a rel="nofollow" target="blank" href="http://Instagram.com/sam.from.wendover">http://Instagram.com/sam.from.wendover</a><br />Twitter: <a rel="nofollow" target="blank" href="http://www.Twitter.com/WendoverPro">http://www.Twitter.com/WendoverPro</a><br />Sponsorship Enquiries: wendover@standard.tv<br />Other emails: sam@wendover.productions<br />Reddit: <a rel="nofollow" target="blank" href="http://Reddit.com/r/WendoverProductions">http://Reddit.com/r/WendoverProductions</a><br /><br />Writing by Sam Denby and Tristan Purdy<br />Editing by Alexander Williard<br />Animation led by Josh Sherrington<br />Sound by Graham Haerther <br />Thumbnail by Simon Buckmaster<br /><br />References<br />[1] <a rel="nofollow" target="blank" href="https://www.sltrib.com/artsliving/2020/04/05/david-ross-scheer-why-do/?fbclid=IwAR0ZjsIiK-aAvJqlI9xZiwE0hqyKG1dp4iHAMArWxXFEYtGtvja975ih0OI">https://www.sltrib.com/artsliving/2020/04/05/david-ross-scheer-why-do/?fbclid=IwAR0ZjsIiK-aAvJqlI9xZiwE0hqyKG1dp4iHAMArWxXFEYtGtvja975ih0OI</a><br />[2] <a rel="nofollow" target="blank" href="https://marker.medium.com/why-everywhere-looks-the-same-248940f12c4">https://marker.medium.com/why-everywhere-looks-the-same-248940f12c4</a><br />[3] <a rel="nofollow" target="blank" href="https://www.bbsr.bund.de/BBSR/EN/publications/IzR/2010/Download/DL_KnoxPain.pdf?__blob=publicationFile&amp;v=1">https://www.bbsr.bund.de/BBSR/EN/publications/IzR/2010/Download/DL_KnoxPain.pdf?__blob=publicationFile&amp;v=1</a><br />[4] <a rel="nofollow" target="blank" href="https://www.bloomberg.com/news/features/2019-02-13/why-america-s-new-apartment-buildings-all-look-the-same">https://www.bloomberg.com/news/features/2019-02-13/why-america-s-new-apartment-buildings-all-look-the-same</a>{% endraw %}
