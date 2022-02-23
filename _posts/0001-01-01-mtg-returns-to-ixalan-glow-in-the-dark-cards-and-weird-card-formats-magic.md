@@ -1,0 +1,15 @@
+---
+title: "MTG Returns To Ixalan - Glow In The Dark Cards, and Weird Card Formats"
+image: "https:\/\/i.ytimg.com\/vi\/UoSPHxDt6vc\/hqdefault.jpg"
+vid_id: "UoSPHxDt6vc"
+categories: "Gaming"
+tags: ["mtg","magic"]
+date: "2022-02-23T05:09:28+03:00"
+vid_date: "2022-02-22T19:45:27Z"
+duration: "PT10M45S"
+viewcount: "4480"
+likeCount: "302"
+dislikeCount: ""
+channel: "The Magic Historian"
+---
+{% raw %}Magic: the gathering will be returning to Ixalan but this time it will be more akin to Zendikar<br /><br />Tcgplayer affiliate link(if you shop for magic online and use this it supports my show) - <a rel="nofollow" target="blank" href="https://bit.ly/2SG35WR">https://bit.ly/2SG35WR</a><br /><br />Magic Historian Playmats ( use code THEMAGICHISTORIAN10YP for 10% discount) -<br /><a rel="nofollow" target="blank" href="https://www.yourplaymat.com/products/the-magic-historian-playmat">https://www.yourplaymat.com/products/the-magic-historian-playmat</a><br /><br />Magic Historian Card Sleeves ( use code THEMAGICHISTORIAN10YP for 10% discount) - <a rel="nofollow" target="blank" href="https://www.yourplaymat.com/products/the-magic-historian-card-sleeves">https://www.yourplaymat.com/products/the-magic-historian-card-sleeves</a><br /><br />Join The Channel Membership Here - <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCYCz6CwGneR81j9VR-LtpQQ/join">https://www.youtube.com/channel/UCYCz6CwGneR81j9VR-LtpQQ/join</a><br /><br />Support The Channel With Crypto<br />**********************************<br />Bitcoin - 3E3yycrJKTDnopbA3hZVRDtk1rCKEZcDB5<br />ETH - 0x346670015C8807ED4516A2E290c846A82829dc37<br /><br /><br />Merch - <a rel="nofollow" target="blank" href="https://teespring.com/stores/purp-merch">https://teespring.com/stores/purp-merch</a><br /><br />Discord Link - <a rel="nofollow" target="blank" href="https://discord.gg/ZGsfjkN">https://discord.gg/ZGsfjkN</a><br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/BigDaddyHatch">https://twitter.com/BigDaddyHatch</a><br />Paypal- <a rel="nofollow" target="blank" href="https://www.paypal.me/MTGPurple">https://www.paypal.me/MTGPurple</a><br />Patreon-<a rel="nofollow" target="blank" href="https://www.patreon.com/MikeHatcher">https://www.patreon.com/MikeHatcher</a><br /><br />Amazon Wishlist - <a rel="nofollow" target="blank" href="https://www.amazon.ca/hz/wishlist/ls/LBK99KX8GBN4?ref_=wl_share">https://www.amazon.ca/hz/wishlist/ls/LBK99KX8GBN4?ref_=wl_share</a><br /><br /><br />*********************************************************************<br />I LOVE MAIL! SEND ME LETTERS/THINGS/LOVE!:<br /><br />Mike Hatcher<br />P.O. BOX 5091<br />ST CATHARINES, ON, <br />L2R 7T4<br />Canada<br /><br /><br />&quot;Magistar&quot; Kevin MacLeod (<a rel="nofollow" target="blank" href="http://incompetech.com)">http://incompetech.com)</a><br />Licensed under Creative Commons: By Attribution 4.0 License<br />h <a rel="nofollow" target="blank" href="ttp://creativecommons.org/licenses/by/4.0/">ttp://creativecommons.org/licenses/by/4.0/</a><br /><br />#TheMagicHistorian #mtg #mtga #mtgSecretLair #mtgNeon #mtgIxalan{% endraw %}
