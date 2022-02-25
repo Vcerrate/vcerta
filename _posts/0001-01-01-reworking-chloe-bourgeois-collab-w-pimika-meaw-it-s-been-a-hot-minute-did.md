@@ -1,0 +1,15 @@
+---
+title: "Reworking Chloe Bourgeois【Collab w\/ @ღ • Pimika Meaw • ღ 】"
+image: "https:\/\/i.ytimg.com\/vi\/s1QbAjniFPk\/hqdefault.jpg"
+vid_id: "s1QbAjniFPk"
+categories: "Entertainment"
+tags: ["callimara","pimika meaw","miraculous ladybug"]
+date: "2022-02-25T07:18:28+03:00"
+vid_date: "2022-02-24T12:00:26Z"
+duration: "PT40M11S"
+viewcount: "24192"
+likeCount: "4001"
+dislikeCount: ""
+channel: "callimara"
+---
+{% raw %}It's been a hot minute! Did you miss me?<br /><br />▶ Thanks so much to Pimika Meaw for the amazing new transformation sequence! <br />Go ahead and check out her video! <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=2nSf65z-I4Y">https://www.youtube.com/watch?v=2nSf65z-I4Y</a><br /><br />__________________________________________________________________<br /><br />▶ Business Email (fanart submissions &amp; business enquiries): <br />callimara.art@gmail.com<br /><br />▶ Join my discord server!<br /><a rel="nofollow" target="blank" href="https://discord.gg/9kKCNz6Qqf">https://discord.gg/9kKCNz6Qqf</a><br /><br />▶ Donate to my Ko-Fi! <br /><a rel="nofollow" target="blank" href="https://ko-fi.com/callimara">https://ko-fi.com/callimara</a><br /><br />__________________________________________________________________<br /><br />00:00 Intro<br />02:13 Civilian Design<br />07:50 New Personality<br />15:13 Deconstructing Chloe<br />25:40 Queen Bee<br />32:53 Power &amp; Role<br />39:40 Pollen, buzz on! (ft. Pimika Meaw)<br /><br />__________________________________________________________________<br /><br />【 Ｗｅｂｃｏｍｉｃ】 <br /><br />▶ <a rel="nofollow" target="blank" href="https://www.webtoons.com/en/challenge/amber-hills/list?title_no=528156">https://www.webtoons.com/en/challenge/amber-hills/list?title_no=528156</a><br /><br />__________________________________________________________________<br /><br />【﻿Ｓｏｃｉａｌ　Ｍｅｄｉａ】<br /><br />▶ Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/callimara_/">https://www.instagram.com/callimara_/</a><br /><br />▶ Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/callimara">https://twitter.com/callimara</a><br /><br />▶ Tumblr: <a rel="nofollow" target="blank" href="https://callimara.tumblr.com/">https://callimara.tumblr.com/</a><br /><br />▶ Deviantart: <a rel="nofollow" target="blank" href="https://deviantart.com/callimara">https://deviantart.com/callimara</a><br /><br />__________________________________________________________________<br /><br />【﻿Ｃｒｅｄｉｔｓ】<br /><br />▶ AMV Nature - When We Found The Horizon (Anime Scenery of Forest, Village, Mountain) by Infikret Project<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=FS6ArrHM3OQ">https://www.youtube.com/watch?v=FS6ArrHM3OQ</a><br /><br />▶ GEMN Chill Out &amp; Lofi Music | Chill Lo-fi Hip-Hop Beats FREE by Lofi Hip Hop Chillhop Music Mix <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=qvUWA45GOMg">https://www.youtube.com/watch?v=qvUWA45GOMg</a>{% endraw %}
