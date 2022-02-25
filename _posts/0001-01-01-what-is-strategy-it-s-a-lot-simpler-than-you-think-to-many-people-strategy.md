@@ -1,0 +1,15 @@
+---
+title: "What is Strategy? It’s a Lot Simpler Than You Think"
+image: "https:\/\/i.ytimg.com\/vi\/o7Ik1OB4TaE\/hqdefault.jpg"
+vid_id: "o7Ik1OB4TaE"
+categories: "People-Blogs"
+tags: ["Strategy?","It’s","Simpler"]
+date: "2022-02-26T02:45:32+03:00"
+vid_date: "2022-02-23T13:00:36Z"
+duration: "PT9M32S"
+viewcount: "8511"
+likeCount: "490"
+dislikeCount: ""
+channel: "Harvard Business Review"
+---
+{% raw %}To many people, strategy is a total mystery. But it’s really not complicated, says Harvard Business School’s Felix Oberholzer-Gee. <br /><br />00:00 To many people, strategy is a mystery.<br />00:25 Strategy does not start with a focus on profit.<br />00:52 It's about creating value.<br />01:00 There's a simple tool to help visualize the value you create: the value stick.<br />01:30 What is willingness-to-pay?<br />02:30 What is willingness-to-sell?<br />03:14 Remind me: Where does profit come in again?<br />03:48 How do I raise willingness-to-pay?<br />05:00 And how do I lower willingness-to-sell?<br />06:18 Real world example: Best Buy's dramatic turnaround <br /><br />Companies should simplify and focus on two value drivers, he argues: customer satisfaction and employee satisfaction. By aligning strategic initiatives on these alone, leaders make their workers’ jobs less complicated and improve customer experiences. <br /><br />Oberholzer-Gee is the author of the Harvard Business Review article “Eliminate Strategic Overload” (<a rel="nofollow" target="blank" href="https://hbr.org/2021/05/eliminate-strategic-overload)">https://hbr.org/2021/05/eliminate-strategic-overload)</a> as well as the book “Better, Simpler Strategy: A Value-Based Guide to Exceptional Performance” (<a rel="nofollow" target="blank" href="https://www.amazon.com/Better-Simpler-Strategy-Value-Based-Exceptional/dp/1633699692/).">https://www.amazon.com/Better-Simpler-Strategy-Value-Based-Exceptional/dp/1633699692/).</a><br /><br />Produced and edited by Scott LaPierre<br />Video by Dave Di Iulio and Elie Honan<br />Animation by Alex Belser<br /><br />Follow Harvard Business Review:<br /><a rel="nofollow" target="blank" href="https://hbr.org/">https://hbr.org/</a><br /><a rel="nofollow" target="blank" href="https://www.linkedin.com/company/harvard-business-review/">https://www.linkedin.com/company/harvard-business-review/</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/HBR/">https://www.facebook.com/HBR/</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/HarvardBiz">https://twitter.com/HarvardBiz</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/harvard_business_review">https://www.instagram.com/harvard_business_review</a><br /><br />Sign up for Newsletters: <a rel="nofollow" target="blank" href="https://hbr.org/email-newsletters">https://hbr.org/email-newsletters</a><br /><br />#HarvardBusinessReview #Strategy #WhatIsStrategy<br /><br />Copyright © 2022 Harvard Business School Publishing. All rights reserved.{% endraw %}
