@@ -1,0 +1,15 @@
+---
+title: "Dating Akin - Petsanity, JP Bacallan, King Murph, Lo Ki (Official Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/MQChiMrCvcA\/hqdefault.jpg"
+vid_id: "MQChiMrCvcA"
+categories: "Music"
+tags: ["dating akin","ritmomusicph","ritmo music"]
+date: "2022-02-25T05:24:18+03:00"
+vid_date: "2022-02-22T06:22:15Z"
+duration: "PT5M4S"
+viewcount: "7667"
+likeCount: "417"
+dislikeCount: ""
+channel: "Ritmo Music PH"
+---
+{% raw %}RITMO MUSIC PH ™<br /><br />Starring:<br />Meg Imperial<br />Mark Oblea<br />TJ Aquino<br /><br />Written &amp; Performed by:<br />Petsanity<br />JP Bacallan<br />King Murph<br />Lo Ki<br /><br />Directed by: <br />Adonis Gabriel Villamayor<br /><br />Edited by:<br />Adonis Gabriel Villamayor<br />Deej Guirey<br /><br />Produced, Mixed &amp; Mastered by: <br />Deej Guirey<br /><br />Executive Producer:<br />Maica Gumabay<br /><br />HMUA  (FOR MEN):<br />Ryan Dela Cruz<br />Love Baquiran<br />Patrick Azul<br /><br />Special thanks to:<br />Rogin John Javier (Cam OP)<br />AJ Despi (Lights)<br />Arianne Narido<br />Jacksonworldwide<br />Alexa Tagod<br />Khei's Rest House<br /><br />Follow Deej Guirey:<br />FB: <a rel="nofollow" target="blank" href="https://www.facebook.com/deejguirey03">https://www.facebook.com/deejguirey03</a><br />IG:  deej.guirey<br /><br />Follow Meg Imperial:<br />FB: <a rel="nofollow" target="blank" href="https://www.facebook.com/MegImperialViva">https://www.facebook.com/MegImperialViva</a><br />IG:  megimperial<br /><br />Follow Mark Oblea:<br />FB: <a rel="nofollow" target="blank" href="https://www.facebook.com/MarkObleaOfficialPage">https://www.facebook.com/MarkObleaOfficialPage</a><br />IG:  markoblea<br /><br />Follow TJ Aquino:<br />FB: <a rel="nofollow" target="blank" href="https://www.facebook.com/jarret.aquino">https://www.facebook.com/jarret.aquino</a><br />IG:  downteejay01<br /><br />Follow Lo Ki:<br />FB: <a rel="nofollow" target="blank" href="https://www.facebook.com/profile.php?id=100008391885862">https://www.facebook.com/profile.php?id=100008391885862</a><br />IG: gifted.loki<br /><br />Follow JP Bacallan:<br />FB: <a rel="nofollow" target="blank" href="https://www.facebook.com/profile.php?id=100006223908719">https://www.facebook.com/profile.php?id=100006223908719</a><br />IG: jp.bacallan<br /><br />Follow King Murph:<br />FB: <a rel="nofollow" target="blank" href="https://www.facebook.com/breezycbee">https://www.facebook.com/breezycbee</a><br />IG: kingmurph_<br /><br />Follow Petsanity:<br />FB: <a rel="nofollow" target="blank" href="https://www.facebook.com/impetsanity">https://www.facebook.com/impetsanity</a><br />IG: petsanity199x<br /><br /><br />OFFICIAL RITMO MUSIC PH FACEBOOK PAGE:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/RitmoMusicPH">https://www.facebook.com/RitmoMusicPH</a><br /><br />OFFICIAL RITMO MUSIC PH INSTAGRAM ACCOUNT:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/ritmomusicph">https://www.instagram.com/ritmomusicph</a><br /><br />ⓒ Ritmo Music PH 2022 All Rights Reserved.{% endraw %}
