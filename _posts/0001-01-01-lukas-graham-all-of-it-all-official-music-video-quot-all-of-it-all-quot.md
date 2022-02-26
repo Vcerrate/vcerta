@@ -1,0 +1,15 @@
+---
+title: "Lukas Graham - All Of It All (Official Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/FTj7aJ94BGs\/hqdefault.jpg"
+vid_id: "FTj7aJ94BGs"
+categories: "Music"
+tags: ["Lukas Graham","WBR","Warner Bros. Records"]
+date: "2022-02-26T07:41:22+03:00"
+vid_date: "2022-02-18T05:00:10Z"
+duration: "PT2M59S"
+viewcount: "430456"
+likeCount: "14409"
+dislikeCount: ""
+channel: "Lukas Graham"
+---
+{% raw %}&quot;All Of It All&quot; by Lukas Graham. Listen now: <a rel="nofollow" target="blank" href="https://LukasGraham.lnk.to/AllOfItAll">https://LukasGraham.lnk.to/AllOfItAll</a><br /><br />Connect with Lukas Graham:<br /><a rel="nofollow" target="blank" href="http://instagram.com/LukasGraham">http://instagram.com/LukasGraham</a><br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@lukasgraham">https://www.tiktok.com/@lukasgraham</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/LukasGraham">https://www.facebook.com/LukasGraham</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/LukasGraham">https://twitter.com/LukasGraham</a><br /><br />Lyrics:<br />I’m delirious<br />We been up all night tryna make things right<br />I’m, running out of words to say<br />Why so serious<br />Cause it hurts so bad when you look like that but, I don’t wanna turn away<br /><br />I know you don’t want me to go<br />And you know how to keep me awake<br />We turn up the heat when it’s cold<br />Baby at the end of the day<br /><br />I got problems, I got demons<br />You still love me, for some reason<br />I know you got me, when I fall<br />Cause you want all of it all if it all<br />You got moods but I like seasons<br />Push and pull me, I ain’t leaving<br />I’m still right here, when you call<br />Cause I want all of it all of it all<br /><br />We’re yelling and screaming<br />It’s off the wall<br />Words that we’re gonna regret<br />Then you kiss me and love me to sleep<br />Pause<br />Rewind and reset<br /><br />Cause I know you don’t want me to go<br />And you know how to keep me awake<br />We turn up the heat when it’s cold<br />Baby at the end of the day<br /><br />I got problems, I got demons<br />You still love me, for some reason<br />I know you got me, when I fall<br />Cause you want all of it all if it all<br />You got moods but I like seasons<br />Push and pull me, I ain’t leaving<br />I’m still right here, when you call<br />Cause I want all of it all of it all<br /><br />I know you don’t wan’t me to go<br />And you know how to keep me awake<br />We turn up the heat when it’s cold<br />Baby I don’t know what to say<br /><br />We’re in a glass house throwing stones<br />You know we keep a row full of panes<br />You don’t wanna leave me alone<br />Baby at the end of the day<br /><br />I got problems, I got demons<br />You still love me, for some reason<br />I know you got me, when I fall<br />Cause you want all of it all if it all<br />You got moods but I like seasons<br />Push and pull me, I ain’t leaving<br />I’m still right here, when you call<br />Cause I want all of it all of it all<br /><br />#LukasGraham #AllOfItAll{% endraw %}
