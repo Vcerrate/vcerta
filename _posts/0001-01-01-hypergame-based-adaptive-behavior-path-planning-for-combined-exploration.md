@@ -1,0 +1,15 @@
+---
+title: "Hypergame-based Adaptive Behavior Path Planning for Combined Exploration and Visual Search"
+image: "https:\/\/i.ytimg.com\/vi\/Nfo-RQ_RCFg\/hqdefault.jpg"
+vid_id: "Nfo-RQ_RCFg"
+categories: "Science-Technology"
+tags: ["aerial robots","path planning","autonomous"]
+date: "2022-02-26T05:14:23+03:00"
+vid_date: "2020-11-05T15:28:00Z"
+duration: "PT2M31S"
+viewcount: "5045"
+likeCount: "15"
+dislikeCount: ""
+channel: "Kostas Alexis"
+---
+{% raw %}In this work we present an adaptive behavior path planning method for autonomous exploration and visual search of unknown environments. As volumetric exploration and visual coverage of unknown environments, with possibly different sensors, are non-identical objectives, a principled combination of the two is proposed. In particular, the method involves three distinct planning policies, namely exploration, and sparse or dense visual coverage. A hypergame formulation is proposed which allows the robot to select for the next-best planning behavior in response to the currently encountered environment challenges in terms of geometry and visual conditions, alongside a self-assessment of its performance. The proposed planner is evaluated in a collection of experimental and simulation studies in diverse environments, while comparative results against a state-of-the-art exploration method are also presented.{% endraw %}
