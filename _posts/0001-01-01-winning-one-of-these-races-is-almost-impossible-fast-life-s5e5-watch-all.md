@@ -1,0 +1,15 @@
+---
+title: "Winning One of These Races is Almost Impossible | FAST LIFE S5E5"
+image: "https:\/\/i.ytimg.com\/vi\/-eqES1RRH_Q\/hqdefault.jpg"
+vid_id: "-eqES1RRH_Q"
+categories: "Sports"
+tags: ["red bull","red bull bike","bike"]
+date: "2022-02-27T01:59:20+03:00"
+vid_date: "2022-02-24T14:00:00Z"
+duration: "PT12M44S"
+viewcount: "37787"
+likeCount: "1505"
+dislikeCount: ""
+channel: "Red Bull Bike"
+---
+{% raw %}Watch all of Fast Life Season 5 here: <a rel="nofollow" target="blank" href="https://win.gs/FastLife">https://win.gs/FastLife</a><br /><br />When there's more to gain than there is to lose, MTB riders can race like they've got nothing to lose at all. Riders talk about how having a winning strategy makes a difference to their performance. But when it comes down to winning a UCI Mountain Bike World Cup, this is a task only a few have ever accomplished. <br /><br />Featuring: <br />Evie Richards, Trek Factory Racing<br />Loana Lecomte, Massi Racing<br />Reece Wison, Trek Factory Racing<br />Loic Bruni, FRANCE, Specialized Gravity<br />Finn Iles, CANADA, Specialized Gravity<br />Kate Courtney, USA, Scott-Sram MTB Racing Team<br /><br />► Follow Kate Courtney on Instagram - <a rel="nofollow" target="blank" href="https://www.instagram.com/kateplusfate">https://www.instagram.com/kateplusfate</a><br />► Subscribe to Finn Iles on YouTube - <a rel="nofollow" target="blank" href="https://win.gs/FinnIlesYT">https://win.gs/FinnIlesYT</a><br />► Subscribe to Loic Bruni on YouTube - <a rel="nofollow" target="blank" href="https://win.gs/LoicBruni">https://win.gs/LoicBruni</a><br /><br />► Watch any season of Fast Life On Demand any time on our Red Bull TV Apps, for all your devices: <a rel="nofollow" target="blank" href="http://win.gs/RedBullTVApps">http://win.gs/RedBullTVApps</a>  <br /><br />Experience the world of Red Bull Bike like you have never seen it before. With the best bike videos, from Mountain Bike Downhill to Cross Country plus BMX and original series, prepare for your &quot;stoke factor&quot; to be at an all time high.<br /><br /><br /><br />Subscribe to Red Bull Bike on Youtube: <a rel="nofollow" target="blank" href="https://win.gs/SubToRedBullBike">https://win.gs/SubToRedBullBike</a><br /><br /><br /><br />Get the FREE Red Bull TV apps for all your devices: <a rel="nofollow" target="blank" href="http://onelink.to/yfbct7">http://onelink.to/yfbct7</a><br /><br /><br /><br />Watch Red Bull TV: <a rel="nofollow" target="blank" href="https://win.gs/WatchRBTVBike">https://win.gs/WatchRBTVBike</a><br /><br /><br /><br />See into our world: <a rel="nofollow" target="blank" href="http://goo.gl/J49U">http://goo.gl/J49U</a><br /><br /><br /><br />Red Bull Bike on Facebook: <a rel="nofollow" target="blank" href="https://win.gs/RedBullBikeFacebook">https://win.gs/RedBullBikeFacebook</a><br /><br /><br /><br />Red Bull Bike on Instagram: <a rel="nofollow" target="blank" href="http://win.gs/RedBullBikeInstagram">http://win.gs/RedBullBikeInstagram</a>{% endraw %}
