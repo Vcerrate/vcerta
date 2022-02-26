@@ -1,0 +1,15 @@
+---
+title: "Putin speech to oligarchs: Russian leader says Ukraine invasion was 'desperate measure'"
+image: "https:\/\/i.ytimg.com\/vi\/i8kkeztq70c\/hqdefault.jpg"
+vid_id: "i8kkeztq70c"
+categories: "News-Politics"
+tags: ["measure","oligarchs ukraine invasion","putin"]
+date: "2022-02-27T02:09:46+03:00"
+vid_date: "2022-02-24T22:36:07Z"
+duration: "PT2M27S"
+viewcount: "1299328"
+likeCount: "5884"
+dislikeCount: ""
+channel: "Daily Mail"
+---
+{% raw %}Russian forces have seized control of the Chernobyl power plant, 60 miles north of Kiev, after a 'fierce' battle with the condition of nuclear storage facilities 'unknown', officials in Kiev have said. Video revealed Russian tanks and armoured vehicles in front of the destroyed reactor, amid fears radiation could leak and shower Europe with fallout. It came as Turkey reported that one of its ships had been hit by a 'bomb' off the coast of Odessa, where fighting is also going on. Turkey is a member of NATO, underlining fears that the war in Ukraine could quickly suck in other states and spark an all-out conflict in Europe. Elsewhere, Kiev ordered civilians into bomb shelters and declared a curfew amid fears Russia is about to strike the Ukrainian capital as Kiev's troops lost control of a key airfield around 15 miles away. The Ukrainian army was this afternoon fighting in almost every region of the country, battling the Russians for control of military bases, airports, cities and ports from Kharkiv to Kiev, and Donetsk to Odessa after Vladimir Putin declared all-out war.<br /><br />Original Article: <a rel="nofollow" target="blank" href="http://www.dailymail.co.uk/news/article-10545389/BREAKING-NEWS-Explosions-heard-Ukraine-port-city-Mariupol.html">http://www.dailymail.co.uk/news/article-10545389/BREAKING-NEWS-Explosions-heard-Ukraine-port-city-Mariupol.html</a><br />Original Video: <a rel="nofollow" target="blank" href="http://www.dailymail.co.uk/video/ukraine/video-2622779/Video-Putin-tells-oligarchs-Ukraine-invasion-desperate-measure.html">http://www.dailymail.co.uk/video/ukraine/video-2622779/Video-Putin-tells-oligarchs-Ukraine-invasion-desperate-measure.html</a><br /><br />Daily Mail Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/dailymail">http://facebook.com/dailymail</a><br />Daily Mail IG: <a rel="nofollow" target="blank" href="http://instagram.com/dailymail">http://instagram.com/dailymail</a><br />Daily Mail Snap: <a rel="nofollow" target="blank" href="https://www.snapchat.com/discover/Daily-Mail/8392137033">https://www.snapchat.com/discover/Daily-Mail/8392137033</a><br />Daily Mail Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/MailOnline">http://twitter.com/MailOnline</a><br />Daily Mail Pinterest: <a rel="nofollow" target="blank" href="http://pinterest.co.uk/dailymail">http://pinterest.co.uk/dailymail</a><br />Daily Mail Google+: <a rel="nofollow" target="blank" href="https://plus.google.com/+DailyMail">https://plus.google.com/+DailyMail</a><br /><br />Get the free Daily Mail mobile app: <a rel="nofollow" target="blank" href="http://dailymail.co.uk/mobile">http://dailymail.co.uk/mobile</a>{% endraw %}
