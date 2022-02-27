@@ -1,0 +1,15 @@
+---
+title: "Daniel Brown 1 - 'The Great Way' - Interview by Iain McNay"
+image: "https:\/\/i.ytimg.com\/vi\/grBkn9fWD6Y\/hqdefault.jpg"
+vid_id: "grBkn9fWD6Y"
+categories: "People-Blogs"
+tags: ["Non-duality","Advaita","Meditation"]
+date: "2022-02-27T06:31:20+03:00"
+vid_date: "2009-05-21T12:36:56Z"
+duration: "PT8M48S"
+viewcount: "28826"
+likeCount: "155"
+dislikeCount: ""
+channel: "conscioustv"
+---
+{% raw %}Daniel Brown - 'The Great Way' - Interview by Iain McNay<br /><br />Daniel is Director of The Centre for Integrative Psychotherapy, Newton, MA and Associate Clinical Professor of Psychology, Harvard Medical School. Author of 14 books including &quot;Transformations of Consciousness&quot; (with Ken Wilbur and Jack Engler), and a book on Mahamudra, &quot;Pointing Out the Great Way: The Mahamudra Tradition of Tibetan Meditation-Stages&quot; (Wisdom Publications), and two books on public dialogues with H.H. The Dalai Lama. He studied meditation practice for 38 years, including Patnajali's Yogasutras with Mircea Eliade; Burmese mindfulness meditation with Mahasi Sayadaw in Rangoon, and many other Burmese and Western teachers of mindfulness. Indo-Tibetan concentration and insight meditation with Geshe Wangyal, Denmo Locho Rinpoche, and Yeshe Tapkay; he learned the Mahamudra from numerous Tibetan lamas. He spent 10 years translating meditation texts from Tibetan and Sanskrit, including translating Tashi Namgyal's commentary on Mahamudra, Moon Beams, as well as translating most of the Mahamudra meditation practice texts in Jamgon Kongtrul's great collection of meditation texts, &quot;The Treasure of Instructions&quot;. As a Western psychologist, he spent 10 years conducting outcomes research on beginner and advanced meditators and has taught meditation retreats for 18 years.<br /><br />The transcript of this interview is available to view here.<br /><a rel="nofollow" target="blank" href="http://www.conscious.tv/text/15.htm">http://www.conscious.tv/text/15.htm</a><br /><br />The transcription of this interview is included in the book 'Conversations on Non-Duality' which is available both as an ebook and  hard copy. A link to the book is here:<br /><a rel="nofollow" target="blank" href="https://www.amazon.co.uk/Conversations-Non-Duality-Eleanora-Gilbert/dp/1901447677/ref=sr_1_1?s=books&amp;ie=UTF8&amp;qid=1470654154&amp;sr=1-1&amp;keywords=conversations+on+non+duality">https://www.amazon.co.uk/Conversations-Non-Duality-Eleanora-Gilbert/dp/1901447677/ref=sr_1_1?s=books&amp;ie=UTF8&amp;qid=1470654154&amp;sr=1-1&amp;keywords=conversations+on+non+duality</a><br /><br />Find out more about Conscious TV here.<br />Website - <a rel="nofollow" target="blank" href="http://www.conscious.tv">http://www.conscious.tv</a><br />Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/conscioustv">https://www.facebook.com/conscioustv</a><br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/ConsciousTV_UK?lang=en-gb">https://twitter.com/ConsciousTV_UK?lang=en-gb</a>{% endraw %}
