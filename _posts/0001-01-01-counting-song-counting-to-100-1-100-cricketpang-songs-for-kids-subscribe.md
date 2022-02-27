@@ -1,0 +1,15 @@
+---
+title: "Counting Song | Counting to 100 | 1-100 | CricketPang Songs for Kids"
+image: "https:\/\/i.ytimg.com\/vi\/g8arEVfJoGc\/hqdefault.jpg"
+vid_id: "g8arEVfJoGc"
+categories: "Film-Animation"
+tags: ["Cricketpang","youneedcharacter","kids"]
+date: "2022-02-27T19:18:55+03:00"
+vid_date: "2021-04-21T02:06:50Z"
+duration: "PT2M40S"
+viewcount: "24562567"
+likeCount: "129113"
+dislikeCount: ""
+channel: "CricketPang TV"
+---
+{% raw %}Subscribe and watch CricketPang videos on our channel!<br />◈ Cricket Pang TV YouTube Channel<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC1rTvU8LPlY7bK2s8Bb83Dg/?sub_confirmation=1">https://www.youtube.com/channel/UC1rTvU8LPlY7bK2s8Bb83Dg/?sub_confirmation=1</a><br /><br />Sing along to the Counting Song with CricketPang!<br />Join Pang and his friends as they count from 1 to a 100!<br />-<br />LYRICS<br />[Counting Song]<br /><br />Counting is fun, you will see!<br />Hey everybody, count with me.<br /><br />One, two, three, four, five, six, seven, eight, nine, ten. <br />Eleven, twelve, thirteen, fourteen, fifteen, sixteen, seventeen, eighteen, nineteen, twenty.<br /><br />Hey everybody, count with me!<br /><br />Twenty-one, twenty-two, twenty-three, twenty-four, twenty-five,<br />Twenty-six, twenty-seven, twenty-eight, twenty-nine, thirty.<br /><br />Thirty-one, thirty-two, thirty-three, thirty-four, thirty-five,<br />Thirty-six, thirty-seven, thirty-eight, thirty-nine, forty.<br /><br />Let's keep going, count with me!<br /><br />Forty-one, forty-two, forty-three, forty-four, forty-five,<br />Forty-six, forty-seven, forty-eight, forty-nine, fifty.<br /><br />Fifty-one, fifty-two, fifty-three, fifty-four, fifty-five,<br />Fifty-six, fifty-seven, fifty-eight, fifty-nine, eighty.<br /><br />All together count with me!<br /><br />Sixty-one, sixty-two, sixty-three, sixty-three, sixty-four, sixty-five<br />Sixty-six, sixty-seven, sixty-eight, sixty-nine, seventy.<br /><br />Seventy-one, seventy-two, seventy-three, seventy-four, seventy-five,<br />Seventy-six, seventy-seven, seventy-eight, seventy-nine, eighty.<br /><br />Let's keep going, count with me!<br /><br />Eighty-one, eighty-two, eighty-three, eighty-four, eighty-five,<br />Eighty-six, eighty-seven, eighty-eight, eighty-nine, ninety.<br /><br />Ninety-one, ninety-two, ninety-three, ninety-four, ninety-five,<br />Ninety-six, ninety-seven, ninety-eight, ninety-nine, and one hundred!<br /><br />Counting is fun, now you see!<br />Thank you for counting along with me!<br />-<br /><br />◈ Homepage <br /><a rel="nofollow" target="blank" href="https://www.cricketpang.com/">https://www.cricketpang.com/</a> <br /><br />◈ Instagram <br /><a rel="nofollow" target="blank" href="https://www.instagram.com/cricketpang/">https://www.instagram.com/cricketpang/</a> <br /><br />◈ Facebook <br /><a rel="nofollow" target="blank" href="https://www.facebook.com/Cricket-Pang...">https://www.facebook.com/Cricket-Pang...</a><br /><br /><br />Copyright © 2021 YNC. All Rights Reserved.{% endraw %}
