@@ -1,0 +1,15 @@
+---
+title: "Targeted Individuals & Havana Syndrome by Pulsed Radio Frequency"
+image: "https:\/\/i.ytimg.com\/vi\/ZGMZG0MSmFU\/hqdefault.jpg"
+vid_id: "ZGMZG0MSmFU"
+categories: "Science-Technology"
+tags: ["Targeted","Individuals","Havana"]
+date: "2022-03-01T09:36:30+03:00"
+vid_date: "2022-03-01T04:20:53Z"
+duration: "PT55M3S"
+viewcount: "539"
+likeCount: "184"
+dislikeCount: ""
+channel: "ClimateViewer"
+---
+{% raw %}SUPPORT &amp; CONNECT WITH CLIMATEVIEWER: <br /><a rel="nofollow" target="blank" href="https://connect.climateviewer.com/">https://connect.climateviewer.com/</a> <br /><br />Directed Energy Attacks, Havana Syndrome, and Targeted Individuals <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=eBy6cyE4xMw">https://www.youtube.com/watch?v=eBy6cyE4xMw</a> <br /><br />People Cookers - Havana Syndrome Spreading <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=HA7wU6WW4N">https://www.youtube.com/watch?v=HA7wU6WW4N</a> <br /><br />'Pulsed electromagnetic energy' the most likely cause of legitimate Havana syndrome, expert panel concludes <br /><a rel="nofollow" target="blank" href="https://theweek.com/health-and-science/1009735/pulsed-electromagnetic-energy-the-most-likely-cause-of-legitimate-havana">https://theweek.com/health-and-science/1009735/pulsed-electromagnetic-energy-the-most-likely-cause-of-legitimate-havana</a> <br /><br />OFFICIAL REPORT: COMPLEMENTARY EFFORTS ON ANOMALOUS HEALTH INCIDENTS <br /><a rel="nofollow" target="blank" href="https://www.dni.gov/index.php/newsroom/reports-publications/reports-publications-2022/item/2273-complementary-efforts-on-anomalous-health-incidents">https://www.dni.gov/index.php/newsroom/reports-publications/reports-publications-2022/item/2273-complementary-efforts-on-anomalous-health-incidents</a> <br /><br />&quot;The Thing&quot; Passive Cavity Resonator<br /><a rel="nofollow" target="blank" href="https://www.cryptomuseum.com/covert/bugs/thing/index.htm">https://www.cryptomuseum.com/covert/bugs/thing/index.htm</a><br /><br />NSA TEMPEST Attack can remotely view your computer and cell phone screen using radio waves!<br /><a rel="nofollow" target="blank" href="https://climateviewer.com/2014/01/18/nsa-tempest-attack-can-remotely-view-computer-cellphone-screen-using-radio-waves/">https://climateviewer.com/2014/01/18/nsa-tempest-attack-can-remotely-view-computer-cellphone-screen-using-radio-waves/</a><br /><br />CYBERSECURITY CYBER-ATTACK SERIES: SIDE CHANNEL – TEMPEST Attacks <br /><a rel="nofollow" target="blank" href="http://web.archive.org/web/20161211232821/https://build.export.gov/build/groups/public/@eg_ca/documents/webcontent/eg_ca_106274.pdf">http://web.archive.org/web/20161211232821/https://build.export.gov/build/groups/public/@eg_ca/documents/webcontent/eg_ca_106274.pdf</a><br /><br />This video by James F. Lee Jr. (ClimateViewer News, LLC) is licensed under a Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License. <a rel="nofollow" target="blank" href="https://creativecommons.org/licenses/by-nc-sa/4.0/">https://creativecommons.org/licenses/by-nc-sa/4.0/</a>{% endraw %}
