@@ -1,0 +1,15 @@
+---
+title: "Turk - Book I, No. 11, Keenness"
+image: "https:\/\/i.ytimg.com\/vi\/Q-9kOQj2uwU\/hqdefault.jpg"
+vid_id: "Q-9kOQj2uwU"
+categories: "Music"
+tags: ["Piano","Aspiring Players","musica"]
+date: "2022-03-01T20:34:56+03:00"
+vid_date: "2014-04-25T20:52:16Z"
+duration: "PT15S"
+viewcount: "313"
+likeCount: "1"
+dislikeCount: ""
+channel: "Piano Music"
+---
+{% raw %}Turk - Book I, No. 11, Keenness<br /><br />All videos were played, recorded and edited by myself.<br /><br />My playlist:<br /><br />ABRSM Associated Board Royal Schools of Music <br />Piano 2013-2014<br />Grade 1: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=AsC6j059q-0&amp;list=PL-QKzVKxroX6auzHzfbJp2-6yTrf1E231">https://www.youtube.com/watch?v=AsC6j059q-0&amp;list=PL-QKzVKxroX6auzHzfbJp2-6yTrf1E231</a><br />Grade 2: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=oK-xzdYeKS4&amp;list=PL-QKzVKxroX6xFnUsC62IaVzzShRApjVY">https://www.youtube.com/watch?v=oK-xzdYeKS4&amp;list=PL-QKzVKxroX6xFnUsC62IaVzzShRApjVY</a><br />Grade 3: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=6A2iruhtu4c&amp;list=PL-QKzVKxroX41q40BY_Pd4wl_Q-e7kK43">https://www.youtube.com/watch?v=6A2iruhtu4c&amp;list=PL-QKzVKxroX41q40BY_Pd4wl_Q-e7kK43</a> <br />Grade 4: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=FU0Nlsa-Wcc&amp;list=PL-QKzVKxroX7-KDJ7CW7VpooYKhM0eqJ2">https://www.youtube.com/watch?v=FU0Nlsa-Wcc&amp;list=PL-QKzVKxroX7-KDJ7CW7VpooYKhM0eqJ2</a><br /><br />Piano 2011-2012:<br />Grade 1: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL-QKzVKxroX7RXr4hUG1lJAmLjnAVlmjW">https://www.youtube.com/playlist?list=PL-QKzVKxroX7RXr4hUG1lJAmLjnAVlmjW</a><br /><br /><br />ABRSM: More Romantic Pieces for Piano - Book One <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=fLfVLRUuH_0&amp;list=PL-QKzVKxroX6iwDlJk1_Cc0sNiLQWEs8U">https://www.youtube.com/watch?v=fLfVLRUuH_0&amp;list=PL-QKzVKxroX6iwDlJk1_Cc0sNiLQWEs8U</a><br /><br />Burgmüller: 25 Easy and Progressive Studies Op. 100<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL-QKzVKxroX5pBS71HFJm_j7aIFOedNE3">https://www.youtube.com/playlist?list=PL-QKzVKxroX5pBS71HFJm_j7aIFOedNE3</a><br /><br />Gurlitt: Little Flowers, Op. 205<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL-QKzVKxroX7A9vPsaanVVgPEl3iwQd6I">https://www.youtube.com/playlist?list=PL-QKzVKxroX7A9vPsaanVVgPEl3iwQd6I</a><br /><br />Denes Agay: An Introduction to Classics to Moderns  <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL-QKzVKxroX58tju2eL-0H_VBSpXJ-gSl">https://www.youtube.com/playlist?list=PL-QKzVKxroX58tju2eL-0H_VBSpXJ-gSl</a><br /><br />Denes Agay: Easy classics to moderns <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL-QKzVKxroX4aJoUy8fsH4IQfoRjwGmrv">https://www.youtube.com/playlist?list=PL-QKzVKxroX4aJoUy8fsH4IQfoRjwGmrv</a>{% endraw %}
