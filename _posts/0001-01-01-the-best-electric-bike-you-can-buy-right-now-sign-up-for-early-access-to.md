@@ -1,0 +1,15 @@
+---
+title: "THE BEST ELECTRIC BIKE YOU CAN BUY RIGHT NOW!"
+image: "https:\/\/i.ytimg.com\/vi\/HhwRqt1e_MI\/hqdefault.jpg"
+vid_id: "HhwRqt1e_MI"
+categories: "Entertainment"
+tags: ["electric bike","e bike","e-bike"]
+date: "2022-03-01T12:59:32+03:00"
+vid_date: "2022-02-27T18:00:05Z"
+duration: "PT19M33S"
+viewcount: "4128"
+likeCount: "346"
+dislikeCount: ""
+channel: "Adam Swords"
+---
+{% raw %}SIGN UP FOR EARLY ACCESS TO EPISODES, BEHIND THE SCENES, LIVESTREAMS A MORE! <a rel="nofollow" target="blank" href="http://www.patreon.com/adamswords">http://www.patreon.com/adamswords</a><br /><br />In this episode I give you a first look at my new Onyx RCR electric bike, capable of 60mph! I first rode this e bike around Catalina Island 2 years ago and I've wanted one ever since!<br /><br />Onyx RCR on Catalina Island: <a rel="nofollow" target="blank" href="https://youtu.be/sOD4sxr_S7E">https://youtu.be/sOD4sxr_S7E</a><br /><br />Onyx RCR:<br /><a rel="nofollow" target="blank" href="http://www.onyxmotorbikes.com/?AdamSwordsONYX">http://www.onyxmotorbikes.com/?AdamSwordsONYX</a><br /><a rel="nofollow" target="blank" href="http://www.instagram.com/onyxmotorbikes">http://www.instagram.com/onyxmotorbikes</a><br /><br />Ariel X-Class: <a rel="nofollow" target="blank" href="https://bit.ly/arielxclassswrdz">https://bit.ly/arielxclassswrdz</a><br /><br />Panzera Watches Discount Code 'SWRDZ' for 10% off: <a rel="nofollow" target="blank" href="http://www.panzera.shop">http://www.panzera.shop</a><br /><br />IG: <a rel="nofollow" target="blank" href="http://www.instagram.com/adamswords">http://www.instagram.com/adamswords</a><br />Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/adamswords">http://www.twitter.com/adamswords</a><br />Discord: <a rel="nofollow" target="blank" href="http://www.bit.ly/swrdzdiscord">http://www.bit.ly/swrdzdiscord</a><br />Twitch: <a rel="nofollow" target="blank" href="http://www.twitch.tv/swrdzxx">http://www.twitch.tv/swrdzxx</a><br />Blog: <a rel="nofollow" target="blank" href="http://www.swrdz.news">http://www.swrdz.news</a><br /><br />MY GEAR:<br />Main camera: <a rel="nofollow" target="blank" href="https://amzn.to/2STaDal">https://amzn.to/2STaDal</a><br />GoPro: <a rel="nofollow" target="blank" href="https://amzn.to/3dx6fWg">https://amzn.to/3dx6fWg</a><br />Drone:  <a rel="nofollow" target="blank" href="https://amzn.to/2yATtr6">https://amzn.to/2yATtr6</a><br />Microphone: <a rel="nofollow" target="blank" href="https://amzn.to/3fDqR0U">https://amzn.to/3fDqR0U</a><br />Main memory card: <a rel="nofollow" target="blank" href="https://amzn.to/2WI9yDk">https://amzn.to/2WI9yDk</a><br />GoPro memory Card: <a rel="nofollow" target="blank" href="https://amzn.to/2LumNSZ">https://amzn.to/2LumNSZ</a><br />Video editing software: <a rel="nofollow" target="blank" href="https://amzn.to/2AeTYY5">https://amzn.to/2AeTYY5</a><br />(As an Amazon Associate I earn from qualifying purchases which helps fund the channel, so thank you!)<br /><br />#electricbike #ebike #onyxrcr{% endraw %}
