@@ -1,0 +1,15 @@
+---
+title: "The key to personal development & organizational effectiveness | Adam Grant & Ray Dalio at Collision"
+image: "https:\/\/i.ytimg.com\/vi\/FRW3Nv0X1Uw\/hqdefault.jpg"
+vid_id: "FRW3Nv0X1Uw"
+categories: "Education"
+tags: ["'ray","dalio'","raydalio"]
+date: "2022-03-01T06:23:34+03:00"
+vid_date: "2021-04-23T15:56:24Z"
+duration: "PT20M15S"
+viewcount: "43105"
+likeCount: "1011"
+dislikeCount: ""
+channel: "Principles by Ray Dalio"
+---
+{% raw %}I believe that accurate self-knowledge is the key to success in work and life, and the most important thing for individual development and for building teams.<br /><br />In my own experience, I found that there was no clear path to getting objective and accurate assessments of what you and the people you interact with are like, and that figuring out how to get that was essential in building my company, Bridgewater. In my book Principles: Life &amp; Work I explained my pursuit of this understanding and the tools that I built to help me and Bridgewater gain it. In the past, I used a number of personality profile tests because I never found one that gave me everything I was looking for. For that reason over the last couple of years, I engaged three great psychometricians - Adam Grant, Brian Little and John Golden - to work with me to build a test that takes about 40 minutes and provides far more comprehensive descriptions of people's thinking preferences than any other tests of comparable length.<br /><br />I am thrilled to announce this comprehensive assessment, PrinciplesYou, is now available for free to everyone. It’s backed by best-in-class psychometrics, gives you a total picture of yourself and the people around you, and allows you to compare your results to others. <br /><br />In this video, I talk to Adam Grant, organizational psychologist and TED speaker, about why I wanted to build this assessment and how valuable I believe it to be for personal development, relationships and organizations. <br /><br />You can take the new personality assessment, PrinciplesYou, here: <a rel="nofollow" target="blank" href="https://bit.ly/2PcVDoT">https://bit.ly/2PcVDoT</a><br /><br />For more from Ray:<br />Principles | #1 New York Times Bestseller: <a rel="nofollow" target="blank" href="https://amzn.to/2JMewHb">https://amzn.to/2JMewHb</a> <br />Principles for Success: <a rel="nofollow" target="blank" href="https://amzn.to/34lgnNJ">https://amzn.to/34lgnNJ</a><br />Download his free app: <a rel="nofollow" target="blank" href="https://principles.app.link/PFS">https://principles.app.link/PFS</a><br />Connect with him on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/raydalio">https://www.facebook.com/raydalio</a><br />Follow him on Twitter: <a rel="nofollow" target="blank" href="https://www.twitter.com/raydalio">https://www.twitter.com/raydalio</a><br />Follow him on LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/raydalio">https://www.linkedin.com/raydalio</a><br />Follow him on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/raydalio/">https://www.instagram.com/raydalio/</a>{% endraw %}
