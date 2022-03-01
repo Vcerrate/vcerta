@@ -1,0 +1,15 @@
+---
+title: "Perfect AIM - Battlefield 4"
+image: "https:\/\/i.ytimg.com\/vi\/GN_TE_z-ukU\/hqdefault.jpg"
+vid_id: "GN_TE_z-ukU"
+categories: "Gaming"
+tags: ["SAB3LO","SABELO","sabelo"]
+date: "2022-03-02T02:03:04+03:00"
+vid_date: "2022-02-28T15:00:05Z"
+duration: "PT8M1S"
+viewcount: "12181"
+likeCount: "969"
+dislikeCount: ""
+channel: "SAB3LO"
+---
+{% raw %}MY BEST VIDEO IN BF4: <a rel="nofollow" target="blank" href="https://youtu.be/UiMHV-8Wxjs">https://youtu.be/UiMHV-8Wxjs</a><br />🐦 TWITTER► <a rel="nofollow" target="blank" href="https://twitter.com/SAB3LOO">https://twitter.com/SAB3LOO</a><br />🔴 TWITCH.TV► <a rel="nofollow" target="blank" href="https://www.twitch.tv/sab3lo">https://www.twitch.tv/sab3lo</a> <br />📘 FACEBOOK► <a rel="nofollow" target="blank" href="https://www.facebook.com/SABELO-210037056020887/">https://www.facebook.com/SABELO-210037056020887/</a><br />BATTLEFIELD 4 SERVER: <a rel="nofollow" target="blank" href="https://battlelog.battlefield.com/bf4/servers/show/pc/8c9c07d8-47f7-4f1b-a168-b97dfe23c908/FAIL-CLA-BASIC-MAPS-ROTATION-24-7/">https://battlelog.battlefield.com/bf4/servers/show/pc/8c9c07d8-47f7-4f1b-a168-b97dfe23c908/FAIL-CLA-BASIC-MAPS-ROTATION-24-7/</a><br />●VIDEO SETTINGS BF4► <a rel="nofollow" target="blank" href="https://youtu.be/kOsL2RlwDxU">https://youtu.be/kOsL2RlwDxU</a><br /><br />BATTLEFIELD 2042 SETTINGS: <a rel="nofollow" target="blank" href="https://www.mediafire.com/file/axk1ghmz2noz5wt/settings.rar/file">https://www.mediafire.com/file/axk1ghmz2noz5wt/settings.rar/file</a><br /><br />🎮 Setting Sensivity BF4: <br />• 6% in game <br />• Uniform aiming off<br />• 400 DPI (1000Hz Polling Rate) <br />• Windows 10 Sensivity 6/11 <br />• MouseRawInput 1 <br /><br />🎮 Setting Sensivity BF2042: <br />• 13% in game <br />• 80% Scope sens<br />• Uniform aiming off<br />• 400 DPI (1000Hz Polling Rate) <br />• Windows 10 Sensivity 6/11 <br />• MouseRawInput 1 <br /><br />🎮 CFG in game: <br />• Resolution 1920x1080 16:9 <br />• All Low <br />• FOV 85<br /><br />🎮 Monitor Settings: <br />• Brightness: 100 <br />• Contrast: 50 <br />• Sharpness: 10<br />• Black eQualizer: 6 <br />• Reset Color: No <br />• AMA: Premium <br />• Instant Mode: On <br />• Color Vibrance: 17<br /><br />🎮 PC: <br />• Intel Core i9 10900k <br />• GeForce RTX 3080 EVGA FTW3 Ultra <br />• 32GB RAM Corsair 3600Mhz<br />• Z490 VISION D Gigabyte<br />• Seasonic 1300w Platinium<br />• Gigabyte AORUS NVMe Gen4 M.2 500GB PCI-Express 4.0<br />• SSD Kingstong 960GB <br />• M.2 Samsung 960 EVO 250 GB <br />• SSD Kingstong 480GB<br />• AORUS Liquid 360mm<br />• NZXT Phantom 820 <br /><br />🎮 GEAR: <br />• Zowie EC2-B<br />• HyperX Alloy FPS Pro<br />• MousePad Glorious XXXL<br />• Sennheiser GAME ZERO <br />• Zowie Bungee <br />• Benq Zowie XL2540 240Hz 1ms <br />• AOC 16 E1670SWU-E 60Hz <br />• EVGA NU Audio card<br />• Geekdigg soporte <br />• Chair Cougar Armor <br /><br />🎵 ►<br />🎵 Final ► Saint Clue &amp; Rubika feat. Linn Sandin, Moses Stone - Come Alive{% endraw %}
