@@ -1,0 +1,15 @@
+---
+title: "Brooke Ligertwood - Burn (Lyric Video)"
+image: "https:\/\/i.ytimg.com\/vi\/Lf58bnStOSE\/hqdefault.jpg"
+vid_id: "Lf58bnStOSE"
+categories: "Music"
+tags: ["Brooks Ligertwood","Brooke Fraser","Brooke Fraser Hillsong"]
+date: "2022-03-01T09:25:30+03:00"
+vid_date: "2022-02-25T05:00:12Z"
+duration: "PT4M52S"
+viewcount: "24104"
+likeCount: "1289"
+dislikeCount: ""
+channel: "Brooke Ligertwood"
+---
+{% raw %}Official Lyric Video for “Burn” by Brooke Ligertwood<br />Listen here: <a rel="nofollow" target="blank" href="https://BrookeLigertwood.lnk.to/SevenID">https://BrookeLigertwood.lnk.to/SevenID</a> <br />Subscribe to Brooke Ligertwood: <a rel="nofollow" target="blank" href="https://BrookeLigertwood.lnk.to/ytsubID">https://BrookeLigertwood.lnk.to/ytsubID</a> <br /><br />Follow Brooke on Socials:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/brookeligertwood/">https://www.instagram.com/brookeligertwood/</a> <br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@brookeligertwood">https://www.tiktok.com/@brookeligertwood</a> <br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/profile.php?id=100044183932343">https://www.facebook.com/profile.php?id=100044183932343</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/BrookeLig">https://twitter.com/BrookeLig</a> <br /><br />Listen to more from Brooke Ligertwood:<br />Brooke Ligertwood - A Thousand Hallelujahs (Live Video)<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ga057VTHdP0">https://www.youtube.com/watch?v=ga057VTHdP0</a> <br />Brooke Ligertwood - Nineveh (Live)<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=4I-mmZsAY-Y">https://www.youtube.com/watch?v=4I-mmZsAY-Y</a> <br />Brooke Ligertwood - A Thousand Hallelujahs (Acoustic Version)<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ntpNBErokfI">https://www.youtube.com/watch?v=ntpNBErokfI</a> <br /><br />Lyrics:<br />Where I rebel<br />Where I return<br />The place a thousand fires burn<br />But only one flame will endure<br />The one that burns for You<br /> <br />You have made my heart Your home<br />Loved me with a perfect love<br />Still I wander, still I roam<br />God help me burn for You<br /> <br />‘Til I’m really truly wholly Yours<br /> <br />Death to life<br />Stone to flesh<br />Where I repent You resurrect<br />You want all of me and nothing less<br />God I will burn for You  <br /> <br />‘Til I’m really truly wholly Yours<br />‘Til I’m really truly wholly Yours<br /> <br />Blessed those who read and hear<br />Knowing that the time is near<br />Heed in heart what has been written<br />Turn around and see seven<br /> <br />Seven stars and seven circles<br />Seven lamps and seven churches<br />Seven seals and seven thunders<br />Seven angels, seven trumpets<br /> <br />‘Til I’m really truly wholly Yours<br /> <br />Where I rebel<br />Where I return<br />The place a thousand fires burn<br />But only one flame will endure<br />The one that burns for You{% endraw %}
