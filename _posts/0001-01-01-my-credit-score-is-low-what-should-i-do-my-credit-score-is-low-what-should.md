@@ -1,0 +1,15 @@
+---
+title: "My Credit Score Is Low, What Should I Do?"
+image: "https:\/\/i.ytimg.com\/vi\/G13Iu2b5lJo\/hqdefault.jpg"
+vid_id: "G13Iu2b5lJo"
+categories: "People-Blogs"
+tags: ["the dave ramsey show","budget money debt cash","real estate"]
+date: "2022-03-01T06:34:38+03:00"
+vid_date: "2021-09-01T21:00:07Z"
+duration: "PT6M14S"
+viewcount: "34006"
+likeCount: "827"
+dislikeCount: ""
+channel: "The Ramsey Show - Highlights"
+---
+{% raw %}My Credit Score Is Low, What Should I Do?<br />Never worry about money again with Financial Peace University, only available in Ramsey+. Get started for free: <a rel="nofollow" target="blank" href="https://bit.ly/3yD3AW1">https://bit.ly/3yD3AW1</a><br /><br />Visit the Dave Ramsey store today for resources to help you take control of your money! <a rel="nofollow" target="blank" href="https://goo.gl/gEv6Tj">https://goo.gl/gEv6Tj</a><br /><br />Did you miss the latest Ramsey Show episode? Don’t worry—we’ve got you covered! Get all the highlights you missed plus some of the best moments from the show. Watch debt-free screams, Dave Rants, guest interviews, and more!<br /><br />Want to watch FULL episodes of The Ramsey Show? Make sure to go to The Ramsey Show (Full Episodes) at: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/TheRamseyShowEpisodes?sub_confirmation=1">https://www.youtube.com/c/TheRamseyShowEpisodes?sub_confirmation=1</a><br /><br />Check out the show at 4pm EST Monday-Friday or anytime on demand. Dave Ramsey and his co-hosts talking about money, careers, relationships, and how they impact your life. Tune in to The Ramsey Show and experience one of the most popular talk radio shows in the country!<br /><br />Ramsey Network (Subscribe Now!)<br /><br />• The Ramsey Show (Highlights): <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/TheRamseyShow?sub_confirmation=1">https://www.youtube.com/c/TheRamseyShow?sub_confirmation=1</a><br />• The Ramsey Show (Full Episodes): <a rel="nofollow" target="blank" href="https://www.youtube.com/c/TheRamseyShowEpisodes?sub_confirmation=1">https://www.youtube.com/c/TheRamseyShowEpisodes?sub_confirmation=1</a><br />• The Dr. John Delony Show: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/JohnDelony?sub_confirmation=1">https://www.youtube.com/c/JohnDelony?sub_confirmation=1</a><br />• The Rachel Cruze Show: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/RachelCruze?sub_confirmation=1">https://www.youtube.com/user/RachelCruze?sub_confirmation=1</a><br />• The Ken Coleman Show: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/TheKenColemanShow?sub_confirmation=1">https://www.youtube.com/c/TheKenColemanShow?sub_confirmation=1</a><br />• The Christy Wright Show: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/ChristyWright?sub_confirmation=1">https://www.youtube.com/c/ChristyWright?sub_confirmation=1</a><br />• EntreLeadership: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/entreleadership?sub_confirmation=1">https://www.youtube.com/c/entreleadership?sub_confirmation=1</a>{% endraw %}
