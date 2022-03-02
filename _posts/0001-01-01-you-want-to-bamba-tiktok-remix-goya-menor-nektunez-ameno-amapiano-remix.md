@@ -1,0 +1,15 @@
+---
+title: "You Want To Bamba \"TikTok Remix\" مترجمة"
+image: "https:\/\/i.ytimg.com\/vi\/8OYqoVtOTnE\/hqdefault.jpg"
+vid_id: "8OYqoVtOTnE"
+categories: "People-Blogs"
+tags: ["#you want to bamba مترجمة","#bamba مترجمة","#tiktok bamba مترجمة"]
+date: "2022-03-02T15:34:54+03:00"
+vid_date: "2021-12-25T00:23:43Z"
+duration: "PT3M53S"
+viewcount: "1224691"
+likeCount: "23018"
+dislikeCount: ""
+channel: "Music O.G"
+---
+{% raw %}Goya Menor, Nektunez – Ameno Amapiano Remix (you want to bamba, you want to chill with the big boys) (Lyrics) مترجمة<br /><br />please like, share, subscribe and comment<br /><br />Lyrics:<br /><br />So easy (It's Nektunez yeah)<br />Hey ha!<br />Oya meno (Ameno)<br />Oyadepe kirin<br />Hekedimi yana kukirin<br />Help me tell them how the thing goes<br />How the thing goes (How de ting goes)<br /><br />Shebi meka tamoa<br />Say my pikin don go join cult<br />Ha! You want to bamba<br />You wanna chill with the big boys<br /><br />Na you dey run kiti kiti<br />You dey run kata kata<br />No fit drink water drop cup<br />Ha Hey! Shey you see how the thing goes<br /><br />Ameno, oma nare imperavi ameno<br />Dimere, dimere, mantiro<br />Mantire mo, ameno<br /><br />(Oma nare imperavi emu nare, ameno)<br />(Oma nare imperavi emu nare, ameno)<br />Ameno, ameno do re<br />Ameno dori me<br />Ameno dori me<br />Ameno do<br />Dori me reo<br />Ameno dori me<br />Ameno dori me<br /><br /><br />Okay, okay ha! This ...<br />Go school go school, you go dey press tools<br />And na the parameters you wan dey too<br />See even your papa no fit save you<br />For all the calamity wey him pikin don do<br />Men, all the niggas don dey find you<br />Because that nigga wey you peff<br />Oh boy e don puff<br />Come on lets go<br /><br />Shebi meka tamoa<br />Say my pikin don go join cult<br />You want to bamba<br />You wanna chill with the big boys<br /><br />Na you dey run kiti kiti<br />You dey run kata kata<br />No fit drink water drop cup<br />Ah hey! Shebi you see how the thing goes<br /><br />Ameno, oma nare imperavi ameno<br />Dimere, dimere, mantiro<br />Mantire mo, ameno<br /><br />(Oma nare imperavi emu nare, ameno)<br />(Oma nare imperavi emu nare, ameno)<br />Ameno, ameno do re<br />Ameno dori me<br />Ameno dori me<br />Ameno do<br />Dori me reo (Okay)<br />Ameno dori me (Okay come on lets go)<br />Ameno dori me (Ah okay)<br /><br /><br />Because you made it to the top throne<br />Let me see what my godfather can do<br />Coz He is the Father to the fatherless<br />A mother to the motherless<br />Am not to know what can do<br />We promised not to fight again<br />Not to do anything that will hurt again<br />Cos if he do na him he say e go hot again<br />Another time you go run again<br /><br />Shebi meka tamoa<br />Say my pikin don go join cult<br />You want to bamba<br />You wanna chill with the big boys<br /><br />Na you dey run kiti kiti<br />You dey run kata kata<br />No fit drink water drop cup<br />Hay ha! Shebi you see how the thing goes<br /><br />Ameno, oma nare imperavi ameno<br />Dimere, dimere, mantiro<br />Mantire mo<br /><br />#Bamba #TikTokRemix #YouWantToBomba{% endraw %}
