@@ -1,0 +1,15 @@
+---
+title: "SHOCKING DOLLAR TREE SHOP WITH ME 2022! 😱 (best kept secret items to save HUNDREDS!)"
+image: "https:\/\/i.ytimg.com\/vi\/P-F5tlxi6mM\/hqdefault.jpg"
+vid_id: "P-F5tlxi6mM"
+categories: "Howto-Style"
+tags: ["doitonadime","home organization","home organizing"]
+date: "2022-03-02T06:12:12+03:00"
+vid_date: "2022-02-28T17:52:28Z"
+duration: "PT7M31S"
+viewcount: "148417"
+likeCount: "17040"
+dislikeCount: ""
+channel: "Do It On A Dime"
+---
+{% raw %}Hey, guys!  You seem to love my Dollar Tree DIYs and shop with me videos and it's been a minute, but these are GENIUS finds you won't believe that ANYONE can do!<br /><br />#dollartree #doitonadime #organize <br /><br />➡️GET DOLLAR TREE PRODUCTS: <a rel="nofollow" target="blank" href="http://bit.ly/2CQEeH9">http://bit.ly/2CQEeH9</a><br /><br />➡️SHOP ITEMS I *LOVE* FROM VIDEOS: <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/doitonadime">https://www.amazon.com/shop/doitonadime</a><br /><br />➡️ Cricut Starter Kit: <br />Cricut Joy <a rel="nofollow" target="blank" href="https://shrsl.com/2tv2y">https://shrsl.com/2tv2y</a><br />Basic Tool Set <a rel="nofollow" target="blank" href="https://shrsl.com/2tv37">https://shrsl.com/2tv37</a><br />Vinyl Starter Kit <a rel="nofollow" target="blank" href="https://shrsl.com/2tv42">https://shrsl.com/2tv42</a><br /><br />Want to save more money when you shop?  These APPS ARE FREE! <br />➡️GET IBOTTA (Dollar Tree is on Ibotta with digital coupons): <a rel="nofollow" target="blank" href="https://ibotta.com/r/onadime">https://ibotta.com/r/onadime</a><br />➡️GET RAKUTEN- formerly Ebates- (Cash back from all your favorite stores with discounts and get $10 FREE using this link):<br /><a rel="nofollow" target="blank" href="https://www.ebates.com/r/DOITON7?eeid=35386">https://www.ebates.com/r/DOITON7?eeid=35386</a><br /><br />📝 BLOG: <a rel="nofollow" target="blank" href="http://www.doitonadimeblog.com/">http://www.doitonadimeblog.com/</a><br /><br />📘 FACEBOOK: <a rel="nofollow" target="blank" href="http://www.facebook.com/DoItOnADime">http://www.facebook.com/DoItOnADime</a><br /><br />📸 INSTAGRAM: <a rel="nofollow" target="blank" href="http://instagram.com/doitonadime/">http://instagram.com/doitonadime/</a><br /><br />❤️ TIKTOK: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@doitonadimeofficial?lang=en">https://www.tiktok.com/@doitonadimeofficial?lang=en</a><br /><br />📌 PINTEREST: <a rel="nofollow" target="blank" href="http://www.pinterest.com/doitonadime/">http://www.pinterest.com/doitonadime/</a><br /><br />Write me at:<br />Kathryn &quot;Doitonadime&quot;<br />P.O. Box 1436<br />Matthews, NC USA<br />28106-1436<br /><br />Music licensed by Epidemic Sound.<br /><br />FTC Disclaimer: This is not a sponsored video.  All opinions are genuinely my own.  This post also contains affiliate links and I earn a small commission if you make a purchase after clicking on my links.  It doesn't cost you any extra.  Thank you for your continued support to keep Do It On A Dime going!{% endraw %}
