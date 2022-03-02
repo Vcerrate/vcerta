@@ -1,0 +1,15 @@
+---
+title: "How to DOMINATE Learning a Constant Speed Prop"
+image: "https:\/\/i.ytimg.com\/vi\/-Ba_IpCyKIw\/hqdefault.jpg"
+vid_id: "-Ba_IpCyKIw"
+categories: "Education"
+tags: ["DOMINATE","Learning","Constant"]
+date: "2022-03-02T09:10:07+03:00"
+vid_date: "2021-12-13T14:00:00Z"
+duration: "PT9M35S"
+viewcount: "43564"
+likeCount: "1580"
+dislikeCount: ""
+channel: "Airplane Academy"
+---
+{% raw %}This topic has been requested a lot. Transitioning to a constant speed propeller aircraft can be intimidating at first, but once you understand the &quot;why&quot; and how it impacts each phase of flight, it doesn't have to be that complicated. In this video I wanted to try to explain how to transition from a fixed pitch propeller to a variable pitch / constant speed propeller. I hope it helps you in your aviation journey!<br /><br />Article mentioned in the video: <a rel="nofollow" target="blank" href="https://airplaneacademy.com/is-high-manifold-pressure-with-low-rpm-oversquare-bad/">https://airplaneacademy.com/is-high-manifold-pressure-with-low-rpm-oversquare-bad/</a><br /><br />Video Chapters:<br />0:00 Doesn’t Have to Be Intimidating<br />0:12 The “Why”<br />1:08 The Downside of Fixed Pitch Props<br />1:34 Differences by Phase of Flight<br />1:58 Differences - Takeoff &amp; Climb<br />2:37 How to Control Power<br />4:00 Change RPMs or Manifold Pressure First?<br />4:49 Oversquare Flying<br />6:26 Differences - Climb &amp; Cruise<br />7:36 Differences - Descent<br />8:40 Differences - Landing<br />8:52 Many Times It’s Exactly the Same!<br /><br />==<br /><br />Looking to start your aviation journey but not sure where to begin? Get the 23 resources I wish I had at the start of my aviation journey in an easy-to-reference PDF. You'll get the short answers along with links to expanded resources on every single topic. This 25-page PDF is jam-packed with value and addresses nearly all of the topics I most commonly get asked about flight training, all in one place, for free. Grab it here: <a rel="nofollow" target="blank" href="https://airplaneacademy.com/start">https://airplaneacademy.com/start</a><br /><br />Want to avoid the mistakes I've made and learn from the things that have gone right? Below you can sign up below for my free five-day email series that covers the most impactful lessons I've had as an aviator, from flying to airplane ownership:<br /><br /><a rel="nofollow" target="blank" href="https://airplaneacademy.com/join">https://airplaneacademy.com/join</a><br /><br />If you want to know more about me (Charlie), here's my bio and aviation bucket list: <a rel="nofollow" target="blank" href="https://airplaneacademy.com/charlie-gasmire">https://airplaneacademy.com/charlie-gasmire</a><br /><br />More aviation tips, tricks, and FAQ's over at <a rel="nofollow" target="blank" href="https://airplaneacademy.com">https://airplaneacademy.com</a><br /><br />Identify more general aviation aircraft faster through our airplane spotting quiz at <a rel="nofollow" target="blank" href="https://airplaneacademy.com/spot">https://airplaneacademy.com/spot</a>{% endraw %}
