@@ -1,0 +1,15 @@
+---
+title: "Borderline Favorite Person No Attachment or Love"
+image: "https:\/\/i.ytimg.com\/vi\/_a0nqj3NhFI\/hqdefault.jpg"
+vid_id: "_a0nqj3NhFI"
+categories: "Education"
+tags: ["borderline favorite person","Borderlines Favorite Person","borderline Favorite Person"]
+date: "2022-03-02T07:20:33+03:00"
+vid_date: "2018-09-09T09:12:25Z"
+duration: "PT13M27S"
+viewcount: "44613"
+likeCount: "1239"
+dislikeCount: ""
+channel: "BPD Breakup & Codependency Recovery"
+---
+{% raw %}Borderline Favorite Person No Attachment or Love <br /><br />Borderline doesn't attach or love favorite person if they are untreated and not taking personal responsibility. Many with BPD think they are wonderful to the favorite person yet these relationships like all other types of relationships are more about pw/BPD and their needs then anything else.<br /><br />Ebook: “The Shadows &amp; Echos of Self - False Self in BPD”<br /><a rel="nofollow" target="blank" href="https://ajmahari.com/p/J302/">https://ajmahari.com/p/J302/</a><br /><br />Ebook: “Punishment &amp; Revenge in BPD”<br /><a rel="nofollow" target="blank" href="https://ajmahari.com/p/EafI/">https://ajmahari.com/p/EafI/</a><br /><br />Ebook: “The Legacy of Abandonment in BPD”<br /><a rel="nofollow" target="blank" href="https://ajmahari.com/p/vV61/">https://ajmahari.com/p/vV61/</a><br /><br />Ebook: “BPD &amp; Rage”<br /><a rel="nofollow" target="blank" href="https://ajmahari.com/p/1ykL/">https://ajmahari.com/p/1ykL/</a><br /><br /><br /><a rel="nofollow" target="blank" href="https://ajmahari.ca">https://ajmahari.ca</a> - Sessions - Blog - Contact<br /><a rel="nofollow" target="blank" href="https://ajmahari.com">https://ajmahari.com</a> Books - Audios - Courses<br /><a rel="nofollow" target="blank" href="https://bpdbreakups.com">https://bpdbreakups.com</a> - Blog &amp; Podcasts<br /><br />Borderline Favorite Person No Attachment or Love <br /><br /><br /><br />Borderlines do not attach in any healthy way to their &quot;favorite person&quot; - Object Other - They live to get identity through others. The idea of a &quot;favorite person&quot; meeting the borderline's needs orE x or BPD Loved Ones need to be seen for who they are and related to in an emotionally stable, healthy, congruent age-appropriate way is absent from the beginning. <br /><br />Healthy people do not &quot;need&quot; a favorite person. People with BPD need to take more personal responsibility for meeting their own emotional needs first. If you are a borderline's favorite person, and you yourself don't have BPD why are you over-giving or rescuing? Do you realize the lack of mutuality and reciprocity in this type of friendship or relationship when it comes to you? Are you a people pleaser?<br /><br />Borderlines (if no treatment or not enough treatment) will always go to devaluation and the key repetition compulsion at the heart of BPD is relational rupture as they are still emotionally - young children in adult bodies.<br /><br />#BPDNoattachment #BPDfavoriteperson #ajmahari{% endraw %}
