@@ -1,0 +1,15 @@
+---
+title: "Gold Will Replace USD as Reserve Currency"
+image: "https:\/\/i.ytimg.com\/vi\/6DaJY9698FI\/hqdefault.jpg"
+vid_id: "6DaJY9698FI"
+categories: "Education"
+tags: ["Replace","Reserve","Currency"]
+date: "2022-03-03T05:53:46+03:00"
+vid_date: "2022-03-02T20:00:01Z"
+duration: "PT11M57S"
+viewcount: "2077"
+likeCount: "313"
+dislikeCount: ""
+channel: "Finance Uncut"
+---
+{% raw %}Is the USD about to lose its global reserve status? Is Gold going to replace it?&amp; how is Putin going to pay for the war in Ukraine? <br /><br />Gold Gold Gold baby! <br /><br />&quot;Russian Crisis to Push Gold to $100k? Here's How!&quot; video:<br /><a rel="nofollow" target="blank" href="https://youtu.be/N6_iiaBOUho">https://youtu.be/N6_iiaBOUho</a><br /><br />&quot;The Coming Global Hyperinflationary Depression: Got Gold &amp; Silver?&quot; video:<br /><a rel="nofollow" target="blank" href="https://youtu.be/7sFZUxeFaEk">https://youtu.be/7sFZUxeFaEk</a><br /><br />&quot;Russia To Launch Gold Backed Crypto Currency&quot; video:<br /><a rel="nofollow" target="blank" href="https://youtu.be/EOnpkVrJZYc">https://youtu.be/EOnpkVrJZYc</a><br /><br />&quot;Return of The Gold Standard&quot; video:<br /><a rel="nofollow" target="blank" href="https://youtu.be/WjcBcALF-4k">https://youtu.be/WjcBcALF-4k</a><br /><br />#Gold #Silver #USD #Dollar <br /><br />......<br /><br />FAIR-USE COPYRIGHT DISCLAIMER <br />Copyright Disclaimer Under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, commenting, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational, or personal use tips the balance in favor of fair use.<br /><br />-This video has no negative impact on the original works (It would actually be positive for them) <br />-This video is also for teaching and inspirational purposes. <br />-We've only used bits and pieces of videos to get the point across where necessary.<br /><br />.....<br /><br />FINANCIAL ADVICE DISCLAIMER<br />The information provided in this video is for education &amp; entertainment purposes only.<br />Nothing on this channel constitutes as financial advice.<br />The content is not intended to be a personal recommendation to buy or sell any financial instrument or product, or to adopt any investment strategy as it is not provided based on an assessment of your investing knowledge and experience, your financial situation or your investment objectives.<br />We cannot be held liable for any actions you take as a result our videos. The viewer must accept sole responsibility associated with the use of the material in this presentation, irrespective of the purpose for which such use or results are applied. The information in this presentation is no substitute for financial advice. <br />All investors should seek advice from a licensed financial adviser having regard to your own objectives, financial situation and needs.{% endraw %}
