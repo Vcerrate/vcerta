@@ -1,0 +1,15 @@
+---
+title: "Which Countries Can Defend Against Nuclear Missiles?"
+image: "https:\/\/i.ytimg.com\/vi\/bHN3XoKcfBo\/hqdefault.jpg"
+vid_id: "bHN3XoKcfBo"
+categories: "News-Politics"
+tags: ["News","current events","missile defense"]
+date: "2022-03-03T08:09:17+03:00"
+vid_date: "2016-06-09T12:00:30Z"
+duration: "PT4M1S"
+viewcount: "1982738"
+likeCount: "19571"
+dislikeCount: ""
+channel: "NowThis World"
+---
+{% raw %}What Countries Have Nuclear Weapons? <a rel="nofollow" target="blank" href="http://bit.ly/25Nt9ze">http://bit.ly/25Nt9ze</a> <br />» Subscribe to NowThis World: <a rel="nofollow" target="blank" href="http://go.nowth.is/World_Subscribe">http://go.nowth.is/World_Subscribe</a><br /><br />The U.S. is one of a few countries with the technology and money to enact a missile defense system. What other countries have this protection?<br /><br />Learn More:<br />BBC: US activates $800m missile shield base in Romania<br /><a rel="nofollow" target="blank" href="http://www.bbc.com/news/world-europe-36272686">http://www.bbc.com/news/world-europe-36272686</a> <br /><br />Politico: Missile defense debate reignites<br /><a rel="nofollow" target="blank" href="http://www.politico.com/story/2012/04/missile-defense-debate-reignites-075090">http://www.politico.com/story/2012/04/missile-defense-debate-reignites-075090</a> <br /><br />LA Times: $40-Billion Missile Defense System Proves Unreliable<br /><a rel="nofollow" target="blank" href="http://www.latimes.com/nation/la-na-missile-defense-20140615-story.html">http://www.latimes.com/nation/la-na-missile-defense-20140615-story.html</a> <br /><br />Arms Control Association: Worldwide Ballistic Missile Inventories<br /><a rel="nofollow" target="blank" href="https://www.armscontrol.org/factsheets/missiles">https://www.armscontrol.org/factsheets/missiles</a> <br /><br />Music Track Courtesy of APM Music: &quot;Voyage&quot;<br /><br />Photos by U.S. Navy<br />_<br /><br />More from NowThis: <br /><br />» Subscribe to NowThis News: <a rel="nofollow" target="blank" href="http://go.nowth.is/News_Subscribe">http://go.nowth.is/News_Subscribe</a><br /><br />NowThis World is dedicated to bringing you topical explainers about the world around you. Each week we’ll be exploring current stories in international news, by examining the facts, providing historical context, and outlining the key players involved. We’ll also highlight powerful countries, ideologies, influential leaders, and ongoing global conflicts that are shaping the current landscape of the international community across the globe today. <br /> <br />Like NowThis World on Facebook: <a rel="nofollow" target="blank" href="https://go.nowth.is/World_Facebook">https://go.nowth.is/World_Facebook</a><br /><br /><a rel="nofollow" target="blank" href="http://www.youtube.com/nowthisworld">http://www.youtube.com/nowthisworld</a><br /><br />Special thanks to Jules Suzdaltsev for hosting Seeker Daily!<br />Check Jules out on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/jules_su">https://twitter.com/jules_su</a>{% endraw %}
