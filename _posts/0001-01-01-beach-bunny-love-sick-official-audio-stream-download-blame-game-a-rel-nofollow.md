@@ -1,0 +1,15 @@
+---
+title: "Beach Bunny - Love Sick (Official Audio)"
+image: "https:\/\/i.ytimg.com\/vi\/nKrSndC-nKY\/hqdefault.jpg"
+vid_id: "nKrSndC-nKY"
+categories: "Music"
+tags: ["Beach Bunny","Blame Game","Indie"]
+date: "2022-03-03T09:27:56+03:00"
+vid_date: "2021-01-15T05:00:18Z"
+duration: "PT3M39S"
+viewcount: "295301"
+likeCount: "10573"
+dislikeCount: ""
+channel: "Beach Bunny"
+---
+{% raw %}Stream/Download Blame Game: <a rel="nofollow" target="blank" href="https://smarturl.it/BBBlameGame">https://smarturl.it/BBBlameGame</a><br />Blame Game Vinyl + Merch: <a rel="nofollow" target="blank" href="https://smarturl.it/BeachBunnyShop">https://smarturl.it/BeachBunnyShop</a><br />Subscribe to Beach Bunny on YouTube: <a rel="nofollow" target="blank" href="https://smarturl.it/BBYouTubeSubscribe">https://smarturl.it/BBYouTubeSubscribe</a><br />Listen on Spotify: <a rel="nofollow" target="blank" href="https://smarturl.it/BeachBunnySpotify">https://smarturl.it/BeachBunnySpotify</a><br />Listen on Apple Music: <a rel="nofollow" target="blank" href="https://smarturl.it/BeachBunnyApple">https://smarturl.it/BeachBunnyApple</a><br /><br />Follow Beach Bunny<br />Facebook: <a rel="nofollow" target="blank" href="https://smarturl.it/BeachBunnyFacebook">https://smarturl.it/BeachBunnyFacebook</a><br />Twitter: <a rel="nofollow" target="blank" href="https://smarturl.it/BeachBunnyTwitter">https://smarturl.it/BeachBunnyTwitter</a><br />Instagram: <a rel="nofollow" target="blank" href="https://smarturl.it/BeachBunnyInstagram">https://smarturl.it/BeachBunnyInstagram</a><br />Listen to Beach Bunny: <a rel="nofollow" target="blank" href="https://smarturl.it/BeachBunnyStream">https://smarturl.it/BeachBunnyStream</a><br /><br />&quot;Love Sick&quot; Lyrics: <br /><br />Normally I start to panic<br />Get too close I cut apart the strings<br />Typically, I break bad habits<br />But with you it happened naturally <br />Told myself that love is violent<br />Feelings fade and bitterness proceeds<br />When you’re closer I don’t mind it<br />Secretly I want you close to me<br /><br />Sick of love <br />I’m tired of the bullshit<br />Fed up with subtracting names <br />Need someone<br />That isn’t an equation <br />Only adding up to pain<br />But you’re so – <br /><br />Hiding from my own emotions<br />Terrified of letting someone in <br />Just because I’m over closure <br />Doesn’t mean I wanna start again<br />Trying to maintain composure<br />Let’s pretend you’re only just a friend<br />But if you leaned a little closer<br />I think you could fall into my head <br /><br />Sick of love <br />I’m tired of the bullshit<br />Fed up with subtracting names <br />Need someone<br />That isn’t an equation <br />Only adding up to pain<br />But you’re so – <br /><br />Sometimes the doubt outways the feelings<br />I’m never sure who I should trust<br />I'm getting tired of breaking and healing<br />I'm getting sick of patching myself up<br />But you got me falling off through the ceiling<br />I get so dizzy when our lips touch<br />I wanna run away from my feelings<br /> I can’t remember which way is up{% endraw %}
