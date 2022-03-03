@@ -1,0 +1,15 @@
+---
+title: "Easy Cute Thank You Note for Valentines Day | DIY Thank You Note for Loved Ones  #valentinesday"
+image: "https:\/\/i.ytimg.com\/vi\/Gk9xH8QS-vo\/hqdefault.jpg"
+vid_id: "Gk9xH8QS-vo"
+categories: "Howto-Style"
+tags: ["letter folding origami","diy pull tab origami card","diy pull tab origami easy"]
+date: "2022-03-04T01:27:39+03:00"
+vid_date: "2018-09-03T15:50:52Z"
+duration: "PT2M19S"
+viewcount: "1331100"
+likeCount: "10080"
+dislikeCount: ""
+channel: "Noreva Projects"
+---
+{% raw %}Easy Cute Thank You Cards ( Pull me Card ) <br /><a rel="nofollow" target="blank" href="https://youtu.be/vUbhzCx6kLs">https://youtu.be/vUbhzCx6kLs</a> <br /><br />Easy Thank You Envelope Card : <a rel="nofollow" target="blank" href="https://youtu.be/1aH5JAkHuPE">https://youtu.be/1aH5JAkHuPE</a> <br /><br />How to fold a cute mother's  day thank you note | pull tab letter folding origami | Pull tab envelope | thank you letter folding | cute notes | mini letter | note folding technique | folded notes | how to fold an envelope | diy envelope | how to fold notes | letter folding | paper crafts | school crafts | origami easy | middle school note folding techniques | how to fold a note envelope | fun way to fold a note | turn a note into envelope | teachers day thank you note  | teachers day card | teachers day thank you note | teachers day special <br /><br />#brothersday #origamienvelope  #pulltaborigami #teachersdaycard  <br /><br />teachers day card making ideas for kids | diy cards for teachers easy | unique teachers day card | thank you cards for teachers | diy teachers day card making ideas | handmade pinwheel card | card crafts ideas | handmade crafts 2020 | teachers day crafts 2020 | most unique card teachers day card | noreva projects  | kids school competition ideas | special card for teachers day | teachers day card tutorial | pinwheel fancy fold card | pinwheel card tutorial easy | pinwheel envelope card | folded card | thank you card | birthday card | easy paper crafts for kids | diy back to school crafts | gift wrapping | pinwheel fold card diy envelope | envelope making | greeting card ideas for teachers day | paper gift envelope made with scrapbook  | paper crafts for kids | easy craft for teachers day | easy crafts for kids on teachers day | thank you cards for teachers day easy | cards handmade | easy  cards handmade | diy teachers day gift ideas for kids  | diy teachers day card | handmade teachers day gift ideas | teachers day card writing | teachers day greeting card | teachers day special | handmade cards for teachers | teachers day card easy and simple | teachers day card easy | teachers day crafts for preschooler | teachers day craft work | teachers day craft gift | teachers day craft card |teachers day creative card | teachers day creative ideas | Valentine's day cute note | Valentine's day love note | diy Valentine's day love note | diy origami love note <br /><br />Thanks for watching !<br /><br />Subscribe to our channel for more easy unique ideas :){% endraw %}
