@@ -1,0 +1,15 @@
+---
+title: "Mariah Carey - Breakdown ft. Krayzie Bone, Wish Bone"
+image: "https:\/\/i.ytimg.com\/vi\/bC7V9dn1rC8\/hqdefault.jpg"
+vid_id: "bC7V9dn1rC8"
+categories: "Music"
+tags: ["breakdown mariah carey and bone thugs","mariah carey breakdown","mariah carey"]
+date: "2022-03-03T07:17:30+03:00"
+vid_date: "2009-11-24T13:05:53Z"
+duration: "PT4M34S"
+viewcount: "41816898"
+likeCount: "276579"
+dislikeCount: ""
+channel: "MariahCareyVEVO"
+---
+{% raw %}Mariah Carey's official music video for &quot;Breakdown&quot;<br />Listen to Mariah Carey: <a rel="nofollow" target="blank" href="https://MariahCarey.lnk.to/listenYD">https://MariahCarey.lnk.to/listenYD</a> <br />Subscribe to the official Mariah Carey YouTube channel: <a rel="nofollow" target="blank" href="https://MariahCarey.lnk.to/subscribe_YD">https://MariahCarey.lnk.to/subscribe_YD</a><br /> <br />Watch more Mariah Carey videos: <a rel="nofollow" target="blank" href="https://MariahCarey.lnk.to/listen_YC/youtube">https://MariahCarey.lnk.to/listen_YC/youtube</a><br /> <br />Follow Mariah Carey<br />Facebook: <a rel="nofollow" target="blank" href="https://MariahCarey.lnk.to/followFI">https://MariahCarey.lnk.to/followFI</a><br />Instagram: <a rel="nofollow" target="blank" href="https://MariahCarey.lnk.to/followII">https://MariahCarey.lnk.to/followII</a><br />Twitter: <a rel="nofollow" target="blank" href="https://MariahCarey.lnk.to/followTI">https://MariahCarey.lnk.to/followTI</a><br />Website: <a rel="nofollow" target="blank" href="https://MariahCarey.lnk.to/followWI">https://MariahCarey.lnk.to/followWI</a><br />YouTube: <a rel="nofollow" target="blank" href="https://MariahCarey.lnk.to/subscribeYD">https://MariahCarey.lnk.to/subscribeYD</a><br />Spotify: <a rel="nofollow" target="blank" href="https://MariahCarey.lnk.to/followSI">https://MariahCarey.lnk.to/followSI</a><br /><br />#MariahCarey #Breakdown #OfficialVideo #HD #Remastered<br />---------<br /><br />Lyrics:<br /><br />Break, break down, steady breakin' me on down<br /><br />You called yesterday to basically say<br />That you care for me but that you're just not in love<br />Immediately I pretended to be feeling similarly<br />And led you to believe I was O.K.<br />To just walk away from the one thing<br />That's unyielding and sacred to me<br /><br />Well I guess I'm trying to be nonchalant about it<br />And I'm going to extremes to prove I'm fine without you<br />But in reality I'm slowly losing my my mind<br />Underneath the guise of a smile gradually I'm dying inside<br />Friends ask me how I feel and I lie convincingly<br />'Cause I don't want to reveal the fact that I'm suffering<br />So I wear my disguise 'til I go home at night<br />And turn down all the lights and then break down and cry<br /><br />Yeah, c'mon<br />Yeah, c'mon, c'mon<br />Break break down<br />Gotta get control<br />Roll roll roll along<br />Steady breakin' me on down<br />Roll roll roll along<br />Break break down<br />Gotta get control<br />Roll roll roll along<br />Steady breakin' me on down<br />Roll roll along{% endraw %}
