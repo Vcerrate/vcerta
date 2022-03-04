@@ -1,0 +1,15 @@
+---
+title: "UNBELIEVABLE Satellite Video Just Revealed This.."
+image: "https:\/\/i.ytimg.com\/vi\/R81VRekviHM\/hqdefault.jpg"
+vid_id: "R81VRekviHM"
+categories: "Entertainment"
+tags: ["unexplained","strange","UFO"]
+date: "2022-03-04T21:09:26+03:00"
+vid_date: "2022-03-03T06:02:04Z"
+duration: "PT12M17S"
+viewcount: "179092"
+likeCount: "17329"
+dislikeCount: ""
+channel: "secureteam10"
+---
+{% raw %}🔥 Merch Shop: <a rel="nofollow" target="blank" href="https://secureteamtees.com">https://secureteamtees.com</a><br />➨ Subscribe for more &amp; Contact me below<br /><br />If you enjoy my work &amp; dedication to this topic and would like to support, you can do so securely with our Patreon page, PayPal, or Through Youtube's Membership &quot;Join&quot; Button under my videos. Much appreciation as always.<br /><br />➨Our Patreon Page: <a rel="nofollow" target="blank" href="http://patreon.com/TheSecureteam">http://patreon.com/TheSecureteam</a><br />➨Donate directly via Paypal: <a rel="nofollow" target="blank" href="https://bit.ly/3JB4HdV">https://bit.ly/3JB4HdV</a><br />➨Join and get Perks here on Youtube: <a rel="nofollow" target="blank" href="https://bit.ly/3v7Ycev">https://bit.ly/3v7Ycev</a><br /><br />Follow Me Below for Extra Content &amp; Video Updates:<br />➨Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/secureteamtyler">http://instagram.com/secureteamtyler</a><br />➨Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/SecureTeam10">http://twitter.com/SecureTeam10</a><br />➨Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/Secureteam10">http://facebook.com/Secureteam10</a><br /><br />Contact me / Submit UFO footage:<br /><br />Note: Email usually shrinks/downgrades video quality when sent, so I recommend If your UFO video is too large or is likely to lose resolution, the best way is to simply upload it to Youtube and email me the video link.<br /><br />➨Send UFO Vids/Pics to: SecureteamNews@gmail.com<br />Please put &quot;UFO Footage&quot; or &quot;UFO News/Info&quot; as Subject of email. - Note: This is the only email checked/used for viewer UFO submissions. Because I get 100's of emails per day, it may take some time for me to get to yours, so thanks for your patience &amp; messages!<br />-------------------------------------------<br />➨For Business or Sponsorship inquiries Only: <br />Contact Tyler at: SecureteamBusiness@gmail.com<br />If possible please put &quot;Business&quot; or &quot;Sponsorship&quot; as the email Subject - as this helps for faster responses on my end, and I'll get back to you within 24-48 hours. Thanks!<br />-------------------------------------------<br />➨PO BOX For Viewer-Mail &amp; Packages: <br />I Love getting cool stuff from you guys! Just ship it out to my Box below and I'd love to feature some of it in future videos!<br /><br />Secureteam<br />P.O. BOX 671<br />101 W High St.<br />Mount Vernon, OH 43050<br />United States<br /><br />#Secureteam10{% endraw %}
