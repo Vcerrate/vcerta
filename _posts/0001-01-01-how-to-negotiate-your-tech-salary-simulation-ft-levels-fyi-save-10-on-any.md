@@ -1,0 +1,15 @@
+---
+title: "How to Negotiate Your Tech Salary Simulation ft. Levels.fyi"
+image: "https:\/\/i.ytimg.com\/vi\/fyn0CKPuPlA\/hqdefault.jpg"
+vid_id: "fyn0CKPuPlA"
+categories: "Science-Technology"
+tags: ["Negotiate","Salary","Simulation"]
+date: "2022-03-04T07:46:52+03:00"
+vid_date: "2020-09-02T14:15:02Z"
+duration: "PT34M25S"
+viewcount: "190184"
+likeCount: "5896"
+dislikeCount: ""
+channel: "Exponent"
+---
+{% raw %}Save 10% on any Exponent plan or 1:1 expert coaching session through December 24: <a rel="nofollow" target="blank" href="https://tryexponent.com/?ref=HOLIDAY">https://tryexponent.com/?ref=HOLIDAY</a><br /><br />Don't leave your tech career to chance. Sign up for Exponent's interview courses today: <a rel="nofollow" target="blank" href="https://bit.ly/2P5S43p">https://bit.ly/2P5S43p</a><br /><br />Get paid more with levels.fyi today: <a rel="nofollow" target="blank" href="https://bit.ly/34vDnfB">https://bit.ly/34vDnfB</a><br /><br />Watch our mock negotiation to effectively get a higher salary in your interview process. Stephen asks Zaheer (Levels.fyi co-founder) to navigate three negotiation scenarios that are common to your recruiting process. These tips are critical to landing a higher compensation.<br /><br />Chapters -<br />0:00 - Introduction<br />1:58 - Scenario 1: Compensation Expectations<br />8:23 - Scenario 2: Exploding Offers<br />19:30 - Scenario 3: Negotiating the Offer<br />29:30 - Tips &amp; Tricks<br /><br />👉 Subscribe to our channel: <a rel="nofollow" target="blank" href="http://bit.ly/exponentyt">http://bit.ly/exponentyt</a><br />📧 Sign up for our email newsletter with PM interview lessons: <a rel="nofollow" target="blank" href="http://bit.ly/exponentpm">http://bit.ly/exponentpm</a><br />🕊️ Follow us on Twitter: <a rel="nofollow" target="blank" href="http://bit.ly/exptweet">http://bit.ly/exptweet</a><br />💙 Like us on Facebook for special discounts:  <a rel="nofollow" target="blank" href="http://bit.ly/exponentfb">http://bit.ly/exponentfb</a><br />📷 Check us out on Instagram: <a rel="nofollow" target="blank" href="http://bit.ly/exponentig">http://bit.ly/exponentig</a><br /><br />ABOUT US: <br />Did you enjoy this negotiation simulation? Exponent is an online community, course, and coaching platform to help you ace your upcoming PM interview. Exponent has helped people land their dream careers at companies like Google, Facebook, Microsoft, Amazon, and high-growth startups. Exponent is currently licensed by Stanford, Yale, and others. <br /><br />Our courses include interview lessons, questions, and complete answers with video walkthroughs. Get access to hours of real interview videos, where we analyze what went right or wrong, as well as our 1000+ community of expert coaches and industry professionals. <br /><br />Want to get great compensation data? Visit levels.fyi to get real compensation data: <a rel="nofollow" target="blank" href="https://bit.ly/34vDnfB">https://bit.ly/34vDnfB</a><br /><br />#negotiation #productmanagement #tech #levels #productmanager #entrepreneurship #product #software #exponent #engineering #google #facebook #startup{% endraw %}
