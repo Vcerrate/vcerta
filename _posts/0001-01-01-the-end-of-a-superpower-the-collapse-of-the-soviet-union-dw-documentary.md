@@ -1,0 +1,15 @@
+---
+title: "The end of a superpower - The collapse of the Soviet Union | DW Documentary"
+image: "https:\/\/i.ytimg.com\/vi\/JsPHKDuP-Hk\/hqdefault.jpg"
+vid_id: "JsPHKDuP-Hk"
+categories: "Education"
+tags: ["Documentary","Documentaries","documentaries"]
+date: "2022-03-04T08:02:29+03:00"
+vid_date: "2022-03-03T20:00:04Z"
+duration: "PT53M25S"
+viewcount: "140779"
+likeCount: "2775"
+dislikeCount: ""
+channel: "DW Documentary"
+---
+{% raw %}Russian President Vladimir Putin described the collapse of the Soviet Union as &quot;the greatest geopolitical catastrophe of the 20th century.&quot; This documentary from 2021 shows the path Russian foreign policy has followed under Putin. <br /><br />[This documentary was originally released in 2021. In February 2022, Russian President Vladimir Putin ordered the invasion of Ukraine.]<br /><br />On December 25, 1991, the Soviet Union collapsed. Along with it came hope for the end of the Cold War, for independence and freedom for the former Soviet republics. But for many it also brought poverty and war. What remains of the dreams of that time? The documentary includes contemporary witnesses and politicians of the decisive years and shows what has become of the legacy of a world power.<br /><br />#documentary #dwdocumentary<br />______<br /><br />DW Documentary gives you knowledge beyond the headlines. Watch top documentaries from German broadcasters and international production companies. Meet intriguing people, travel to distant lands, get a look behind the complexities of daily life and build a deeper understanding of current affairs and global events. Subscribe and explore the world around you with DW Documentary.<br /><br />Subscribe to: <br />⮞ DW Documentary (English): <a rel="nofollow" target="blank" href="https://www.youtube.com/dwdocumentary">https://www.youtube.com/dwdocumentary</a><br />⮞ DW Documental (Spanish): <a rel="nofollow" target="blank" href="https://www.youtube.com/dwdocumental">https://www.youtube.com/dwdocumental</a><br />⮞ DW Documentary وثائقية دي دبليو (Arabic): <a rel="nofollow" target="blank" href="https://www.youtube.com/dwdocarabia">https://www.youtube.com/dwdocarabia</a><br />⮞ DW Doku (German): <a rel="nofollow" target="blank" href="https://www.youtube.com/dwdoku">https://www.youtube.com/dwdoku</a><br />⮞ DW Documentary हिन्दी (Hindi): <a rel="nofollow" target="blank" href="https://www.youtube.com/dwdochindi">https://www.youtube.com/dwdochindi</a><br /><br />For more visit: <a rel="nofollow" target="blank" href="http://www.dw.com/en/tv/docfilm/s-3610">http://www.dw.com/en/tv/docfilm/s-3610</a><br />Follow DW Documentary on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/dwdocumentary/">https://www.instagram.com/dwdocumentary/</a><br />Follow DW Documental on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/dwdocumental">https://www.facebook.com/dwdocumental</a><br /><br />We kindly ask viewers to read and stick to the DW netiquette policy on our channel: <a rel="nofollow" target="blank" href="https://p.dw.com/p/MF1G">https://p.dw.com/p/MF1G</a>{% endraw %}
