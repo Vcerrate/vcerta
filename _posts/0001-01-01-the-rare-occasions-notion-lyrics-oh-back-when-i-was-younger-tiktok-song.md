@@ -1,0 +1,15 @@
+---
+title: "The Rare Occasions - Notion (Lyrics) oh back when i was younger tiktok song"
+image: "https:\/\/i.ytimg.com\/vi\/rdwJDMy6b-g\/hqdefault.jpg"
+vid_id: "rdwJDMy6b-g"
+categories: "Music"
+tags: ["tiktok","tiktok songs","oh back when i was younger tiktok song"]
+date: "2022-03-04T09:47:14+03:00"
+vid_date: "2022-02-02T17:59:30Z"
+duration: "PT3M16S"
+viewcount: "580042"
+likeCount: "20743"
+dislikeCount: ""
+channel: "TikTok Songs"
+---
+{% raw %}Stream The Rare Occasions - Notion (Lyrics) oh back when i was younger tiktok song : <a rel="nofollow" target="blank" href="https://open.spotify.com/playlist/0xF5l1EUXHQUG8jryaJrfN?si=Q3UIe1cZSEOFh8HBl7cqZw">https://open.spotify.com/playlist/0xF5l1EUXHQUG8jryaJrfN?si=Q3UIe1cZSEOFh8HBl7cqZw</a><br /><br />⭐Follow Me at : <a rel="nofollow" target="blank" href="https://www.instagram.com/davcev">https://www.instagram.com/davcev</a><br />⭐Follow and Stream On Spotify : <a rel="nofollow" target="blank" href="https://open.spotify.com/playlist/0xF5l1EUXHQUG8jryaJrfN?si=Q3UIe1cZSEOFh8HBl7cqZw">https://open.spotify.com/playlist/0xF5l1EUXHQUG8jryaJrfN?si=Q3UIe1cZSEOFh8HBl7cqZw</a><br />⭐Stream Song on Spotify : <a rel="nofollow" target="blank" href="https://open.spotify.com/track/0sTlGEld0h8kIPZaKDYUf4?si=edcb8434308d4830">https://open.spotify.com/track/0sTlGEld0h8kIPZaKDYUf4?si=edcb8434308d4830</a><br />🔺Background Particles by AA VFX: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=chRn4itxI_8">https://www.youtube.com/watch?v=chRn4itxI_8</a><br />🔺Picture : <a rel="nofollow" target="blank" href="https://unsplash.com/">https://unsplash.com/</a><br />#ohbackwheniwasyounger #therareoccasionsnotion #notionlyrics #tiktok #tiktoksongs<br /><br />Follow TheRareOcassions:<br /><a rel="nofollow" target="blank" href="https://linktr.ee/therareoccasions">https://linktr.ee/therareoccasions</a><br /><br />Lyrics:<br />Sure it's a calming notion, perpetual in motion<br />But I don't need the comfort of any lies<br />For I have seen the ending and there is no ascending<br />Rise<br />Oh, back when I was younger, was told by other youngsters<br />That my end will be torture beneath the earth<br />'Cause I don't see what they see, when death is staring at me<br />I see a window, a limit, to live it, or not at all<br />If you could pull the lever to carry on forever<br />Would your life even matter anymore?<br />Sure it's a calming notion, perpetual in motion<br />But it's not what you signed up for<br />I'm sure there won't always be sunshine<br />But there's this momentary beam of light<br />You don't have to wait those salty decades<br />To get through the gate, it's all in front of your face<br />I'm sure there won't always be sunshine<br />I'm sure there won't always be sunshine<br />But there's this momentary beam of light<br />I could cross the ocean in a fit of devotion<br />For every shining second, this fragile body beckons<br />You think you're owed it better believing ancient letters<br />Sure it's a calming notion, but it's a lie<br /><br />Contact me: davcevs@gmail.com or Instagram.com/Davcev{% endraw %}
