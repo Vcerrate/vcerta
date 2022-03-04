@@ -1,0 +1,15 @@
+---
+title: "Biden Says It's Time for Americans to Return to Offices"
+image: "https:\/\/i.ytimg.com\/vi\/bYZVdJ0de40\/hqdefault.jpg"
+vid_id: "bYZVdJ0de40"
+categories: "News-Politics"
+tags: ["Biden","Americans","Return"]
+date: "2022-03-04T22:52:02+03:00"
+vid_date: "2022-03-02T03:33:50Z"
+duration: "PT4M32S"
+viewcount: "2469"
+likeCount: "17"
+dislikeCount: ""
+channel: "Bloomberg Quicktake: Now"
+---
+{% raw %}President Joe Biden on Tuesday sought to signal to the nation that it’s time to resume normal social and work life after the pandemic. He said Americans should return to offices after working at home during his first State of the Union Address to Congress in Washington, D.C.<br /><br />“It’s time for Americans to get back to work and fill our great downtowns again,” he said. “People working from home can feel safe to begin to return to the office.”<br /><br />Pills to treat Covid-19 will soon be available on-demand at any pharmacy immediately after testing positive, Biden said. Pfizer Inc. is working to ramp up production of its pill, which has been shown to be highly effective at preventing severe disease and death in clinical trials, and is aiming to deliver a million courses of the treatment this month and over two million in April, Biden said.<br /><br />He also called on Congress to dedicate new funding for Covid-19 initiatives, including efforts to prepare for the arrival of any new variant.<br /><br />Subscribe to our YouTube channel: <a rel="nofollow" target="blank" href="https://bit.ly/2TwO8Gm">https://bit.ly/2TwO8Gm</a><br />Subscribe to our newest channel Quicktake Explained: <a rel="nofollow" target="blank" href="https://bit.ly/3iERrup">https://bit.ly/3iERrup</a><br /><br />Bloomberg Quicktake brings you live global news and original shows spanning business, technology, politics and culture. Make sense of the stories changing your business and your world.<br /><br />To watch complete coverage on Bloomberg Quicktake 24/7, visit <a rel="nofollow" target="blank" href="http://www.bloomberg.com/qt/live,">http://www.bloomberg.com/qt/live,</a> or watch on Apple TV, Roku, Samsung Smart TV, Fire TV and Android TV on the Bloomberg app.<br /><br />Have a story to tell? Fill out this survey for a chance to have it featured on Bloomberg Quicktake: <a rel="nofollow" target="blank" href="https://cor.us/surveys/27AF30">https://cor.us/surveys/27AF30</a><br /><br />Connect with us on…<br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/Bloomberg">https://www.youtube.com/user/Bloomberg</a><br />Breaking News on YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/BloombergQuickTakeNews">https://www.youtube.com/c/BloombergQuickTakeNews</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/quicktake">https://twitter.com/quicktake</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/quicktake">https://www.facebook.com/quicktake</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/quicktake">https://www.instagram.com/quicktake</a>{% endraw %}
