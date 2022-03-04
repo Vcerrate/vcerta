@@ -1,0 +1,15 @@
+---
+title: "7 Hours of Insane Plane Spotting at Skiathos, the Second St Maarten! Low landings and Jet blasts!"
+image: "https:\/\/i.ytimg.com\/vi\/nxF79HLt2Pg\/hqdefault.jpg"
+vid_id: "nxF79HLt2Pg"
+categories: "Entertainment"
+tags: ["7 hours plane spotting aviation","1 hour insane plane spotting skiathos second st maarten","low landing"]
+date: "2022-03-04T18:44:04+03:00"
+vid_date: "2013-09-03T18:28:40Z"
+duration: "PT7H"
+viewcount: "11655211"
+likeCount: "17367"
+dislikeCount: ""
+channel: "GreatFlyer"
+---
+{% raw %}Subscribe here ➤<a rel="nofollow" target="blank" href="http://goo.gl/2tM0Yd">http://goo.gl/2tM0Yd</a> How much aviation can you stand?<br />After last year's tremendous success, a 1-hour spotting video at Skiathos, I had received endless requests for more! This year, I had set an overwhelming goal to make a 2 hour video, but I was absolutely stunned when I found out that I had recorded 111 GIGABYTES of video! <br />So, there you go aviation maniacs, SEVEN HOURS of insane plane spotting at Skiathos, the second St Maarten! <br /><br />➤ OFFICIAL INSTAGRAM: <a rel="nofollow" target="blank" href="https://instagram.com/greatflyer_official/">https://instagram.com/greatflyer_official/</a><br />@greatflyer_official<br /><br />➤Facebook page for more: <a rel="nofollow" target="blank" href="https://www.facebook.com/thegreatflyer">https://www.facebook.com/thegreatflyer</a><br /><br />If you'd like to see more similar videos, then please make sure you click on the &quot;subscribe&quot; button. It only takes a single moment, though it is extremely helpful! Just click here: <a rel="nofollow" target="blank" href="http://tinyurl.com/ns9sqek">http://tinyurl.com/ns9sqek</a><br /><br />This a channel devoted to aviation, where you will find tons of HD aviation footage for you to enjoy, for absolutely free!<br /><br />You can watch similar videos to this one in this playlist: <a rel="nofollow" target="blank" href="http://tinyurl.com/oltsnwn">http://tinyurl.com/oltsnwn</a><br /><br />Watch a compilation of amazing classic 737s landing at Skiathos here: <a rel="nofollow" target="blank" href="http://tinyurl.com/pnmp9zq">http://tinyurl.com/pnmp9zq</a><br />Watch a passenger flight from Larnaca to Skiathos here: <a rel="nofollow" target="blank" href="http://tinyurl.com/nkrrw5e">http://tinyurl.com/nkrrw5e</a><br />Watch an incredible video dedicated to Cyprus Airways here: <a rel="nofollow" target="blank" href="http://tinyurl.com/qxtsff3">http://tinyurl.com/qxtsff3</a><br /><br />Make sure to...<br />Like my page on Facebook! <a rel="nofollow" target="blank" href="http://tinyurl.com/p7p2ydb">http://tinyurl.com/p7p2ydb</a><br />Join my group on Facebook! <a rel="nofollow" target="blank" href="http://tinyurl.com/ngc4d2e">http://tinyurl.com/ngc4d2e</a><br /><br />Camera used:<br />- Panasonic HDC SD-90<br /><br />Microphone used:<br />- Rode Videomic Pro @ 0 dB, High Pass Filter OFF<br />- Micover Slipover for Rode Videmic Pro Microphone Windscreen<br /><br />Tripod used:<br />- Velbon DV-7000<br /><br />Editing Software:<br />-Sony Vegas Pro 12{% endraw %}
