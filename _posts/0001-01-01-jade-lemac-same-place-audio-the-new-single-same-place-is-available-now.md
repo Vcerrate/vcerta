@@ -1,0 +1,15 @@
+---
+title: "Jade LeMac - Same Place (Audio)"
+image: "https:\/\/i.ytimg.com\/vi\/kDmkjxBZ8FQ\/hqdefault.jpg"
+vid_id: "kDmkjxBZ8FQ"
+categories: "Music"
+tags: ["LeMac","Place","(Audio)"]
+date: "2022-03-04T09:00:02+03:00"
+vid_date: "2022-03-04T05:00:26Z"
+duration: "PT3M42S"
+viewcount: "260"
+likeCount: "127"
+dislikeCount: ""
+channel: "Jade LeMac"
+---
+{% raw %}The new single 'Same Place,' is available now:<br />Spotify: <a rel="nofollow" target="blank" href="https://smarturl.it/JLMxSamePlace">https://smarturl.it/JLMxSamePlace</a><br />Apple Music: <a rel="nofollow" target="blank" href="https://smarturl.it/JLMxSamePlace">https://smarturl.it/JLMxSamePlace</a><br />iTunes: <a rel="nofollow" target="blank" href="https://smarturl.it/JLMxSamePlace">https://smarturl.it/JLMxSamePlace</a><br />Amazon: <a rel="nofollow" target="blank" href="https://smarturl.it/JLMxSamePlace">https://smarturl.it/JLMxSamePlace</a><br /> <br />Follow Jade LeMac:<br />www.instagram.com/jadelemac/<br />www.tiktok.com/@jadelemac?lan...<br />www.facebook.com/JadeLeMacMusic<br />www.jadelemac.com/<br /> <br />#JadeLeMac #SamePlace <br /> <br />LYRICS:<br />my mind has a place<br />where it goes when i don’t feel safe <br />it pictures us two <br />at the alter saying “i do”<br /><br />and i know and i know and i know<br />it’s control it’s control it’s controlling me<br />wont let go wont let go wont let go<br />cause i love this feeling<br /><br />now it makes sense to me<br />why we both ended up in the same place<br />and it all makes sense to me <br />why all that i wanted was your name<br />and it all makes sense to me <br />now that you’re in my life<br />now that you’re all i see<br />now that i call you mine<br />it all makes sense to me <br />why we both ended up in the same place<br /><br />your arms are my home<br />in the night time when i feel alone<br />your lips are a cure<br />for the pain that my heart endures <br /><br />and i know and i know and i know<br />it’s control it’s control it’s controlling me<br />wont let go wont let go wont let go<br />cause i love this feeling<br /><br />now it makes sense to me<br />why we both ended up in the same place<br />and it all makes sense to me <br />why all that i wanted was your name<br />and it all makes sense to me <br />now that you’re in my life<br />now that you’re all i see<br />now that i call you mine<br />it all makes sense to me <br />why we both ended up in the same place<br /><br />if i had a single chance <br />i wouldn’t change a thing<br />cause all i know is without you<br />i’d be missing something <br />if you didn’t walk on by<br />how would i have known<br />what it’s like to be loved by<br />and angel of my own<br /><br />now it makes sense to me<br />why we both ended up in the same place<br />and it all makes sense to me <br />why all that i wanted was your name<br />and it all makes sense to me <br />now that you’re in my life<br />now that you’re all i see<br />now that i call you mine<br />it all makes sense to me <br />why we both ended up in the same place<br /><br /> <br />Released by:<br />JVP Sounds / Jade LeMac<br />Release date:<br />04 Mar 2022{% endraw %}
