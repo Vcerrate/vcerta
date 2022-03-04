@@ -1,0 +1,15 @@
+---
+title: "A Boogie Wit da Hoodie - Hit Different (feat. B-Lovee) [Official Music Video]"
+image: "https:\/\/i.ytimg.com\/vi\/3kwxNT9cI00\/hqdefault.jpg"
+vid_id: "3kwxNT9cI00"
+categories: "Music"
+tags: ["artisthbtl","a boogie wit da hoodie","a boogie"]
+date: "2022-03-04T13:13:44+03:00"
+vid_date: "2022-03-04T05:00:09Z"
+duration: "PT4M2S"
+viewcount: "68616"
+likeCount: "12255"
+dislikeCount: ""
+channel: "A Boogie Wit da Hoodie"
+---
+{% raw %}A Boogie Wit da Hoodie - Hit Different (feat. B-Lovee) <br />Download/Stream: <a rel="nofollow" target="blank" href="https://aboogie.lnk.to/HitDifferent">https://aboogie.lnk.to/HitDifferent</a><br /><br />Follow A Boogie<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/aboogievsartist">https://www.instagram.com/aboogievsartist</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/ArtistHBTL">https://twitter.com/ArtistHBTL</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/ArtistHBTL">https://www.facebook.com/ArtistHBTL</a><br />Soundcloud: <a rel="nofollow" target="blank" href="https://soundcloud.com/a-boogie-wit-da-hoodie">https://soundcloud.com/a-boogie-wit-da-hoodie</a><br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/31W5EY0aAly4Qieq6OFu6">https://open.spotify.com/artist/31W5EY0aAly4Qieq6OFu6</a><br />Website: <a rel="nofollow" target="blank" href="https://aboogiehbtl.com">https://aboogiehbtl.com</a><br /><br />Follow HighBridge<br />Facebook: <a rel="nofollow" target="blank" href="https://facebook.com/HighBridgeOfficial">https://facebook.com/HighBridgeOfficial</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/Highbridgelabel">https://twitter.com/Highbridgelabel</a><br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/highbridgethelabel">https://instagram.com/highbridgethelabel</a><br />Soundcloud: <a rel="nofollow" target="blank" href="https://soundcloud.com/user-939666509">https://soundcloud.com/user-939666509</a><br /><br />The official YouTube channel of multi-platinum rapper/singer-songwriter: Artist Dubose, known as A Boogie Wit Da Hoodie. He made waves with the breakout hit “Still Think About You” featured on his 2016 debut mixtape, ‘Artist.’ The mixtape also introduced fans to “My Shit” which went on to become RIAA certified platinum and was also listed as one of “The Best Songs of 2016” on Apple Music.<br /><br />A Boogie went on to release the 3x platinum “Drowning feat. Kodak Black” along with the platinum singles “Jungle” and “Timeless.” In fall 2017, A Boogie released his gold certified debut album, ‘The Bigger Artist,’ jumping into the Top 5 on Billboard’s Top 200 and #1 on Billboard’s Emerging Artists chart.<br /><br />Subscribe for the latest official music videos, performances, behind the scenes and more from A Boogie: <a rel="nofollow" target="blank" href="https://ABoogie.lnk.to/subscribe">https://ABoogie.lnk.to/subscribe</a><br /><br />#HitDifferent #ABoogieWit DaHoodie #BLovee #AtlanticRecords #HBTL #HighBridge{% endraw %}
