@@ -1,0 +1,15 @@
+---
+title: "SENSITIVE QUESTIONING to detect co-occurring mental health concerns"
+image: "https:\/\/i.ytimg.com\/vi\/0pXFY3xWbl4\/hqdefault.jpg"
+vid_id: "0pXFY3xWbl4"
+categories: "Education"
+tags: ["sensitive","questioning","mental"]
+date: "2022-03-04T13:40:23+03:00"
+vid_date: "2012-09-12T12:17:08Z"
+duration: "PT13M39S"
+viewcount: "12602"
+likeCount: "23"
+dislikeCount: ""
+channel: "DualDiagnosisANZ"
+---
+{% raw %}This video is a component of a 2008 suite of training videos developed by Greg Logan with the Victorian Dual Diagnosis Initiative to demonstrate the use of several tools and approaches useful for detecting co-occurring mental health-substance use concerns (dual diagnosis).<br /><br />Other videos in this series include:<br />• ASSIST screening tool (used by Mark in his assessment with Gavin to screen for problematic substance use)<br />- Full interview<br />- Screening section of interview<br />N.B. ASSIST resources can be found on this page at the Drug Alcohol Services of South Australia website - <a rel="nofollow" target="blank" href="http://bit.ly/QpBukI">http://bit.ly/QpBukI</a> <br /><br />• K10 screening tool (used by Jess to gain an indication of Christine's level of psychological distress)<br />- Full interview <br />- Screening section of interview<br />N.B. The Australian Mental Health Outcomes and Classification Network offer a training manual in the use of the K10 at <a rel="nofollow" target="blank" href="http://bit.ly/QpBUb0">http://bit.ly/QpBUb0</a><br /> <br />• Modified Mini screening tool (used by Mark to assess Chris's need for further assessment in regard to any mood, anxiety or psychotic disorder).<br />- Full interview<br />- Screening section of interview<br />N.B. Detailed information about the Modified Mini screen can be found from this page at the New York State Office of Mental Health website: <a rel="nofollow" target="blank" href="http://bit.ly/SNqWBo">http://bit.ly/SNqWBo</a><br /> <br />• PsyCheck screening tool (used by Jess to detect Steve's mental health symptoms)<br />- Full interview<br />- Screening section of interview<br />N.B. The PsyCheck website is here: <a rel="nofollow" target="blank" href="http://www.psycheck.org.au/index.html">http://www.psycheck.org.au/index.html</a><br />  <br />• Sensitive questioning (approach to detecting co-occurring mental health concerns used by Jess in her assessment with Steve) <br /><br />- Full interview <br />N.B. Sensitive questioning strategies - in the context of detecting mental health-substance use - are discussed in this document <a rel="nofollow" target="blank" href="http://bit.ly/StUhej">http://bit.ly/StUhej</a><br /> <br />• Credits<br /><br />Clinicians: <br />• Jessica Davis <br />• Mark Powell<br /><br />Actors:<br />• Kate Mulqueen as Christine (K10)<br />• Colin Masters as Steve (Sensitive questioning &amp; PsyCheck)<br />• Pier Carthew as Chris (MINI)<br />• Michael Argus as Gavin (ASSIST)<br /><br />Produced and directed by Jeff Bowen of Community Minded Media -- with special thanks to Moreland Hall (now Re-Gen){% endraw %}
