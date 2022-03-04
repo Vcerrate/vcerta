@@ -1,0 +1,15 @@
+---
+title: "Kuruluş Osman 79. Bölüm  @atv   ​"
+image: "https:\/\/i.ytimg.com\/vi\/XraGwABUYc0\/hqdefault.jpg"
+vid_id: "XraGwABUYc0"
+categories: "Entertainment"
+tags: ["diriliş osman","atv","kuruluş osman izle"]
+date: "2022-03-04T14:48:07+03:00"
+vid_date: "2022-01-27T06:58:10Z"
+duration: "PT2H15M5S"
+viewcount: "4486361"
+likeCount: "58712"
+dislikeCount: ""
+channel: "Kuruluş Osman"
+---
+{% raw %}Kuruluş Osman 79. Bölüm Özeti ⚔<br />Göktuğ’u şehit eden Geyhatu, emrindeki nökerlerle Selçuklu askerlerini alt ederek Osman Bey’i ele geçirir. Osman ve alpleri bu cendereden nasıl çıkacaktır? Tekfur Nikola, Kosses’i Konstantinopolis’e götürüp imparatora teslim etmek isterken, Turgut Bey ve alpleri Nikola’yı engellemek için harekete geçer ancak Turgut Bey, Nikola tarafından yakalanır.<br /><br />Osman Bey’in yokluğunda posta oturan Gündüz Bey ise Kayı Obası’nda beylik toyu kurmaya hazırlanmaktadır. Gündüz Bey, hatunları obadan sürgün etmeye karar verince; Bala Hatun, Malhun Hatun ve Selcan Ana, Osman Bey’in emanetini korumak için and içer. Obadan ayrılan hatunların uğradığı saldırıda Selcan Ana yaralanır.<br /><br />⚔ To Subscribe to YouTube Channel of Kurulus Osman Urdu by atv: <a rel="nofollow" target="blank" href="https://bit.ly/2PXdPDh">https://bit.ly/2PXdPDh</a><br /><br />Kuruluş Osman her Çarşamba 20.00'de atv'de!<br /><br />O, kömür karası gözleriyle, gaza ve hürriyet ateşini tutuşturacaktı. <br />Adı, Ertuğrul Gazi oğlu Osman’dı… <br />Karanlığın içinde ona yol gösteren “aşk” oldu…<br />Kan ve gözyaşıyla sulanan topraklarda, gök ekini gibi biçilen; yedi göğü, yedi yeri, dağları, denizleri aşacak bir milletin rüyasını “aşkla” gördü.<br />Gücünü kılıcından değil, “aşktan” aldı… Zorbalığa adaletle; köleliğe hürriyetle direnen, tarihin gördüğü en büyük imparatorluğa adını “aşkla” verdi.<br />72 milleti kıran bozuk düzene karşı başkaldırı, mazlumların sessiz çığlığına umut, Kuruluş’un adı oldu…<br />Kuruluş Osman… 400 çadırlık bir obadan, “ilahi aşkla” kurulan bir cihan imparatorluğuna yürüyüşün hikayesi.<br /><br />Yapım : Bozdağ Film<br />Yapımcı : Mehmet Bozdağ<br />Yönetmen: Ahmet Yılmaz<br />Senaryo : Mehmet Bozdağ, İsa Yıldız, Mehmet İlker Altınay, Aslı Zeynep Peker Bozdağ, Mert Özel, Fatmanur Güldalı, Ali Ozan Salkım, Abdulkadir İlter<br />Oyuncular: Burak Özçivit (Osman), Didem Balçın (Selcan), Yıldız Çağrı Atiksoy (Malhun), Serhat Kılıç (Kosses), Erkan Avcı (Nikola), Seda Yıldız (Edebalı), Yıldıray Şahinler (Rogatus), Özge Törer (Bala), Emre Basalak (Gündüz), Rüzgar Aksoy (Turgut),  Çağrı Şensoy (Cerkutay), Yiğit Uçan (Boran), Ahmet Yenilmez (Demirci), Emin Gürsoy (Kumral Abdal), Buse Arslan (Aygül), Emel Dede (Gonca), Şeyma Korkmaz (Mari), Açelya Özcan (Ayşe), Fatih Ayhan (Baysungur), Ömer Ağan (Saltuk), Ahmet Kaynak (Bahadır), Serdar Kayaokay (Gregor), Oğuzhan Karbi (Nestor), Serhat Parıl (Feodor), Melis Gürhan (Cornelia), Can Bartu Aslan (Aktemur), Burak Alp Yenilmez (Kutan), Gizem Kala (Gökçe), Recep Çavdar (Andreas), Rıdvan Uludaşdemir (Diago), Serdar Akülker (Anselmo), Yazmeen Baker.{% endraw %}
