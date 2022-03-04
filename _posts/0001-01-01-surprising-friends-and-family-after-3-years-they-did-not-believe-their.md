@@ -1,0 +1,15 @@
+---
+title: "SURPRISING FRIENDS and FAMILY after 3 YEARS | They did not believe their eyes"
+image: "https:\/\/i.ytimg.com\/vi\/9jfQMFvpIiY\/hqdefault.jpg"
+vid_id: "9jfQMFvpIiY"
+categories: "Travel-Events"
+tags: ["Travel","New Zealand","Netherlands"]
+date: "2022-03-04T10:39:25+03:00"
+vid_date: "2021-10-12T01:59:24Z"
+duration: "PT13M51S"
+viewcount: "572676"
+likeCount: "18862"
+dislikeCount: ""
+channel: "Ahrièn Azodi"
+---
+{% raw %}This little short film is made out of footage that sat still on my hard drive for over a year. <br /><br />So last year I came back home after traveling the world for about 3 years.<br />I told my Friends and Family that I would stay for at least one more year in New Zealand, while actually I booked my flight ticket home to give them the surprise of a lifetime.<br /><br />When I first started traveling, at that time with my Ex, We intended to travel for a short time, but I never imagined to be away from home for so long, especially since I was always a family guy.<br /><br />I have seen the most beautiful places on earth, but the most special by far for me has been New Zealand, I decided to start living here, so I found myself a house in Queenstown and  job at one of the highest cliff jumps of the world, I fell in love with the crystal clear waters, the incredible mountain ranges and the fresh air.<br /><br />I Made friends from all over the world and cherished every moment I had.<br /><br />But 8 months into covid my visa couldn’t be extended, so I decided to have one last road trip around New Zealand, I took my drone and my camera and made this little short film about my trip, and take you with me at the moment I  finally seeing my family after so long .<br /><br />This whole trip changed me from a little boy in to a man, I had so many experiences from being chased by Thai clans to seeing volcano’s erupting. I had a lot of good times, but also many bad times where I felt alone and scared. But in the end, I learned from all of it and became who I am now.<br /><br />For me this is just the start and I will keep expecting nothing and enjoy everything that comes my way.<br /><br />I hope you enjoy this short film. <br /><br />in this video.<br /><br />00:00 - Intro<br />01:10 - Traveling New-Zealand (cinematic)<br />03:16 - Surprising my Mom<br />04:15 - Surprising my Dad<br />05:31 - Surprising my Sister<br />06:38 - Surprising my Cousin<br />07:32 - Surprising my Uncle &amp; Aunt<br />08:48 - Surprising my Cousin &amp; Aunt<br />10:10 - Surprising my Friends<br />13:15 - Outro<br /><br /><br />Some shots are made by @michalgoga<br /><br />Music by: <br />Regeneration - Max ll<br />Desert dream - Matthew Blum ( <a rel="nofollow" target="blank" href="https://soundcloud.app.goo.gl/DDtmWjGnAVSQjFSe6">https://soundcloud.app.goo.gl/DDtmWjGnAVSQjFSe6</a> )<br />Sanjama - Max ll <br /><br />Gear used:<br /><br />Sony a7iii <br />Sony a6300 <br />Dji mavic air 2<br />Sony 24-70 f4<br />Sigma 30mm f1.4<br />Sigma 16mm F1.4 <br />Zoom h1 <br /><br />Edited in fcpx <br /><br />Follow me on Instagram: @azodidey{% endraw %}
