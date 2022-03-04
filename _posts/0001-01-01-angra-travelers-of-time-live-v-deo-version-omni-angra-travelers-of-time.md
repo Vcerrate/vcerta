@@ -1,0 +1,15 @@
+---
+title: "ANGRA - TRAVELERS OF TIME - LIVE VÍDEO VERSION - OMNI"
+image: "https:\/\/i.ytimg.com\/vi\/Vz2Hz95i404\/hqdefault.jpg"
+vid_id: "Vz2Hz95i404"
+categories: "Music"
+tags: ["angra","heavy","progressive"]
+date: "2022-03-04T16:17:39+03:00"
+vid_date: "2021-01-15T17:00:11Z"
+duration: "PT4M43S"
+viewcount: "74900"
+likeCount: "5325"
+dislikeCount: ""
+channel: "Angra"
+---
+{% raw %}Angra – Travelers of Time<br />Blind your eyes<br />The journey is beginning<br />Hold on tight<br />We're heading to past times<br />Feel how your brain is distorting<br />All you see<br />I have been shouting your name<br />But you just can't hear<br />Listen to me!<br /> <br />I'm your guide<br />Approaching from the future<br />Be prepared<br />To fly above the rainbow<br />Know that your mind is distorting<br />All you feel<br />Jumping from places in time<br />You have never been<br />Now come along with me!<br /> <br />Riding faster than the speed of light<br />Flash through the skies<br />Towards forever<br />We'll bring a message that can save mankind<br />Open your minds<br />Cause we are the travelers of time<br /> <br />I have been sailing in a dream<br />You can take me through this door<br />Eternally!<br />There's so many places we can go<br />Let's get moving on!<br /> <br />We're riding faster than the speed of light<br />Flash through the skies<br />The age of forever<br />We'll bring a message that can save mankind<br />Open your minds<br />We are the travelers of time<br /> <br />Flash through the skies<br />Riding the rainbow's eye<br />Open your minds<br />Cause we are the travelers of time<br /> <br /> <br />Lyrics: Rafael Bittencourt <br />Music: Marcelo Barbosa, Fabio Lione, Rafael Bittencourt, Felipe Andreoli<br /><br /><br />- Related Links: <br />Official website: www.angra.net<br />Facebook: www.facebook.com/AngraOfficialPage<br />Instagram: www.instagram.com/angraofficial/<br /><br /><br />- Angra is:<br />Fabio Lione – Vocals<br />Rafael Bittencourt – Guitars<br />Marcelo Barbosa – Guitars<br />Felipe Andreoli – Bass<br />Bruno Valverde – Drums<br /><br />- Thumbnail Photo: Marcos Vinicius Trojan <br /><br />- Technical Sheet<br />Director: Drico Mello (Bros.Co filmes)<br />Audio and Video Synchronization: Paulo Soares<br />Colorization and Editing: Paulo Soares<br />Produced by Angra and João Milliet<br />Mixed and mastered by João Milliet<br />Live Recording Engineers: João Milliet, Eduardo Avellar, Isaias Rosa<br />Live Recording Studio: R3 Studio<br />Live Recording Assistants: Matheus Pinheiro, Dave Tavares<br />Lighting: Alberto Nogueira<br />Background Video Projection: Paulo Augusto Matrangulo<br />Tour Manager: Eduardo Pitu<br />F.O.H: Alexandre Russo<br />Drum Tech: Gabriel Hatoun<br />Guitar Tech: Bruno Gobi<br />Guitar Tech: Dante Rozalini<br />Stage Sound: Emiliano Brecacin<br />Press: Damaris Hoffmann<br />Production Assistant Top Link Music: Marcele Faret<br />Production Assistant Top Link Music: Clovis Roman<br />Stage Manager: Rogério Pinheiro<br />Executive Production: Paulo Barón{% endraw %}
