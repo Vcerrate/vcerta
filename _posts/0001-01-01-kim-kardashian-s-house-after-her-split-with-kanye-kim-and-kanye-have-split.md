@@ -1,0 +1,15 @@
+---
+title: "Kim Kardashian's House After Her Split With Kanye"
+image: "https:\/\/i.ytimg.com\/vi\/tI5MS2qXCgc\/hqdefault.jpg"
+vid_id: "tI5MS2qXCgc"
+categories: "Entertainment"
+tags: ["Kanye West divorce","Kardashian homes","Kim Kardashian house"]
+date: "2022-03-05T12:44:31+03:00"
+vid_date: "2022-02-26T16:45:00Z"
+duration: "PT10M20S"
+viewcount: "247085"
+likeCount: "4803"
+dislikeCount: ""
+channel: "TheThings Celebrity"
+---
+{% raw %}Kim and Kanye have split and we’ve noticed some changes in Kim, from her fashion, to who she’s dating, to now her house. Since Kanye left, the reality TV star and mogul has made some updates to the multi-million dollar pad, including a new, cozier sitting room complete with sentimental baby books dedicated to each of her kids  and even a trunk filled with treasures from Kim’s own childhood. The piano room has also gotten a tune-up with added furniture and the like. While the palette of the home stays rigidly in neutrals, such as beiges, whites, creams, and gray, Kim’s kids are free to express themselves however they wish in their own rooms. North shows off her pink paradise TikTok, as well as the rest of the house when she takes fans on a live tour of the house, against Kim’s wishes. <br /> The house also features some of North’s artwork, some of which has garnered a little controversy. And the house would not be complete with a massive outdoor space that comes complete with a gray basketball court and massive garden where the family picks their fresh fruits and veggies. Kim also shows off three luxury cars, all painted gray to match the house. Despite admitting to never using her pool, Kim in Kanye’s absence finally does and snaps some steamy photos for the gram. We also talk about the more curious aspects of the house, including the Isabel Rower sculpture room and Kim’s unique, basin-less bathroom. <br /><br /><br />Subscribe: <a rel="nofollow" target="blank" href="http://bit.ly/Subscribe-to-TheThingsCelebrity">http://bit.ly/Subscribe-to-TheThingsCelebrity</a> <br /><br />CHAPTERS<br />00:00 Intro<br />00:16 Minimalist Monastic Style<br />01:05 Cozier Sitting Room<br />01:40 Baby Books<br />02:17 Kim’s Trunk Of Childhood<br />02:58 Each Kid’s Room<br />03:50 New Artwork<br />04:42 New Piano Room<br />05:22 Neutral Color Palette<br />06:02 Cars Match Her House<br />06:29 Neutral Basketball Court<br />07:05 A Garden Of Her Own<br />07:37 The Pool<br />08:23 Isabel Rower Sculpture Room<br />08:55 Kim’s Closet<br />09:26 The Bathroom<br /><br /><br />Our Social Media:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/TheThingscom/​">https://www.facebook.com/TheThingscom/​</a><br /><br />For more videos and articles visit:<br /><a rel="nofollow" target="blank" href="https://www.thethings.com">https://www.thethings.com</a><br /><br />Written by: Lori Barkin<br />Narrated by: Lori Barkin<br />Edited by: Steven Sune<br /><br />For copyright matters please contact us at: legal@valnetinc.com{% endraw %}
