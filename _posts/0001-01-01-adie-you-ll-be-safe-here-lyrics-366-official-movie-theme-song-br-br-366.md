@@ -1,0 +1,15 @@
+---
+title: "Adie - You’ll Be Safe Here [LYRICS]"
+image: "https:\/\/i.ytimg.com\/vi\/EBOgPSXfsxU\/hqdefault.jpg"
+vid_id: "EBOgPSXfsxU"
+categories: "Music"
+tags: ["#YBSH #OCRecords #AdjustYourFrequency","#AdieYou'llBeSafeHereLyrics #UNLYRICALISM"]
+date: "2022-03-05T14:12:26+03:00"
+vid_date: "2022-03-04T23:31:37Z"
+duration: "PT5M44S"
+viewcount: "3321"
+likeCount: "44"
+dislikeCount: ""
+channel: "UNLYRICALISM ♫"
+---
+{% raw %}366 Official Movie Theme Song<br /><br />'366' A Vivamax Original movie directed by Bela Padilla<br />Starring Bela Padilla, JC Santos and Zanjoe Marudo<br />Original Score by Kean Cipriano<br />Movie Theme Performed by Adie<br />Streaming this coming April 22 on Vivamax!<br /><br />Directed by: Bela Padilla<br /><br />Executive Producer:<br />Kean Cipriano<br />Vicente Del Rosario Jr.<br />Verb Del Rosario<br />Chynna Ortaleza-Cipriano<br /><br />Creative Producer: Kean Cipriano<br /><br />OC Records Team<br />Senior Manager for Artist Management: Rovan Cipriano<br />Artist and Repertoire: Martin Riggs<br />Marketing Supervisor: Nicole Uson<br />Digital Marketing Specialist: Richmund Ricamonte, Iary Montemayor<br />Accounting Clerk: Rose Marie Berdan<br />Executive Assistant: Paulo Pampuan<br /><br />Connect with Adie:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/adadieeeee">https://www.facebook.com/adadieeeee</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/Adadieee">https://twitter.com/Adadieee</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/adadieee/">https://www.instagram.com/adadieee/</a><br /><br />Connect with O/C Records:<br /><a rel="nofollow" target="blank" href="https://facebook.com/ocrecordsph">https://facebook.com/ocrecordsph</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/OCRecordsPH">https://twitter.com/OCRecordsPH</a><br /><a rel="nofollow" target="blank" href="https://instagram.com/ocrecordsph">https://instagram.com/ocrecordsph</a><br /><br />Thank you so much for all your support hope you guys enjoyed every lyrics videos that we made. Much love, No hate ❤️<br />______<br /><br />Please do Like Share Comment and Subscribe and also hit the notification bell (🔔) to get updated on our next upload ;)<br />_________<br /><br />® THIS IS NOT THE OFFICIAL LYRICS VIDEO, THIS IS FOR ENTERTAINMENT PURPOSES ONLY AND ALSO FOR FAN MADE, ALL MATERIALS USED IN THE VIDEO BELONGS TO THE RESPECTIVE OWNER. NO COPYRIGHT INFRINGEMENT INTENDED IN THIS VIDEO. ALL RIGHTS AND CREDITS GOES TO THE RIGHTFUL OWNER 👇🏻<br /><br />◽️O/C Records <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCfQMbXh_QALbVVnvkl-VipQ">https://www.youtube.com/channel/UCfQMbXh_QALbVVnvkl-VipQ</a><br /><br />🚫 IF THERE ARE COPYRIGHT ISSUES IN ANY OF OUR VIDEO, PLEASE FEEL FREE TO CONTACT US AND SEND ME A GMAIL. NO NEED TO HAVE COPYRIGHT STRIKE IN OUR CHANNEL AND I’LL RESPECTFULLY REMOVE IT WITHIN 24 HRS. THANK YOU SO MUCH OWNERS ❤️<br /><br />#YBSH #OCRecords #AdjustYourFrequency #AdieYBSH #AdieYBSHLyrics #Adie  #UNLYRICALISM #Lyrics{% endraw %}
