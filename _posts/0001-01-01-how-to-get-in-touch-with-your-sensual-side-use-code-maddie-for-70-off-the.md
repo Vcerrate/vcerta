@@ -1,0 +1,15 @@
+---
+title: "how to get in touch with your sensual side"
+image: "https:\/\/i.ytimg.com\/vi\/Hlfrn4e7W20\/hqdefault.jpg"
+vid_id: "Hlfrn4e7W20"
+categories: "Entertainment"
+tags: ["maddie dragsbaek","partylikemaddie","body positivity"]
+date: "2022-03-05T22:43:39+03:00"
+vid_date: "2022-01-21T18:07:19Z"
+duration: "PT27M23S"
+viewcount: "51939"
+likeCount: "4086"
+dislikeCount: ""
+channel: "Maddie Dragsbaek"
+---
+{% raw %}Use code MADDIE for 70% off the Yearly Pass at Beducated (+ 1 day free trial!): <a rel="nofollow" target="blank" href="http://beducate.me/bg2201-maddie-ny">http://beducate.me/bg2201-maddie-ny</a> #beducated<br /><br />today, we're diving into sensuality babyyyyy!!! and how to really prioritize and connect with your body and your sensual self. be sure to check out ev'yan's pages and book if you're interested, they've been major for me and i'm sure you'll love them too!<br /><br />ev'yan's instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/evyan.whitney/">https://www.instagram.com/evyan.whitney/</a><br />ev'yan's journal: <a rel="nofollow" target="blank" href="https://www.evyanwhitney.com/sensualself">https://www.evyanwhitney.com/sensualself</a><br /><br />MY LINKS:<br />✭ twitter: <a rel="nofollow" target="blank" href="https://twitter.com/maddiedragsbaek">https://twitter.com/maddiedragsbaek</a><br />✭ instagram: <a rel="nofollow" target="blank" href="http://instagram.com/maddiedragsbaek">http://instagram.com/maddiedragsbaek</a><br />✭ podcast: <a rel="nofollow" target="blank" href="https://open.spotify.com/show/7CQaTeIZeoKYRuKDO3uhOQ">https://open.spotify.com/show/7CQaTeIZeoKYRuKDO3uhOQ</a><br />✭ depop: <a rel="nofollow" target="blank" href="https://www.depop.com/maddiedragsbaek">https://www.depop.com/maddiedragsbaek</a><br />✭ spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/user/woahmaddie?si=tQmzvfHuTfij4rQomN75hw">https://open.spotify.com/user/woahmaddie?si=tQmzvfHuTfij4rQomN75hw</a><br /><br />For business inquiries: partylikemaddie@gmail.com<br /><br />FAQ:<br />→How old are you? ✭ 24<br />→Where do you live? ✭ Brooklyn, New York City<br />→What do you edit with? ✭ Adobe Premiere Pro<br />→What do you film with? ✭ Canon G7x<br />→What camcorder do you use? ✭ Sony Handycam CX150<br />→What film camera do you shoot on? ✭ Olympus Stylus Epic Zoom 170<br />→What microphone do you use? ✭ Blue Yeti USB Microphone<br /><br />MUSIC:<br />→ Epidemic Sound:  <a rel="nofollow" target="blank" href="https://www.epidemicsound.com/referral/x2u8pm/">https://www.epidemicsound.com/referral/x2u8pm/</a><br /><br />TIME STAMPS:<br />00:00 – introduction<br />01:04 – what is sensuality?<br />02:55 – beducated sponsorship<br />05:53 – what makes you feel connected/disconnected from your body?<br />12:15 – sensuality and sex<br />17:13 – what does pleasure look like on a daily level?<br />20:50 – living a romantic and sensual life<br />22:37 – our world doesn't encourage us to be connected to ourselves{% endraw %}
