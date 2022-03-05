@@ -1,0 +1,15 @@
+---
+title: "Xbox & Many Others Stop Sales in Russia"
+image: "https:\/\/i.ytimg.com\/vi\/-WNof64KtJI\/hqdefault.jpg"
+vid_id: "-WNof64KtJI"
+categories: "Gaming"
+tags: ["xbox","xbox news today","xbox russia sales"]
+date: "2022-03-05T10:15:33+03:00"
+vid_date: "2022-03-05T04:00:00Z"
+duration: "PT9M"
+viewcount: "1630"
+likeCount: "225"
+dislikeCount: ""
+channel: "Destin"
+---
+{% raw %}Due to the ongoing conflict in Ukraine, Xbox, CD Projekt Red, EA, Sad Cat Studios, Bloober, and others have stopped sales in Russia. The biggest video game news today is about the efforts to support Ukraine from people like John Romero who released a Doom 2 level that will send proceeds to UN Central Emergency Response Fund and the Red Cross in support of Ukraine. Xbox News Today is largely about how they've pulled sales in Russia, as well as other major companies like EA.<br /><br />Want to help Ukraine? You can donate today at bit.ly/letshelpukraine<br /><br />Subscribe Here! <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/thedestinchannel?sub_confirmation=1">https://www.youtube.com/c/thedestinchannel?sub_confirmation=1</a><br /><br />Join this channel to get access to perks including early access to my videos the second they're complete with ads turned off!<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCgUOWrjLEhmHE9tqYtoeS_g/join">https://www.youtube.com/channel/UCgUOWrjLEhmHE9tqYtoeS_g/join</a><br /><br />If you're interested you can also purchase my merch! I'm trying it out and currently have a selection of clothing as well as practical items like coffee cups and tote bags.<br /><a rel="nofollow" target="blank" href="https://shop.spreadshirt.com/TheDestinChannelMerch/">https://shop.spreadshirt.com/TheDestinChannelMerch/</a><br /><br />Sign up for a free Amazon Prime Video Trial Here!<br /><a rel="nofollow" target="blank" href="https://www.amazon.com/gp/video/primesignup?ref_=assoc_tag_ph_1402131641212&amp;_encoding=UTF8&amp;camp=1789&amp;creative=9325&amp;linkCode=pf4&amp;tag=destinlegarie-20&amp;linkId=5f623f6638af9e7c54ddc1a1a8ede3b5">https://www.amazon.com/gp/video/primesignup?ref_=assoc_tag_ph_1402131641212&amp;_encoding=UTF8&amp;camp=1789&amp;creative=9325&amp;linkCode=pf4&amp;tag=destinlegarie-20&amp;linkId=5f623f6638af9e7c54ddc1a1a8ede3b5</a><br /><br />Sign Up For Microsoft Rewards Here for Free<br /><a rel="nofollow" target="blank" href="https://account.microsoft.com/rewards/rafwelcome?rh=DBE8C302&amp;ref=MeControl0">https://account.microsoft.com/rewards/rafwelcome?rh=DBE8C302&amp;ref=MeControl0</a><br /><br />Try Amazon Prime Free for 30 Days<br /><a rel="nofollow" target="blank" href="https://www.amazon.com/tryprimefree?ref_=assoc_tag_ph_1427739975520&amp;_encoding=UTF8&amp;camp=1789&amp;creative=9325&amp;linkCode=pf4&amp;tag=destinlegarie-20&amp;linkId=266062588f4f94bdffadd74a58071d38">https://www.amazon.com/tryprimefree?ref_=assoc_tag_ph_1427739975520&amp;_encoding=UTF8&amp;camp=1789&amp;creative=9325&amp;linkCode=pf4&amp;tag=destinlegarie-20&amp;linkId=266062588f4f94bdffadd74a58071d38</a>{% endraw %}
