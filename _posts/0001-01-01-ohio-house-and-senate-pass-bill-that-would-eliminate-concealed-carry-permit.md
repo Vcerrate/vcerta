@@ -1,0 +1,15 @@
+---
+title: "Ohio House and Senate pass bill that would eliminate concealed carry permit requirements"
+image: "https:\/\/i.ytimg.com\/vi\/ddXHjB6c1OY\/hqdefault.jpg"
+vid_id: "ddXHjB6c1OY"
+categories: "News-Politics"
+tags: ["ohio house senate","ohio general assembly","ohio"]
+date: "2022-03-06T17:17:29+03:00"
+vid_date: "2022-03-02T23:29:33Z"
+duration: "PT2M32S"
+viewcount: "5915"
+likeCount: "167"
+dislikeCount: ""
+channel: "WKYC Channel 3"
+---
+{% raw %}Ohio is likely soon to allow people to carry concealed weapons without training or a permit.<br /><br />The Senate passed an updated Senate Bill 215, approving some House amendments after its vote this afternoon. It now heads to Governor DeWine’s desk.<br /><br />It's not without controversy. Even gun advocates are questioning how the law would make Ohio safer.<br /><br />“I don’t think it’s good at all,” said Kim Rodecker, who owns and teaches Concealed Carry Courses of Cleveland. “It’s like if you have a 16-year-old who wants to learn how to drive. Would you just throw him the keys and the book, and say, here, go teach yourself? It’s just as stupid.”<br /><br />Rodecker, a veteran who taught firearms courses in the Marine Corps, estimates he’s taught more than 13-thousand people their state-required CCW course since current concealed carry laws passed in 2004. He says he’s against the idea of permitless carry, not because people are evil, but because they can be ignorant. If people can opt out of training, they will.<br /><br />“I have trained so many people that they wouldn’t take the class if they don’t have to. They’d make a mistake and that mistake could cost somebody their life,” he said.<br /><br />Currently, those seeking a permit must pass a background check, attend an eight-hour safety class, including two hours spent handling firearms on a range.<br /><br />Instead, Ohio’s Senate Bill 215 would allow all adults 21 and over who can legally own a gun to concealed carry. It also removes the requirement to tell law enforcement officers about the weapon unless asked.<br /><br />Opponents, including many police organizations like Ohio Fraternal Order of Police, say it could make our communities less safe.<br /><br />“The way this works is very simple. If you can carry with a license now, you’ll be able to carry without a license later,” said Dean Rieck.<br /><br />Rieck is the Executive Director of Buckeye Firearms Association, one of the groups backing the bill. He says this was their number one legislative priority.<br /><br />“What we’re trying to do is allow Ohioans to exercise their constitutional rights without that burden… No other constitutional right requires you to jump through that many hoops,” he said.<br /><br />READ: <a rel="nofollow" target="blank" href="https://www.wkyc.com/article/news/politics/ohio-house-passes-bill-eliminate-concealed-carry-permit-requirements/95-9f704ecd-b1ab-49c7-8fd5-6c3a49544fcc">https://www.wkyc.com/article/news/politics/ohio-house-passes-bill-eliminate-concealed-carry-permit-requirements/95-9f704ecd-b1ab-49c7-8fd5-6c3a49544fcc</a>{% endraw %}
