@@ -1,0 +1,15 @@
+---
+title: "The Puzzling Reason Why Germans Love Watching Videos About Germany 🇩🇪"
+image: "https:\/\/i.ytimg.com\/vi\/Ukqw15gTAy0\/hqdefault.jpg"
+vid_id: "Ukqw15gTAy0"
+categories: "People-Blogs"
+tags: ["moving to germany","expat in germany","move to germany"]
+date: "2022-03-06T14:45:14+03:00"
+vid_date: "2022-03-04T12:57:10Z"
+duration: "PT14M9S"
+viewcount: "8322"
+likeCount: "639"
+dislikeCount: ""
+channel: "Passport Two"
+---
+{% raw %}After moving to Germany, we transitioned our channel from strictly travel, to also talking about our experiences with German culture as Americans. We soon realized that we had joined a niche of Youtube channels in Germany doing the same thing, that are mainly being watched by Germans! Over the years I have asked the question, &quot;why is 70% of our audience German when we are making videos about Germany? Wouldn't people OUTSIDE of Germany be more interested in that?&quot; After years of asking myself that, I have developed a couple of theories as to why this may be the case... 😊  <br /><br />#AmericansInGermany #GermanyVlog #MovingToGermany<br />_____________________________________________________<br /><br />PATREON: <a rel="nofollow" target="blank" href="https://www.patreon.com/PassportTwo">https://www.patreon.com/PassportTwo</a><br /><br />INSTAGRAM: @passport_two<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/passport_two/">https://www.instagram.com/passport_two/</a><br /><br />TWITTTER: @PassportTwo<br /><a rel="nofollow" target="blank" href="https://twitter.com/PassportTwo">https://twitter.com/PassportTwo</a><br />_____________________________________________________<br /><br />💻 Get 3 FREE MONTHS, unlock every countries' Netflix, and protect your private information online with ExpressVPN here: <a rel="nofollow" target="blank" href="https://www.expressvpn.com/passporttwo">https://www.expressvpn.com/passporttwo</a><br /><br />🛏 Get $40+ off of your first Airbnb by using the following link!!<br /><a rel="nofollow" target="blank" href="https://www.airbnb.com/c/aubreya242?c...">https://www.airbnb.com/c/aubreya242?c...</a><br /><br />🎵 Like our music? Download these copyright-free songs here:<br /><a rel="nofollow" target="blank" href="https://www.epidemicsound.com/referral/91s8xj/">https://www.epidemicsound.com/referral/91s8xj/</a><br /><br />*These are affiliate links. If you use them and make a purchase, we get a small commission that goes towards supporting our work! Thank you so much if you use them!!* 😊<br />_____________________________________________________<br /><br />❤️Aubrey was a Speech-Language Pathologist, Donnie was a graphic designer, but we both had a dream to #travel the world and experience cultures. After three years of being married and dreaming about if something like this great adventure would be possible, we decided to quit the rat race and take on the world. We sold everything we had, quit our jobs, and took off! After 9 months of aimless and nonstop travel, we now get to fulfill our dreams of #LivingAbroad as #expats as we move to #Germany!{% endraw %}
