@@ -1,0 +1,15 @@
+---
+title: "The Top 10 Contemporary Artists in 2022"
+image: "https:\/\/i.ytimg.com\/vi\/ADAcU770WNM\/hqdefault.jpg"
+vid_id: "ADAcU770WNM"
+categories: "People-Blogs"
+tags: ["art","contemporary art","contemporary painting"]
+date: "2022-03-07T01:07:36+03:00"
+vid_date: "2022-01-31T13:00:12Z"
+duration: "PT8M45S"
+viewcount: "27276"
+likeCount: "555"
+dislikeCount: ""
+channel: "Contemporary Art Issue"
+---
+{% raw %}Dear readers and subscribers, today we take on the top highest ranked artists of this year! The ranking was created using the Artfacts algorithm ranking artists based upon objective data and career facts.<br /><br />For further reading on the artists in question, we highly recommend the following titles:<br />10. Valie Export: <a rel="nofollow" target="blank" href="https://amzn.to/3GcZDtV">https://amzn.to/3GcZDtV</a><br />9. Rosemarie Trockel: <a rel="nofollow" target="blank" href="https://amzn.to/35DHrgD">https://amzn.to/35DHrgD</a><br />8. William Kentridge: <a rel="nofollow" target="blank" href="https://amzn.to/345mb2L">https://amzn.to/345mb2L</a><br />7. Erwin Wurm: <a rel="nofollow" target="blank" href="https://amzn.to/3GgDlrs">https://amzn.to/3GgDlrs</a><br />6. Thomas Ruff: <a rel="nofollow" target="blank" href="https://amzn.to/3KVzm76">https://amzn.to/3KVzm76</a><br />5. Wolfgang Tillmans: <a rel="nofollow" target="blank" href="https://amzn.to/32JJ4rW">https://amzn.to/32JJ4rW</a><br />4. Georg Baselitz: <a rel="nofollow" target="blank" href="https://amzn.to/3INpKte">https://amzn.to/3INpKte</a><br />3. Cindy Sherman: <a rel="nofollow" target="blank" href="https://amzn.to/3ucd9M9">https://amzn.to/3ucd9M9</a><br />2. Bruce Nauman: <a rel="nofollow" target="blank" href="https://amzn.to/3IRRTiM">https://amzn.to/3IRRTiM</a><br />1. Gerhard Richter: <a rel="nofollow" target="blank" href="https://amzn.to/3g9szbE">https://amzn.to/3g9szbE</a><br /><br />Contemporary Art Issue<br />Platform, Publisher &amp; Gallery on Contemporary<br />Website:  <a rel="nofollow" target="blank" href="https://www.contemporaryartissue.com">https://www.contemporaryartissue.com</a><br />Gallery: <a rel="nofollow" target="blank" href="https://www.caigallery.com">https://www.caigallery.com</a><br />Publications: <a rel="nofollow" target="blank" href="https://www.contemporaryartissue.com/...">https://www.contemporaryartissue.com/...</a><br />Services for artists: <a rel="nofollow" target="blank" href="https://www.contemporaryartissue.com/...">https://www.contemporaryartissue.com/...</a><br /><br />Every effort has been made to trace copyright holder. However, if you feel you have inadvertently been overlooked, please take up contact with Contemporary Art Issue.<br /><br />Table of contents:<br />00:00 – Intro <br />00:20 – 10. Valie Export<br />01:16 – 9. Rosemarie Trockel<br />01:56 – 8. William Kentridge<br />02:39 – 7. Erwin Wurm<br />03:30 – 6. Thomas Ruff<br />04:09 – 5. Wolfgang Tillmans<br />04:51 – 4. Georg Baselitz<br />05:42 – 3. Cindy Sherman<br />06:30 – 2. Bruce Nauman<br />07:17 – 1. Gerhard Richter{% endraw %}
