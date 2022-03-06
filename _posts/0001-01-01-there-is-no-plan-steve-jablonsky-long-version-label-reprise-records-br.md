@@ -1,0 +1,15 @@
+---
+title: "There Is No Plan - Steve Jablonsky (Long Version)"
+image: "https:\/\/i.ytimg.com\/vi\/WqDO5zSxtuo\/hqdefault.jpg"
+vid_id: "WqDO5zSxtuo"
+categories: "Music"
+tags: ["Steve Jablonsky","Steve Jablonsky - There Is No Plan","Transformers 3 - There is no plan (The Score - Soundtrack)"]
+date: "2022-03-06T20:56:37+03:00"
+vid_date: "2019-07-27T23:02:48Z"
+duration: "PT6M14S"
+viewcount: "1822882"
+likeCount: "20274"
+dislikeCount: ""
+channel: "Kio Box"
+---
+{% raw %}■ Label: Reprise Records ‎<br />■ <a rel="nofollow" target="blank" href="https://www.shazam.com/fr/track/63097288/there-is-no-plan">https://www.shazam.com/fr/track/63097288/there-is-no-plan</a><br />■ Transformers: Dark Of The Moon (The Score)<br /><br />Steve Jablonsky is a music composer working in diverse projects, ranging from television series to video games, is particularly difficult to come across in modern times. Yet, Steve Jablonsky is one such composer who sets the example of a multi-talented music composer, who has had influence in top-rated video games, television shows, and Hollywood films. Along similar lines, much of Jablonsky’s music features him playing his own instruments and conveniently composing the entire track accordingly. As such, Jablonsky has worked with several renowned music composers, whose works are often casted as music scores for films successful on an international platform. Some of these composers include Hans Zimmer, Frank Klepacki, Harry Gregson-Williams and Klaus Badelt.<br /><br />Steve Jablonsky belongs to the class of modern music composers who have outstanding gifts at their disposal. Since 2001, Jablonsky has done what he always had a soft spot for, which is to make music. He has experimented in different arenas of the music industry, making exquisite scores in genres ranging from action-thriller to comedy and satire.<br /><br />Find Steve Jablonsky on:<br />Official website: <a rel="nofollow" target="blank" href="http://stevejablonski.tv/">http://stevejablonski.tv/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/jablonsky_steve">https://twitter.com/jablonsky_steve</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/SteveJablonskyOfficial/">https://www.facebook.com/SteveJablonskyOfficial/</a><br />Soundcloud: <a rel="nofollow" target="blank" href="https://soundcloud.com/stevejablonsky">https://soundcloud.com/stevejablonsky</a><br />Youtube: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCkfU7GtZtI4ud3DNq1hJi0g">https://www.youtube.com/channel/UCkfU7GtZtI4ud3DNq1hJi0g</a><br /><br />Artwork by bytecodeminer's<br /><a rel="nofollow" target="blank" href="https://wall.alphacoders.com/big.php?i=993600&amp;lang=French">https://wall.alphacoders.com/big.php?i=993600&amp;lang=French</a><br /><br />Copyright Info ©<br />Be aware all music and pictures belongs to the original artists.<br />I am in no position to give anyone permission to use this.<br />Please ask the artists. Thanks{% endraw %}
