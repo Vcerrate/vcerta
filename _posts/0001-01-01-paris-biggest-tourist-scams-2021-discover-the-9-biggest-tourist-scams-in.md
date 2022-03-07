@@ -1,0 +1,15 @@
+---
+title: "PARIS Biggest Tourist SCAMS (2021)"
+image: "https:\/\/i.ytimg.com\/vi\/1m4xQMWoXdc\/hqdefault.jpg"
+vid_id: "1m4xQMWoXdc"
+categories: "Travel-Events"
+tags: ["top 9 scams paris","les frenchies","biggest scams in paris"]
+date: "2022-03-07T07:29:14+03:00"
+vid_date: "2021-10-23T11:00:02Z"
+duration: "PT8M8S"
+viewcount: "120544"
+likeCount: "2450"
+dislikeCount: ""
+channel: "Les Frenchies"
+---
+{% raw %}Discover the 9 biggest tourist SCAMS in Paris so you don't get ripped off during your stay. From Pickpockets to Gold Ring Scams to the Free Bracelets in Montmartre, there are many ways to get scammed in Paris. Be safe, and be aware of your surroundings. Bon voyage!<br /><br />⏱ Time codes (Top 9 Biggest Tourist SCAMS in Paris)<br />00:00 INTRO <br />00:34 Phone Theft on Terrasses<br />01:03 Found Gold Ring Scam<br />01:40 Fake Metro or Museum Tickets Scam<br />02:17 Pigalle Shows Expensive Champagne Scam<br />03:05 Free Bracelets Street Sellers Scam<br />03:41 Restaurant Scam<br />04:30 Fake Taxi Scam<br />05:29 Help Me I'm Lost Scam<br />06:12 Paris Pickpockets<br /><br />About Les Frenchies:<br />After 32 years in the US, the Duponts moved to France where Antoine was born. Antoine is rediscovering his homeland and sharing it with his American wife Colleen. With the help of his brother Vincent, a renowned Restaurateur (and food snob). <br /><br />They are on a quest to find the best France has to offer. <br /><br />There are over 35,000 villages in France, all with their own history, culture, and food. We are on a journey to discover as many of them as we can together. Let’s go.<br /><br />🥖🍷 Food &amp; Vines. 🎭 🏰 Culture &amp; History. 🎨 🌳 Art &amp; Nature.<br />#lesfrenchiestravel #ParisScams<br /><br />📢  Let's connect:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/Les-Frenchies-Travel-101008388957696">https://www.facebook.com/Les-Frenchies-Travel-101008388957696</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/lesfrenchiestravel">https://www.instagram.com/lesfrenchiestravel</a><br /><a rel="nofollow" target="blank" href="https://lesfrenchiestravel.com/">https://lesfrenchiestravel.com/</a><br /><br />🎬 Credits: <br />(in order of appearance)<br />Antoine Dupont - Marketing, Public Speaker &amp; filmmaker newbie<br />Vincent Dupont - Chef, Restaurateur &amp; overall nice guy<br />Colleen Dupont - Branding, Identity Coach &amp; cooking enthusiast<br />Filmed with a Canon 70D, Parrot Anafi Drone &amp; Samsung Galaxy S8<br /><br /><br />⚖️ All clips used for fair use commentary, criticism, and educational purposes.  See Hosseinzadeh v. Klein, 276 F.Supp.3d 34 (S.D.N.Y. 2017); Equals Three, LLC v. Jukin Media, Inc., 139 F. Supp. 3d 1094 (C.D. Cal. 2015). Almost all, if not 100% of the clips are sourced via an active royalty-free license agreement with Storyblocks. (<a rel="nofollow" target="blank" href="https://www.storyblocks.com/)">https://www.storyblocks.com/)</a><br /> <br />© 2021 Les Frenchies Travel. All rights reserved.{% endraw %}
