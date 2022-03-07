@@ -1,0 +1,15 @@
+---
+title: "Did We Get The House? | Buying Our First House!"
+image: "https:\/\/i.ytimg.com\/vi\/GESfF6hwEtA\/hqdefault.jpg"
+vid_id: "GESfF6hwEtA"
+categories: "Entertainment"
+tags: ["house hunting","house hunters","buying a house"]
+date: "2022-03-07T13:09:49+03:00"
+vid_date: "2022-03-06T16:00:07Z"
+duration: "PT12M44S"
+viewcount: "17390"
+likeCount: "967"
+dislikeCount: ""
+channel: "Brock and Boston"
+---
+{% raw %}Welcome BACK!!! You guys! We put an offer down on a house we saw a few days ago. Did our offer get accepted?!? <br /><br />Videos Mentioned/House Hunting Vids: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=uVsrQjNKesQ&amp;list=PLUpzTidV08Lq1rQj-Wu_eTBJ9ZV6Vi6Bs">https://www.youtube.com/watch?v=uVsrQjNKesQ&amp;list=PLUpzTidV08Lq1rQj-Wu_eTBJ9ZV6Vi6Bs</a> <br /><br />#househunting #buyingahouse #housetour<br /><br />Meet Brock and Boston:<br />What’s up!!! We are 17 year old twin brothers from Salt Lake City, Utah that recently moved to Nashville, Tennessee. We started doing social media back in 2016 and have been posting ever since. We love sharing our life with everyone! On our channel we do a mix of a lot of things like, challenges, vlogs, pranks and more! <br /><br />-----------------------------------------------------------------------------------------------------------------------<br /><br />Social Media Accounts:<br /><br />Instagram: @brockandbostonofficial <br /><br />TikTok: @brockandboston <br /><br />Twitter: @brockandboston<br /><br />FaceBook: @brockandboston <br /><br />--------------------------------------------<br /><br />Our family’s channels:<br /><br />Brock and Boston Shorts: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCE7S...">https://www.youtube.com/channel/UCE7S...</a> <br /><br />Alyssa &amp; Dallin: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCpKW...">https://www.youtube.com/channel/UCpKW...</a> <br /><br /><br />The Mikesell Family: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCmZN...">https://www.youtube.com/channel/UCmZN...</a> <br /><br />--------------------------------------------------------------------------------------------------------------------<br /><br />Q&amp;A: <br /><br />Are you twins? Yes, we are Identical twins! <br /><br />How do I tell you apart? Brock currently has a mullet, you will for sure be able to tell us apart after watching a few videos! <br /><br />Who is the older twin? Brock, by two minutes! <br /><br />----------------------------------------------------------------------------------------------------------------------<br /><br />Mailing Address:<br /><br /> 6101 west 9790 south, West Jordan, Utah 84081 <br /><br />----------------------------------------------------------------------------------<br /><br />Contact Information for business inquires: <br /><br /><br />brockandboston@gmail.com<br /><br />-------------------------------------------------------------{% endraw %}
