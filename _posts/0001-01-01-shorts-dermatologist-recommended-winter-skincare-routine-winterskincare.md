@@ -1,0 +1,15 @@
+---
+title: "#shorts Dermatologist Recommended Winter Skincare Routine"
+image: "https:\/\/i.ytimg.com\/vi\/Z-KphQv8RT4\/hqdefault.jpg"
+vid_id: "Z-KphQv8RT4"
+categories: "People-Blogs"
+tags: ["skin care","skin care tips","skincare routines"]
+date: "2022-03-07T09:40:16+03:00"
+vid_date: "2022-03-07T02:19:18Z"
+duration: "PT38S"
+viewcount: "1317"
+likeCount: "124"
+dislikeCount: ""
+channel: "Dr. Daniel Sugai"
+---
+{% raw %}#winterskincare #dryskin #dryskincareroutine #drsugaireviews #dermatologistrecommended #vitamincserum #retinoid #tretinoin #hyaluronicacidserum #moisturizer #youtubeshorts<br /><br />Happy Sunday, friends!<br /><br />Hope this helps where I lay out the order of which to use products in your late winter skincare routine (yesterday really felt like spring already😎). <br />#notsponsored<br /><br />☀️ AM<br />💧 cleanse with a hydrating cleanser like CeraVe<br />🍊 Vitamin C serum to fight free radicals that can cause photoaging <br />🧴 LRP Toleriane Double Repair moisturizer <br />🌞 SPF 30+ (LRP anthelios 50 tinted)<br /><br />🌙 PM<br />🚿 I shower after a workout or a day of work and cleanse my face with salicylic acid or benzoyl peroxide (CeraVe again)<br />💦 hydrating and plumping HA serum (LRP HyaluB5 remains one of my favs)<br />🧴 winter routine involves me moisturizing before retinoid when my skin is sensitive and on the dry side. I don’t always do this. Many times I apply a moisturizer after my retinoid. <br />💥 Retinoid: pea-sized amount to entire face<br />Totally fine to use another layer of moisturizer over your retinoid esp if you’re a beginner. <br /><br />Mahalo for watching 🙏🏼🤙😎<br /><br />I now have a Shop My Shelf- please check out to see my recommended products. <a rel="nofollow" target="blank" href="https://myshlf.us/drdanielsugai">https://myshlf.us/drdanielsugai</a><br /><br />Thank you for subscribing and thank you for the 500K+ followers/friends on TikTok and NOW VERIFIED ON TIKTOK and Instagram?! Thank you all!<br /><br />Please check out my Amazon storefront for categorized skin care products that I recommend:<br /><a rel="nofollow" target="blank" href="https://www.amazon.com/shop/danielsugaimd">https://www.amazon.com/shop/danielsugaimd</a><br /><br />Please follow me on Instagram for more skin care tips and education: <a rel="nofollow" target="blank" href="https://www.instagram.com/danielsugaimd/">https://www.instagram.com/danielsugaimd/</a><br />and on <br />TikTok: <a rel="nofollow" target="blank" href="https://vm.tiktok.com/J1AE5Fw/">https://vm.tiktok.com/J1AE5Fw/</a><br /><br /><br />Disclaimer: This video is not intended to be a substitute for medical advice, diagnosis or treatment with your healthcare professional. This is for medical educational purposes only. <br />I am not sponsored by any of the companies mentioned in this video. As an Amazon Associate/Influencer, Shop My Shelf, Reward Style Affiliate, DRMTLGY and SkinStore Affiliate Partner I earn from qualifying purchases. <br /><br />Dr. Daniel Sugai<br />Board Certified Dermatologist{% endraw %}
