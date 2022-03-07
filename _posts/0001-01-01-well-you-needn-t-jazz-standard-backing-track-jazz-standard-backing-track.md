@@ -1,0 +1,15 @@
+---
+title: "Well You Needn't - Jazz Standard Backing Track"
+image: "https:\/\/i.ytimg.com\/vi\/JhyrJGLAYmU\/hqdefault.jpg"
+vid_id: "JhyrJGLAYmU"
+categories: "Music"
+tags: ["jazz","backing track","play along"]
+date: "2022-03-07T08:27:05+03:00"
+vid_date: "2022-02-08T15:10:06Z"
+duration: "PT20M13S"
+viewcount: "176"
+likeCount: "7"
+dislikeCount: ""
+channel: "PRACTICE JAZZ"
+---
+{% raw %}[Jazz Standard Backing Track]<br /><br />00:00 - Piano Trio <br />             Piano, Bass and Drum<br />05:03 - No Piano <br />             Only Bass and Drum<br />10:16 - No Bass<br />             Only Piano and Drum<br />15:09 - Guitar Trio<br />              Electric Guitar, Bass and Drum<br /><br />1. Title : Well You Needn't<br />2. Key :  F Key<br />3. Tempo : 132 bpm<br />4. 4/4 Jazz Swing Feel<br />5. Piano, Guitar,  Double Bass and Drum<br />6. 5 Times Chorus<br /><br />🔴 Download highest quality Audio files<br />     - Option 1 : Join my channel<br />                          <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCGK1oyZHx3OydPVXowdQDjg/join">https://www.youtube.com/channel/UCGK1oyZHx3OydPVXowdQDjg/join</a><br />     - Option 2 : Join Patreon membership.<br />                          <a rel="nofollow" target="blank" href="https://www.patreon.com/practicejazz">https://www.patreon.com/practicejazz</a><br />       <br />⛔️ If you want to use this backing track for  your own purpose?<br />       Email me  📩  jazzup@outlook.com<br /><br />❤️ Donation : <a rel="nofollow" target="blank" href="https://paypal.me/practicejazz">https://paypal.me/practicejazz</a><br /><br />1️⃣ Jazz Blues Exercise<br />       <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLGqIDIwEuHVvzDZ35b2D695ZBhYXr9IRB">https://www.youtube.com/playlist?list=PLGqIDIwEuHVvzDZ35b2D695ZBhYXr9IRB</a><br /><br />2️⃣ The First 5 Jazz Standard  You Need To Practice<br />       <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLGqIDIwEuHVt1RW1QmDIP9VRsI178QjZs">https://www.youtube.com/playlist?list=PLGqIDIwEuHVt1RW1QmDIP9VRsI178QjZs</a><br /><br />3️⃣ 50 Jazz Standard Every Jazz Musician Need To Know<br />       <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLGqIDIwEuHVtmopXz07tJiS_07KTJBQZo">https://youtube.com/playlist?list=PLGqIDIwEuHVtmopXz07tJiS_07KTJBQZo</a><br /><br />4️⃣ 200 Jazz Standard You Want To Know <br />       <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLGqIDIwEuHVtuwL-NvLayV28EsEiJQYQL">https://youtube.com/playlist?list=PLGqIDIwEuHVtuwL-NvLayV28EsEiJQYQL</a><br /><br />5️⃣ Jazz Organ <br />      <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLGqIDIwEuHVvDLAlMK3qxvSg2HOMJRMoY">https://www.youtube.com/playlist?list=PLGqIDIwEuHVvDLAlMK3qxvSg2HOMJRMoY</a><br /><br />🌐 PRACTICEJAZZ Website : <a rel="nofollow" target="blank" href="https://www.practicejazz.com">https://www.practicejazz.com</a><br /><br />#Jazz #BackingTrack{% endraw %}
