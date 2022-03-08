@@ -1,0 +1,15 @@
+---
+title: "Outdated E1 - Outdated at 24"
+image: "https:\/\/i.ytimg.com\/vi\/87TxzMPDbl8\/hqdefault.jpg"
+vid_id: "87TxzMPDbl8"
+categories: "People-Blogs"
+tags: ["outdated","isabel brown","dating"]
+date: "2022-03-08T13:58:56+03:00"
+vid_date: "2022-02-22T14:00:05Z"
+duration: "PT33M7S"
+viewcount: "1213"
+likeCount: "122"
+dislikeCount: ""
+channel: "Isabel Brown"
+---
+{% raw %}I never thought at age 24, I’d feel so Outdated by modern dating and relationship standards. Who knew it’d become so controversial to be a biological woman searching for a husband and wanting to become a mom? Turns out, other people are feeling exactly the same way—actually, we kind of ALL are.<br /><br />Welcome to my new weekly series, Outdated, where we’re diving in headfirst to the hardest-hit aspects of society by the wrecking ball of progressive Leftist culture—gender and dating. We've never lived through a more confusing time--biology is antithetical to gender &amp; meaningful, intentional relationships are a thing of the past. Leaders in culture push vices that leave young adults feeling objectified and hopeless. Outdated is here to change that--daring to tell the truth in a world that's rejecting it and leading American culture back to what truly brings us joy!<br /><br />For our first episode this week, I wanted to cover just WHY Americans are so miserable in our dating lives, relationships, and marriages—the facts may shock you.<br /><br />Tune in every Tuesday for a new episode! I am SO glad you’re here!<br /><br />LET’S BE FRIENDS!!<br />Website | <a rel="nofollow" target="blank" href="https://www.isabel-brown.com/">https://www.isabel-brown.com/</a><br />Instagram | <a rel="nofollow" target="blank" href="https://www.instagram.com/theisabelbrown/">https://www.instagram.com/theisabelbrown/</a><br />TikTok  | <a rel="nofollow" target="blank" href="https://www.tiktok.com/@theisabelbrown">https://www.tiktok.com/@theisabelbrown</a><br />Facebook | <a rel="nofollow" target="blank" href="https://www.facebook.com/theisabelbrown">https://www.facebook.com/theisabelbrown</a> <br />GETTR | <a rel="nofollow" target="blank" href="https://gettr.onelink.me/Epfq/de823c86">https://gettr.onelink.me/Epfq/de823c86</a>  <br />Twitter | <a rel="nofollow" target="blank" href="https://twitter.com/theisabelb">https://twitter.com/theisabelb</a><br /><br />Click here to sign up for my NEW &amp; IMPROVED weekly NEWSLETTER!! <a rel="nofollow" target="blank" href="https://www.isabel-brown.com/">https://www.isabel-brown.com/</a><br /><br />Click here for MERCH!! <a rel="nofollow" target="blank" href="https://www.isabel-brown.com/shop">https://www.isabel-brown.com/shop</a><br /><br />::::::::::::::::::::<br />Music: Sunset On Terra by HYBRID V is licensed under a Creative Commons License.<br /><a rel="nofollow" target="blank" href="https://creativecommons.org/licenses/...">https://creativecommons.org/licenses/...</a><br />Support by RFM - NCM: <a rel="nofollow" target="blank" href="https://bit.ly/2xGHypM">https://bit.ly/2xGHypM</a><br />::::::::::::::::::::{% endraw %}
