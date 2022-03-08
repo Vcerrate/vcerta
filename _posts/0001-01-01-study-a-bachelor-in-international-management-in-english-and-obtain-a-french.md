@@ -1,0 +1,15 @@
+---
+title: "Study a Bachelor in International Management in English and obtain a French degree!"
+image: "https:\/\/i.ytimg.com\/vi\/0i4HsZyj_eg\/hqdefault.jpg"
+vid_id: "0i4HsZyj_eg"
+categories: "Education"
+tags: ["Study abroad","Budapest","France"]
+date: "2022-03-08T07:25:25+03:00"
+vid_date: "2022-03-02T11:28:39Z"
+duration: "PT46M36S"
+viewcount: "3"
+likeCount: "0"
+dislikeCount: ""
+channel: "Viva-Mundo"
+---
+{% raw %}For more information please visit: <br /><a rel="nofollow" target="blank" href="https://www.essca.fr/en/">https://www.essca.fr/en/</a><br /><br />About The Webinar<br /><br />Gain a first impression of what studying a Bachelor in International Management in English in a French business school at ESSCA is like! Our International Recruitment Team will give you a comprehensive presentation of our Bachelor in International Management, as well as useful tips on application strategies! Furthermore, our ESSCA student ambassadors will share their personal experience and student life! Parents are also most welcome to join the event.<br /><br />What this Webinar will offer:<br /><br />Highly recognised international accreditations (AACSB, AMBA, EQUIS)<br />Small, seminar-style classes and group projects<br />Hands-on learning leading to essential skills<br />Practice-oriented approach and internships<br />Multicultural environment, programme 100% taught in English<br />Strong student mentoring system<br />Strong links with worldwide companies <br /> <br /><br />Student Testimonials: <br /><br />Viktória KÖVESI<br /><br />1st year student, Budapest Campus<br /><br />“The three international accreditations achieved by ESSCA is a testimony to the excellence of the programme and the success of the school’s education strategy. ESSCA is the best choice if you have always dreamed of studying in an international atmosphere. All our courses are practical, and the professors are always ready to help us. Being an ESSCA student is like being a member of a big family. During the three-year programme, we are required to spend a semester abroad, which also helps us broaden our horizons. This programme provides superb opportunities to access leadership positions at the end of our studies”<br /><br /> <br /><br />William Serge CHAPRON<br /><br />1st year Bachelor student, Budapest Campus<br /><br />“I chose ESSCA because I knew it could help me to become who I wanted to be and to do what I wanted to do. I knew the school would help me develop the skills I needed to achieve my goals and dreams. I like the way teachers treat us like colleagues and not just like kids. They take everyone seriously and they listen to our ideas. The classes are interactive and very interesting. I was able to fit in quickly, and nowadays we form a great team with a great team spirit as well. If you want to make sure you’ll become an effective leader with impressive skills and a huge network, come to ESSCA. The school is preparing the future leaders and entrepreneurs of the world”{% endraw %}
