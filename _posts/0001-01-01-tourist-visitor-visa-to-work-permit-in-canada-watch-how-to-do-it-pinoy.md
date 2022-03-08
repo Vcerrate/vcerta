@@ -1,0 +1,15 @@
+---
+title: "TOURIST \/ VISITOR VISA TO WORK PERMIT IN CANADA | WATCH HOW TO DO IT | PINOY TIPS | BUHAY CANADA"
+image: "https:\/\/i.ytimg.com\/vi\/DEIGKgNZf00\/hqdefault.jpg"
+vid_id: "DEIGKgNZf00"
+categories: "People-Blogs"
+tags: ["TOURIST","VISITOR","PERMIT"]
+date: "2022-03-09T02:18:26+03:00"
+vid_date: "2022-03-06T08:41:59Z"
+duration: "PT13M22S"
+viewcount: "1202"
+likeCount: "61"
+dislikeCount: ""
+channel: "Lucero Jazz"
+---
+{% raw %}VISITORS VISA TO WORK PERMIT IN CANADA<br /><br /><a rel="nofollow" target="blank" href="https://www.canada.ca/en/immigration-refugees-citizenship/corporate/publications-manuals/operational-bulletins-manuals/service-delivery/coronavirus/temporary-residence/work-permit/visitor-work-permits.html">https://www.canada.ca/en/immigration-refugees-citizenship/corporate/publications-manuals/operational-bulletins-manuals/service-delivery/coronavirus/temporary-residence/work-permit/visitor-work-permits.html</a><br /><br />_______________________<br />DISCLAIMER: <br />Any information provided on my Youtube Channel @LuceroJazz is of a general nature and is for educational/informational purposes only. Should you decide to act upon any information on this channel, you do so at your own risk.<br /><br />**What is LMIA - <a rel="nofollow" target="blank" href="https://www.cic.gc.ca/english/helpcen...">https://www.cic.gc.ca/english/helpcen...</a><br /><br />**Work Permit Process - <a rel="nofollow" target="blank" href="https://www.canada.ca/en/immigration-...">https://www.canada.ca/en/immigration-...</a><br /><br />**Canadian Style Resume:<br /><a rel="nofollow" target="blank" href="https://zety.com/blog/canadian-resume">https://zety.com/blog/canadian-resume</a><br /><br />**Cover Letter Samples:<br /><a rel="nofollow" target="blank" href="https://www.monster.ca/career-advice/cover-letter-resumes/cover-letter-samples">https://www.monster.ca/career-advice/cover-letter-resumes/cover-letter-samples</a><br /><br />**My video about my Resume:<br /><a rel="nofollow" target="blank" href="https://youtu.be/T-grLPElDEE">https://youtu.be/T-grLPElDEE</a><br /><br />**Jobs in Canada:<br /><a rel="nofollow" target="blank" href="https://www.jobbank.gc.ca/jobsearch/jobsearch?flg=E&amp;fss=1&amp;fexp=0&amp;page=1&amp;sort=D&amp;fsrc=16&amp;fskl=101010&amp;fskl=101020">https://www.jobbank.gc.ca/jobsearch/jobsearch?flg=E&amp;fss=1&amp;fexp=0&amp;page=1&amp;sort=D&amp;fsrc=16&amp;fskl=101010&amp;fskl=101020</a><br /><br /><br />_____<br />Song:<br />Just Smile by LiQWYD <a rel="nofollow" target="blank" href="https://soundcloud.com/liqwyd​">https://soundcloud.com/liqwyd​</a> <br />Creative Commons — Attribution 3.0 Unported — CC BY 3.0 <br />Free Download / Stream: <a rel="nofollow" target="blank" href="https://bit.ly/-just-smile​">https://bit.ly/-just-smile​</a><br />Music promoted by Audio Library <a rel="nofollow" target="blank" href="https://youtu.be/lMGw8bTCBww​">https://youtu.be/lMGw8bTCBww​</a><br /><br />#CanadaTouristVisa #TouristVisaToWorkPermit #PinoyCanada{% endraw %}
