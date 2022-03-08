@@ -1,0 +1,15 @@
+---
+title: "EMOTIONAL REACTION TO SO WILL I 100 BILLION X by HILLSONG UNITED - NON CHRISTIAN REACTION"
+image: "https:\/\/i.ytimg.com\/vi\/brAFMadbrKM\/hqdefault.jpg"
+vid_id: "brAFMadbrKM"
+categories: "Music"
+tags: ["Leonardo Torres","guitar","spanish music"]
+date: "2022-03-08T18:35:59+03:00"
+vid_date: "2020-05-31T01:30:11Z"
+duration: "PT15M25S"
+viewcount: "601259"
+likeCount: "34092"
+dislikeCount: ""
+channel: "Leonardo Torres"
+---
+{% raw %}IMPORTANT INFORMATION: <br /><br />Here is a RAW and SUPER EMOTIONAL reaction to Hillsong United's song titled, &quot;So Will I (100 Billion X)  This is the first time I am hearing this song, the intro and outro are edited but my reactions to the songs are all raw and uncut. Sit back and enjoy! If you like this channel, please share it with all of your friends. <br /><br />#musicreview #reactionvideo #musicreactionvideo #Hillsongunited #hillsongChurch #SoWillI #Sowilli100billionx<br /><br />-<br />SUBSCRIBE: <a rel="nofollow" target="blank" href="https://bit.ly/2XBsoxj">https://bit.ly/2XBsoxj</a><br /><br /><br /><br />-<br />Watch the exclusive one on one conversation with Pastor Chad Belew from The Arsenal Church:<br /><a rel="nofollow" target="blank" href="https://bit.ly/2Y9QaQp">https://bit.ly/2Y9QaQp</a><br /><br /><br /><br />-<br />YOUTUBE COMMUNITY FORUM:<br /><a rel="nofollow" target="blank" href="https://bit.ly/2BDMmiF">https://bit.ly/2BDMmiF</a><br /><br /><br />-<br />INSTAGRAM:<br /><a rel="nofollow" target="blank" href="http://www.instagram.com/toweroftorres">http://www.instagram.com/toweroftorres</a><br /><br />TikTok:<br /><a rel="nofollow" target="blank" href="http://vm.tiktok.com/KSde77/">http://vm.tiktok.com/KSde77/</a><br /><br /><br />-<br />BECOME A PATREON SUPPORTER<br /><br /><a rel="nofollow" target="blank" href="https://www.patreon.com/toweroftorres">https://www.patreon.com/toweroftorres</a><br /><br /><br /><br />-<br />AFFILIATE LINKS:<br /><br />OneOdio Headphones:<br /><a rel="nofollow" target="blank" href="https://www.oneodio.com/collections/headphones?ref=aXJodbr3gop3">https://www.oneodio.com/collections/headphones?ref=aXJodbr3gop3</a><br />USE PROMO CODE: LEONARDOTORRES<br /><br />SHOP INSTRUMENTS:<br /><a rel="nofollow" target="blank" href="https://amzn.to/2Mv84rc">https://amzn.to/2Mv84rc</a><br /><br />Classical Guitar Starter Kit:<br /><a rel="nofollow" target="blank" href="https://amzn.to/2MoypXR">https://amzn.to/2MoypXR</a><br /><br />Electric Guitar Starter Kit:<br /><a rel="nofollow" target="blank" href="https://amzn.to/3gQ54Uo">https://amzn.to/3gQ54Uo</a><br /><br />*Thank you for shopping through the affiliate links.<br /><br /><br />-<br />Love the content? Consider making a contribution:<br /><br />VENMO: @LeoTorresSnaps<br />ZELLE: torrestv13@gmail.com<br /><br /><br /><br />-<br /><br />Thank you for watching this video, please note that the comments made in this video is a personal observation of this performance ONLY. Any constructive criticisms are not to be taken personal, it is only a comment about the performance and not about the artist as a whole. Please be respectful in the comments.{% endraw %}
