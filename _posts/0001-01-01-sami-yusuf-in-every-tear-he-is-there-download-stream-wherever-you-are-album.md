@@ -1,0 +1,15 @@
+---
+title: "Sami Yusuf - In Every Tear, He Is There"
+image: "https:\/\/i.ytimg.com\/vi\/WYs-QXjFcvQ\/hqdefault.jpg"
+vid_id: "WYs-QXjFcvQ"
+categories: "Music"
+tags: ["Sami Yusuf","Forgotten Promises","You Came To Me"]
+date: "2022-03-08T23:14:28+03:00"
+vid_date: "2011-03-23T19:32:38Z"
+duration: "PT5M32S"
+viewcount: "9252452"
+likeCount: "42536"
+dislikeCount: ""
+channel: "Sami Yusuf"
+---
+{% raw %}Download/Stream 'Wherever You Are' album <a rel="nofollow" target="blank" href="http://andnt.co/WhereverYouAre">http://andnt.co/WhereverYouAre</a><br />Watch Sami's Official YouTube playlist  <a rel="nofollow" target="blank" href="http://andnt.co/SYplaylist">http://andnt.co/SYplaylist</a><br />Listen to samples from the album: <a rel="nofollow" target="blank" href="https://goo.gl/qa1XWY">https://goo.gl/qa1XWY</a><br /><br /> – Join Sami Yusuf on Spotify and add your favourite tracks to your personal playlist <a rel="nofollow" target="blank" href="http://andnt.co/SY-Spotify">http://andnt.co/SY-Spotify</a><br /> – Subscribe to Sami Yusuf official YouTube channel <a rel="nofollow" target="blank" href="http://andnt.co/YT-samiyusuf">http://andnt.co/YT-samiyusuf</a><br /><br />Follow Sami Yusuf on:<br /><a rel="nofollow" target="blank" href="http://www.twitter.com/samiyusuf">http://www.twitter.com/samiyusuf</a><br /><a rel="nofollow" target="blank" href="http://www.facebook.com/samiyusuf">http://www.facebook.com/samiyusuf</a><br /><a rel="nofollow" target="blank" href="http://www.instagram.com/samiyusuf">http://www.instagram.com/samiyusuf</a><br /><a rel="nofollow" target="blank" href="http://www.samiyusufofficial.com">http://www.samiyusufofficial.com</a><br /><br /><br />Credits:<br /><br />Music: Sami Yusuf<br />Lyrics: Conner Reeves<br />Published by Andante Records Administered by Fairwood Music (UK) Ltd for the World<br /><br />Lyrics:<br /><br />Some might say this world today shows<br />God's left us to our mistakes oh<br />He has never been<br />So far away <br />Some might say<br />How could any father stand<br />See his children across many lands<br />Suffer so and give no helping hand<br />No helping hand<br /><br />Somewhere tonight<br />Far away and out of sight<br />There's a child that's too weak to cry<br />Hmmm<br />Deep in those eyes<br />Can't you see him in disguise<br />Reaching out to the heart that's in you<br />And I<br /><br />In every tear<br />That is where<br />He is there<br /><br />He's the hand that wipes that brow<br />He's the tear that trickles down<br />Upon the face that cries without a sound<br />We need you now<br />What a simple choice to make<br />Between what you give and what you take<br />When what you give <br />Such precious life could save, life could save<br /><br />Somewhere inside<br />There's a part of you that asks why<br />Would he leave so many so far behind<br />And deep in those eyes<br />Can't you see Him in disguise<br />Reaching out to the heart that's in you<br />And I…<br /><br />#SamiYusuf #Charity #HeIsThere #AndanteRecords<br /><br />© Andante Records. All rights reserved{% endraw %}
