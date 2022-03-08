@@ -1,0 +1,15 @@
+---
+title: "More Gran Turismo 7 Cuz It's Awesome | 100% Eventually"
+image: "https:\/\/i.ytimg.com\/vi\/6jGISPOHb2k\/hqdefault.jpg"
+vid_id: "6jGISPOHb2k"
+categories: "Gaming"
+tags: ["Turismo","Awesome","Eventually"]
+date: "2022-03-08T07:09:17+03:00"
+vid_date: "2022-03-07T23:00:23Z"
+duration: "PT3H20M32S"
+viewcount: "99478"
+likeCount: "4639"
+dislikeCount: ""
+channel: "Jimmy Broadbent"
+---
+{% raw %}I am a good gamer<br /><br />Go to <a rel="nofollow" target="blank" href="https://nordvpn.com/jimmybroadbent">https://nordvpn.com/jimmybroadbent</a> or use code jimmybroadbent to get a 2- year plan plus 1 additional month with a huge discount.<br />Support The Stream With A Tip - <a rel="nofollow" target="blank" href="https://streamlabs.com/jimski10">https://streamlabs.com/jimski10</a><br />Or on Patreon - <a rel="nofollow" target="blank" href="https://www.patreon.com/jimmybroadbent">https://www.patreon.com/jimmybroadbent</a><br /><br />iRacing referral email - j_broadbent@live.co.uk<br /><br />FAQ - <a rel="nofollow" target="blank" href="https://pastebin.com/ha9pf9tK">https://pastebin.com/ha9pf9tK</a><br /><br />​If you want to support me aswell as gain access to some awesome emotes then consider &quot;Joining&quot; and becoming sponsor! <a rel="nofollow" target="blank" href="https://gaming.youtube.com/c/JimmyBroadbentSimRacer/live">https://gaming.youtube.com/c/JimmyBroadbentSimRacer/live</a><br /><br />Enter discount code &quot;Broadbent&quot; to get 10% off racing boots from - <a rel="nofollow" target="blank" href="https://abruzzi-official.co.uk/">https://abruzzi-official.co.uk/</a><br /><br />Rim Provided by Ascher Racing - <a rel="nofollow" target="blank" href="https://www.ascher-racing.com/">https://www.ascher-racing.com/</a><br /><br />Sim Rig GT and Sprint Pedals provided by Heusinkveld Engineering - <a rel="nofollow" target="blank" href="https://heusinkveld.com/?v=79cba1185463">https://heusinkveld.com/?v=79cba1185463</a><br /><br />Handbrake V1.5 and SQ V1.5 shifter provided by Fanatec - <a rel="nofollow" target="blank" href="https://www.fanatec.com/eu-en/product/pc">https://www.fanatec.com/eu-en/product/pc</a><br /><br />Wheel provided by Simucube - <a rel="nofollow" target="blank" href="https://www.simucu.be/sc2pro-direct-drive-wheel-base">https://www.simucu.be/sc2pro-direct-drive-wheel-base</a><br /><br />Twitch - <a rel="nofollow" target="blank" href="https://www.twitch.tv/jimmy_broadbent">https://www.twitch.tv/jimmy_broadbent</a><br />Business Enquiries - jimmy@coderedesports.com<br />Discord - <a rel="nofollow" target="blank" href="https://discord.gg/HKw9Vtqdf6">https://discord.gg/HKw9Vtqdf6</a><br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/JimmyBroadbent">https://twitter.com/JimmyBroadbent</a><br />Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/jimmerinoBombino/">https://www.facebook.com/jimmerinoBombino/</a><br /><br />Send me stuff! (if ya want)<br /><br />Po Box 53<br />Unit 3<br />Burnt Barns Farm<br />Ninfield<br />TN33 9LZ{% endraw %}
