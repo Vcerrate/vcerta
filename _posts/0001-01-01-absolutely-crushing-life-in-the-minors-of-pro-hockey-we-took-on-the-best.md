@@ -1,0 +1,15 @@
+---
+title: "Absolutely Crushing | Life In The Minors of Pro Hockey"
+image: "https:\/\/i.ytimg.com\/vi\/rG9v59m4wis\/hqdefault.jpg"
+vid_id: "rG9v59m4wis"
+categories: "Sports"
+tags: ["pro hockey","Sweden","varberg"]
+date: "2022-03-08T19:05:01+03:00"
+vid_date: "2022-03-07T15:00:12Z"
+duration: "PT8M10S"
+viewcount: "17505"
+likeCount: "683"
+dislikeCount: ""
+channel: "trav4oilers"
+---
+{% raw %}We took on the best team in our Division and the team we are chasing for the playoffs. I gave up not 1, but 2 of the WORST goals I have ever given up in my lifetime. Would it be enough to ruin 3 straight wins? New vlogs every Monday and Thursday at 10AM Eastern :)<br /><br />Go to <a rel="nofollow" target="blank" href="https://NordVPN.com/TRAV4OILERS">https://NordVPN.com/TRAV4OILERS</a>  to get a 2-year plan plus 1 additional months with a huge discount.<br /><br />Subscribe ➝ <a rel="nofollow" target="blank" href="https://www.youtube.com/user/Trav4oilers?sub_confirmation=1">https://www.youtube.com/user/Trav4oilers?sub_confirmation=1</a><br />MERCH ➝  <a rel="nofollow" target="blank" href="https://kproshop.com/shop/ols/products/trav4-sweater">https://kproshop.com/shop/ols/products/trav4-sweater</a><br /><br />MY SOCIAL<br />Instagram  ► <a rel="nofollow" target="blank" href="http://instagram.com/trav4oilers">http://instagram.com/trav4oilers</a><br />TikTok   ► <a rel="nofollow" target="blank" href="https://www.tiktok.com/@trav4oilers">https://www.tiktok.com/@trav4oilers</a><br /> <br />MY PODCAST &quot;SLANGIN' THE BIZKIT &quot;<br />Apple ► <a rel="nofollow" target="blank" href="https://podcasts.apple.com/ca/podcast/slangin-the-bizkit/id1562205682">https://podcasts.apple.com/ca/podcast/slangin-the-bizkit/id1562205682</a><br />Video Podcast ► <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCL_pqKCp4cQw-n39acga4nA">https://www.youtube.com/channel/UCL_pqKCp4cQw-n39acga4nA</a><br /><br />MY ESSENTIALS  (I get paid when you use &quot;TRAVSUCKS&quot; code) <br />Pro Laces   ➝  <a rel="nofollow" target="blank" href="https://www.prolaces.ca/en/home/30-trav-2.html#/font_style_color-no_font">https://www.prolaces.ca/en/home/30-trav-2.html#/font_style_color-no_font</a>  (10% off)<br />Buttendz    ➝ <a rel="nofollow" target="blank" href="http://buttendz.com/discount/travsucks2021">http://buttendz.com/discount/travsucks2021</a> (10% off)<br />Beyond Yourself Supplements ➝  <a rel="nofollow" target="blank" href="https://beyondyourself.ca">https://beyondyourself.ca</a> (20% off)<br />Insta360 OneR ➝ <a rel="nofollow" target="blank" href="https://www.insta360.com/sal/one_r?insrc=INRP0XR">https://www.insta360.com/sal/one_r?insrc=INRP0XR</a><br /><br />00:00 Intro<br />00:07 1st period<br />01:32 2nd period<br />02:32 3rd period<br />03:20 post game reaction<br />03:47 I haven't been good lately<br />05:00 Goalie coach thoughts (Pasco Valana)<br />05:40 Goalie Skate<br />06:50 Show me the money<br />07:23 Max sponsorship<br />07:44 Outro{% endraw %}
