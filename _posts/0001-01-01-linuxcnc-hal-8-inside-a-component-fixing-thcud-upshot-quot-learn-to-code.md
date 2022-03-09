@@ -1,0 +1,15 @@
+---
+title: "LinuxCNC HAL #8: inside a component, fixing thcud"
+image: "https:\/\/i.ytimg.com\/vi\/TDdlRoKsgqs\/hqdefault.jpg"
+vid_id: "TDdlRoKsgqs"
+categories: "Science-Technology"
+tags: ["linuxcnc","linux","cnc"]
+date: "2022-03-09T21:51:00+03:00"
+vid_date: "2020-02-09T08:32:19Z"
+duration: "PT28M5S"
+viewcount: "1272"
+likeCount: "32"
+dislikeCount: ""
+channel: "swolebro"
+---
+{% raw %}Upshot: &quot;Learn to code&quot; is a thing, right?<br /><br />Topic index:<br />00:00 - intro, why would you want to write a real time component<br />01:33 - all the components, ko's, comp's, and getting the code<br />04:00 - digging into the LinuxCNC source<br />05:25 - looking at and2.comp<br />08:05 - the main part of the comp, how it's like Arduino code<br />09:50 - redoing the messy ohmic probing HAL in a single line of a comp <br />11:10 - compiling and installing a comp file<br />13:44 - looking at thcud.comp, header, and the straightforward bugs<br />15:07 - the main function<br />21:43 - the more difficult bug<br />24:59 - getting the fix, the gist, and fucking lawyers<br />26:46 - the fix applied<br />27:29 - wrap-up<br /><br />My notes on getting these thcud fixes:<br /><a rel="nofollow" target="blank" href="https://github.com/swolebro/swolebro-youtube/blob/master/linuxcnc/misc/thcud-fixes">https://github.com/swolebro/swolebro-youtube/blob/master/linuxcnc/misc/thcud-fixes</a><br /><br />Software Licenses and Failed States, by Martin Sústrik, author of ZeroMQ.<br /><a rel="nofollow" target="blank" href="http://250bpm.com/blog:82">http://250bpm.com/blog:82</a><br /><br />Bonus fun, Programming Sucks, by some hilarious dude.<br /><a rel="nofollow" target="blank" href="https://www.stilldrinking.org/programming-sucks">https://www.stilldrinking.org/programming-sucks</a><br /><br />The thcud gist:<br /><a rel="nofollow" target="blank" href="https://gist.github.com/swolebro/483973b2081784baca9f04a9a95c6cea">https://gist.github.com/swolebro/483973b2081784baca9f04a9a95c6cea</a><br /><br />Browse the files exactly as shown in this video: <a rel="nofollow" target="blank" href="https://github.com/swolebro/swolebro-youtube/tree/hal-tutorial-pt08">https://github.com/swolebro/swolebro-youtube/tree/hal-tutorial-pt08</a><br /><br />Check out the latest, including my other notes and links to other people's videos and configs:<br /><a rel="nofollow" target="blank" href="https://github.com/swolebro/swolebro-youtube/tree/master/linuxcnc">https://github.com/swolebro/swolebro-youtube/tree/master/linuxcnc</a><br /><br />Here's the full plasma build series:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL9xPdBFt5g3Q6TkuhhfQmQNm6TdvNkPuX">https://www.youtube.com/playlist?list=PL9xPdBFt5g3Q6TkuhhfQmQNm6TdvNkPuX</a><br /><br />Just the LinuxCNC stuff:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL9xPdBFt5g3Qnn3ZY2wYh7L2yzZ377UwI">https://www.youtube.com/playlist?list=PL9xPdBFt5g3Qnn3ZY2wYh7L2yzZ377UwI</a><br /><br />Help me make more cool shit:<br /><a rel="nofollow" target="blank" href="http://paypal.me/swolebroshopworks">http://paypal.me/swolebroshopworks</a>{% endraw %}
