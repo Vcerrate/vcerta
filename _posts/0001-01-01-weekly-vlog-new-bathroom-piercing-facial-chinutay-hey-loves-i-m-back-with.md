@@ -1,0 +1,15 @@
+---
+title: "WEEKLY VLOG | New Bathroom, Piercing & Facial!  | CHINUTAY"
+image: "https:\/\/i.ytimg.com\/vi\/ho0bLtNXJ88\/hqdefault.jpg"
+vid_id: "ho0bLtNXJ88"
+categories: "People-Blogs"
+tags: ["chinutay","weekly vlog","bathroom"]
+date: "2022-03-10T01:00:58+03:00"
+vid_date: "2022-03-07T14:03:03Z"
+duration: "PT21M30S"
+viewcount: "7408"
+likeCount: "382"
+dislikeCount: ""
+channel: "Chinutay A."
+---
+{% raw %}Hey loves!!! I'm back with another weekly vlog full of randomness and updates!<br /><br />I know this video is all over the place but I wanted to show you what happened in my life during this week! <br /><br />ALSO, I'm so excited to start the daily Ramadan vlogs! Let me know if you are excited as well, I know you guys really enjoyed when I did it a couple of years ago so I do hope you are just as excited as I am!<br /><br />Make sure you #subscribe and join our family to watch the daily vlogs as soon as they come out!<br /><br />SHOP THE PRODUCTS ON THE VIDEO:<br /><br />✨ CHINUTAY &amp; CO MULBERRY SILK FACE MASK<br /><a rel="nofollow" target="blank" href="https://www.chinutayco.com/shop-1/nocte">https://www.chinutayco.com/shop-1/nocte</a><br /><br />✨ CHINUTAY &amp; CO BLACK SEED KAFTAN SET<br /><a rel="nofollow" target="blank" href="https://www.chinutayco.com/shop-loungewear/black-seed-kaftan">https://www.chinutayco.com/shop-loungewear/black-seed-kaftan</a><br /><br />✨ BYREDO BLANCHE EAU DE PARFUM<br /><a rel="nofollow" target="blank" href="https://rstyle.me/+1R5nicngj0_tqveTTyrXQw">https://rstyle.me/+1R5nicngj0_tqveTTyrXQw</a><br /><br />FIND ME ON<br />✨MY INSTAGRAM <a rel="nofollow" target="blank" href="https://www.instagram.com/chinutay/?h...">https://www.instagram.com/chinutay/?h...</a><br />✨MY HOME INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/chinutayhom...">https://www.instagram.com/chinutayhom...</a><br />✨MY SHOP:www.chinutayco.com<br /><br />A LITTLE BIT ABOUT ME!<br />👨‍👩‍👦 I’m 29 married and mother to Adam.<br /> 💄I create beauty tutorials, reviews , home vlogs and more! <br />🇪🇹I’m Ethiopian<br />✈️ from Toronto Canada moved to London England <br />📷 I film with a Canon m50 and my iPhone XX.<br /><br />MUSIC BY:<br />--------------------------------------------------------------<br />♪ Rose (Prod. by Lukrembo)<br />Link : <a rel="nofollow" target="blank" href="https://youtu.be/XIhyti2Qa74">https://youtu.be/XIhyti2Qa74</a><br />--------------------------------------------------------------<br />--------------------------------------------------------------<br />♪ Sunset (Prod. by Lukrembo)<br />Link : <a rel="nofollow" target="blank" href="https://youtu.be/gv7hcXCnjOw">https://youtu.be/gv7hcXCnjOw</a><br />--------------------------------------------------------------<br /><br />Affiliate Links: I receive a small % of commission from anything bought via the affiliate links below. It costs you no more.<br /><br />Gifts: Anything labelled with * denotes a Press sample or usage of a PR discount code{% endraw %}
