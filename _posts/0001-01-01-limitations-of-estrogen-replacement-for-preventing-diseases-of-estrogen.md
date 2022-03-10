@@ -1,0 +1,15 @@
+---
+title: "Limitations of Estrogen Replacement for Preventing Diseases of Estrogen Deficiency - 293"
+image: "https:\/\/i.ytimg.com\/vi\/ySsIl9Inrfw\/hqdefault.jpg"
+vid_id: "ySsIl9Inrfw"
+categories: "Education"
+tags: ["menopause barbie menopause taylor menopause","menopause management","hormones"]
+date: "2022-03-11T01:59:46+03:00"
+vid_date: "2022-03-08T19:00:18Z"
+duration: "PT37M49S"
+viewcount: "4224"
+likeCount: "319"
+dislikeCount: ""
+channel: "Menopause Taylor"
+---
+{% raw %}As I’ve said over and over, everything, absolutely everything has limitations. And that goes for estrogen replacement, too. Knowing the limitations of each and every option for menopause management helps you frame your expectations and choose options that can actually accomplish your goals. In this video, I will present the limitations of estrogen replacement for preventing the three big diseases due to estrogen deficiency.<br /><br />Click here for the chart: <a rel="nofollow" target="blank" href="https://menopausetaylor.me/charts">https://menopausetaylor.me/charts</a><br /><br />Visit my website: <a rel="nofollow" target="blank" href="https://menopausetaylor.me/">https://menopausetaylor.me/</a><br /><br />Click here to print the worksheet: <a rel="nofollow" target="blank" href="https://menopausetaylor.centradeit.ro/storage/files/worksheet.pdf">https://menopausetaylor.centradeit.ro/storage/files/worksheet.pdf</a> <br /><br />Click here to find the outline notes: <a rel="nofollow" target="blank" href="https://menopausetaylor.centradeit.ro/storage/files/outline-notes.pdf">https://menopausetaylor.centradeit.ro/storage/files/outline-notes.pdf</a><br /><br />Watch every Menopause Taylor episode from the beginning: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLOUBdLFwUtyYimWltwfsEQneVYjIaMQH-">https://www.youtube.com/playlist?list=PLOUBdLFwUtyYimWltwfsEQneVYjIaMQH-</a><br /><br />Check out my book, Menopause: Your Management Your Way ... Now and for the Rest of Your Life: <a rel="nofollow" target="blank" href="https://menopausetaylor.me/product/menopause-your-management-your-way-now-and-for-the-rest-of-your-life-book/">https://menopausetaylor.me/product/menopause-your-management-your-way-now-and-for-the-rest-of-your-life-book/</a><br /><br />Click to listen to my Radio Show: The State of Menopause in the World Today - <a rel="nofollow" target="blank" href="https://www.iheart.com/podcast/966-Menopause-Managemen-29418093/">https://www.iheart.com/podcast/966-Menopause-Managemen-29418093/</a><br /><br />Connect with me on social media:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/menopausetaylor/">https://www.facebook.com/menopausetaylor/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/BarbieTaylorMD">https://twitter.com/BarbieTaylorMD</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/menopausetaylor/">https://www.instagram.com/menopausetaylor/</a><br />Pinterest: <a rel="nofollow" target="blank" href="https://www.pinterest.com/DrBarbaraTaylor">https://www.pinterest.com/DrBarbaraTaylor</a>{% endraw %}
