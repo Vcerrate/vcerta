@@ -1,0 +1,15 @@
+---
+title: "Why Polestar is obsessed with EXTREME winter testing"
+image: "https:\/\/i.ytimg.com\/vi\/uQ-HPJht6Eg\/hqdefault.jpg"
+vid_id: "uQ-HPJht6Eg"
+categories: "Autos-Vehicles"
+tags: ["electric car youtube channel","why should i buy an electric car","renewable energy youtube"]
+date: "2022-03-10T03:22:53+03:00"
+vid_date: "2022-03-08T17:00:38Z"
+duration: "PT21M"
+viewcount: "31471"
+likeCount: "3651"
+dislikeCount: ""
+channel: "Fully Charged Show"
+---
+{% raw %}In a UK exclusive, Jack heads to Swedish Lapland to check out Polestar's latest one-off creation and meet the delightfully eccentric chap who built it. But what exactly is the point of bespoke builds like this, and how does spending several months a year sliding around an ice lake help Polestar build better road cars? Check out the video to find out!<br /><br />Fully Charged LIVE is BACK! Get your tickets now:<br />Farnborough - 29th &amp; 30th April, 1st May 2022: <a rel="nofollow" target="blank" href="https://fullycharged.live/">https://fullycharged.live/</a><br />Amsterdam - 20th, 21st &amp; 22nd May 2022: <a rel="nofollow" target="blank" href="https://fullycharged.live/eu/">https://fullycharged.live/eu/</a><br />San Diego - 10th &amp; 11th September 2022: <a rel="nofollow" target="blank" href="https://fullycharged.live/us/">https://fullycharged.live/us/</a><br /><br />Timestamps:<br />0:00 Not just any Polestar 2<br />3:31 On with the 'research'<br />4:15 Why the Arctic?<br />5:58 What's different?<br />8:08 Fun lessons to learn<br />9:17 Oh dear<br />11:13 What went wrong<br />12:20 Why do extreme testing?<br />13:38 Jack's back!<br />15:38 3, 2, 1 - GO<br />17:53 What a day<br /><br />Become a Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/fullychargedshow">https://www.patreon.com/fullychargedshow</a><br />Become a YouTube member: use JOIN button above<br />Subscribe to Fully Charged &amp; the Fully Charged PLUS channels <br />Buy the Fully Charged Guide to Electric Vehicles &amp; Clean Energy : <a rel="nofollow" target="blank" href="https://buff.ly/2GybGt0">https://buff.ly/2GybGt0</a><br /><br />Browse the Fully Charged store: <a rel="nofollow" target="blank" href="https://shop.fullycharged.show/">https://shop.fullycharged.show/</a><br />Visit our LIVE exhibitions in the UK, USA &amp; Europe: <a rel="nofollow" target="blank" href="https://FullyCharged.Show/events">https://FullyCharged.Show/events</a><br />Subscribe for episode alerts and the Fully Charged newsletter: <a rel="nofollow" target="blank" href="https://fullycharged.show/zap-sign-up/">https://fullycharged.show/zap-sign-up/</a><br />Visit: <a rel="nofollow" target="blank" href="https://FullyCharged.Show">https://FullyCharged.Show</a><br />Find us on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/fullychargedshw">https://twitter.com/fullychargedshw</a><br />Follow us on Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/fullychargedshow">https://instagram.com/fullychargedshow</a><br /><br />#Polestar #Polestar2 #PolestarArcticCircle{% endraw %}
