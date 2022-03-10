@@ -1,0 +1,15 @@
+---
+title: "12 Abnormally Large Sea Creatures Caught On Camera"
+image: "https:\/\/i.ytimg.com\/vi\/L_aXckis_OQ\/hqdefault.jpg"
+vid_id: "L_aXckis_OQ"
+categories: "Education"
+tags: ["facts junkie","factsjunkie","facts"]
+date: "2022-03-10T05:08:06+03:00"
+vid_date: "2022-03-04T11:00:14Z"
+duration: "PT8M30S"
+viewcount: "91936"
+likeCount: "2578"
+dislikeCount: ""
+channel: "Facts Junkie"
+---
+{% raw %}The ocean is a mysterious place. It is completely packed with weird and unexplainable creatures, some bigger than others, but what happens when some of these creatures become too big for their own good from an unbelievably large lobster to the world's biggest tuna and goliath sea lions that could easily tip over a boat here are 12 abnormally large sea creatures caught on camera.<br /><br />► Subscribe For New Videos! ► <a rel="nofollow" target="blank" href="https://goo.gl/XPOHAZ">https://goo.gl/XPOHAZ</a><br /><br />Watch our “10 Weirdest Animals You Should Never Touch”<br />video here: <a rel="nofollow" target="blank" href="https://youtu.be/8wvRQGxJbho">https://youtu.be/8wvRQGxJbho</a><br />Watch our “12 Animals Reunited With Owners After Years!”<br />video here: <a rel="nofollow" target="blank" href="https://youtu.be/_DGDWVbW1Mc">https://youtu.be/_DGDWVbW1Mc</a><br />Watch our “10 Sea Monsters Scarier Than Sharks”<br />video here:<a rel="nofollow" target="blank" href="https://youtu.be/lbxpcvIBe3s">https://youtu.be/lbxpcvIBe3s</a><br /><br />Massive Squid<br /><br />Fishermen in Japan were caught off guard when their net pulled in a massive squid weighing more than 350 pounds. The squid measured around 11 feet in length. It's disturbing to know that these huge creatures are just roaming the sea waiting to wipe you out with their gigantic tentacles. This abnormally large squid belongs to a species of giant squid commonly found in the Antarctic ocean, the scary thing is that they have been recorded attacking humans, one of the most famous incidents being when a giant squid dragged a diver down to the depths of the ocean<br /><br />Monstrous Shrimp<br /><br />Now, this might not be the largest creature on the list but it's still equally impressive considering the fact that regular shrimp don’t grow much larger than 20 cm. This shrimp however is no ordinary crustacean, it looks about as big as a human foot. The creature is actually a mantis shrimp which are usually bigger in size than the regular bullet kind that we see every day. The largest mantis shrimp can grow up to be larger than 7 to 8 inches and they look scarier than other shrimp. It isn’t every day you see a shrimp that looks like it could rip your face off.<br /><br /><br /><br />Follow Us On Social Media <br /><br /><br /><br />Twitter <a rel="nofollow" target="blank" href="https://twitter.com/FactsJunkieYT">https://twitter.com/FactsJunkieYT</a><br /><br />Facebook <a rel="nofollow" target="blank" href="https://www.facebook.com/FactsJunkieYT">https://www.facebook.com/FactsJunkieYT</a><br /><br /><br /><br />► For copyright issues, send us an email at: factsjunkie@gmail.com{% endraw %}
