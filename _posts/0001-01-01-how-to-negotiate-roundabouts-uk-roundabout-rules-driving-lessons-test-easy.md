@@ -1,0 +1,15 @@
+---
+title: "How To Negotiate Roundabouts | UK Roundabout Rules | Driving Lessons & Test Easy Guide MSPSL Routine"
+image: "https:\/\/i.ytimg.com\/vi\/Diu1k_5H45k\/hqdefault.jpg"
+vid_id: "Diu1k_5H45k"
+categories: "Autos-Vehicles"
+tags: ["Roundabouts","mirrors signal-- manoeuvre","highway code"]
+date: "2022-03-12T09:53:46+03:00"
+vid_date: "2013-12-25T19:42:01Z"
+duration: "PT7M45S"
+viewcount: "3467600"
+likeCount: "16239"
+dislikeCount: ""
+channel: "Eastend Driving School"
+---
+{% raw %}A step by step guide on how to deal with roundabouts in UK. Using DVSA and UK Highway Code Rules. This video is perfect for learners preparing for driving test or just refreshing your roundabout rules or if you’re visiting UK.  Knowledge builds confidence so this is perfect for you if you’re learning to drive. Save money on lessons by understating roundabouts from this video. This video is created by highly knowledgeable grade A Instructor Shahel Khan.<br /><br />Visit Eastend Driving School in East London<br /><a rel="nofollow" target="blank" href="http://www.goeastend.co.uk">http://www.goeastend.co.uk</a><br /><br />Roundabout can be very daunting experience, especially a roundabout in UK with many roads joining in. However, once you understand the rules and principles and follow the hazard drill correctly it can be very easy and simple junction to deal with. The key is using the MSPSL routine correctly and timing it right too. <br />In this video we will discuss about how roundabouts work and who you need to give priority to. Then we will talk about how to identify the roundabout in good time. We will also explain the clock method and divide the roundabout into left and right section. This will make it easy to understand how to use the indicator (signal) correctly and where/how to position as you approach the roundabout. <br />In this video we will guide you step by step on how to take different turns on roundabouts. Explain how to use mirror, signal, positioning, speed and look (MSPSL).  Also, how to assess, decide and act before merging in to the roundabout (LADA). We will show you on this video how to turn first left at the roundabout, second left and turning right, including first, second and third exit. <br /><br />This video can be extremely helpful for new learners and for someone taking driving lessons and learning to drive. This video is recommended by many driving instructors for their pupil to watch before practicing roundabout lessons. Test centres like Goodmayes, Hither Green, Barking, Wansted, Sidcup and almost all the test centres in United Kingdom have at least one or two roundabouts on the route that you’ll need to deal with. So, this video will be very helpful for you to watch before going to your driving test.<br />This video is very helpful for anyone coming to UK/London and need to learn the rules and regulation of the roads. Driving in UK, there are lots of roundabouts unlike some country you hardly come a cross any roundabouts. There for I will advice you to please watch this video before driving in UK London or any other city.{% endraw %}
