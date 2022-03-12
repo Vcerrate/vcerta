@@ -1,0 +1,15 @@
+---
+title: "Ecuador drowned in thousands of tons of water and mud!"
+image: "https:\/\/i.ytimg.com\/vi\/suTdyIoH8wM\/hqdefault.jpg"
+vid_id: "suTdyIoH8wM"
+categories: "News-Politics"
+tags: ["ecuador","ecuador news","chile vs ecuador 2022"]
+date: "2022-03-12T07:15:01+03:00"
+vid_date: "2022-03-10T22:30:39Z"
+duration: "PT2M54S"
+viewcount: "951"
+likeCount: "47"
+dislikeCount: ""
+channel: "OpeN YouR EyeS"
+---
+{% raw %}Ecuador's suffering began on March 7, 2022, when Ecuador's National Risk and Emergency Management Service reported that 61 severe weather events had been reported in 27 cantons in 11 provinces between March 7 and 9. The most affected provinces were El Oro, Loja and Pichincha. 1026 houses were damaged, 115 were destroyed, 20418 meters of roads were damaged, 8332.5 hectares of agricultural land were damaged. The death toll is rising after a landslide caused by heavy rain in the La Gasca area (near Quito). According to authorities, 23 people were killed, 15 were missing and 49 were injured. Flooding and landslides also affected Guayas, Cotopaxi, El Oro and Los Rios. According to the municipality's local authorities, the flooding occurred in the western parts of the city after 95mm of rain fell in a short period of approximately 12 hours. This is the highest rainfall intensity since 2003. The rains caused torrents of mud and rocks that quickly descended from the slopes of the Pichincha volcano towering over the capital, paving the way for destruction along the streets of the capital, as a result of which infrastructure, engineering structures, bridges, roads and railways were destroyed. Local and national authorities are providing assistance to the affected population, plans are being developed to compensate for the damage caused, all utilities and rescue services are involved, and volunteers are involved in helping. Due to the abnormal weather, the normal functioning of hospitals that are experiencing difficulties in delivering medicines has been disrupted. Delivery of products to the affected areas is difficult. Also, due to the large number of damaged cars, there are no spare parts for repairs in the required volume. Particularly acute is the issue of repairing vehicles that are involved in the elimination of the consequences of the disaster. Due to the rise in the water level in the rivers, problems began with drinking water, as now additional filtration is necessary. Volunteers, to the best of their ability, are trying to provide maximum assistance in delivering water and provisions to the most remote affected areas. Elimination works are complicated by the fact that the dirt dries and hardens, which is subsequently difficult to clean. Moderate to heavy rain is still forecast over most of Ecuador, which means that the dangerous situation continues. Let's hope that Ecuador will have enough strength to survive the difficulties that have befallen them, and in order not to miss what is happening on the planet, we advise you to subscribe to the channel. Thank you for watching.{% endraw %}
