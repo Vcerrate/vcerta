@@ -1,0 +1,15 @@
+---
+title: "Raised beds in the polytunnel | LOW COST! grow your own vegetables"
+image: "https:\/\/i.ytimg.com\/vi\/N3bODL9_EZk\/hqdefault.jpg"
+vid_id: "N3bODL9_EZk"
+categories: "People-Blogs"
+tags: ["offgrid","GYO"]
+date: "2022-03-12T04:26:27+03:00"
+vid_date: "2022-03-11T15:45:01Z"
+duration: "PT12M22S"
+viewcount: "1089"
+likeCount: "172"
+dislikeCount: ""
+channel: "Off Grid Bruce"
+---
+{% raw %}This weeks vlog we build raised beds in the polytunnel for next to nothing using saw mill top slab off cuts. I think they look great and we now have freed up space on our propagator table!<br /><br />Big thanks to @Quickcrop for the fleece, bottle top watering can ends and the bug hotel<br /><br />and thanks to @First Tunnels Polytunnels for making such good polytunnels!<br /><br />Want to buy an EcoFlow portable power station? links below<br /><br /><a rel="nofollow" target="blank" href="https://uk.ecoflow.com/collections/portable-power-stations?aff=49">https://uk.ecoflow.com/collections/portable-power-stations?aff=49</a><br /><a rel="nofollow" target="blank" href="https://offyourgrid.ie/?aff=6">https://offyourgrid.ie/?aff=6</a><br /><br />Subscribe <a rel="nofollow" target="blank" href="https://youtube.com/thenomadicals?sub...​...">https://youtube.com/thenomadicals?sub...​...</a><br />Instagram <a rel="nofollow" target="blank" href="https://instagram.com/offgridbruce​">https://instagram.com/offgridbruce​</a><br />Facebook <a rel="nofollow" target="blank" href="https://facebook.com/offgridbruce">https://facebook.com/offgridbruce</a><br /><br />We are- a family of four, <br />Mum- Annie, <br />Dad-Bruce <br />Two children Elsie and Betsy <br />One dog - Doug<br />and we decided to trade our busy life as home and business owners to chase the dream we’ve harboured for 10years.<br /><br /><br />How did we get here<br />After years of saying one day, we finally realised that these opportunities don’t just land in your lap and if we seriously wanted to make a difference to the Earth then we were going to have to stop talking about it and do it!<br /><br />We sold all our stuff, got rid of the mortgage, sold our camper conversion business and landed in a dream come true. After traveling in our van we settled here in the west of Ireland. A place that has always been special to us. Annie is half Irish and since we met 12 years ago and she took me to meet her family i fell in love with Ireland too.<br /><br />Now we’ve made this dream a reality there is no stopping us! our plan is to work hard, meet new people and learn new skills that will guide us on our journey of permaculture and creating a way of life that sings to us. One where we aren’t bound to the banks, working every hour and outsourcing all of our needs. A simple way of life, with connection to ourselves, each other, the earth and our community.<br /><br />Vlogging with<br />iPhone 11<br />Insta360<br />Olympus OM-D 5 mk ii<br />Lens Olympus M.Zuiko Digital ED 7-14 mm F2.8 PRO Lens<br />Lens Olympus M.Zuiko Digital ED 12-40 mm F2.8 PRO Lens<br />Mic Rode VideoMicro Compact On Camera Microphone<br />Final Cut Pro<br />DJI Mavic Air{% endraw %}
