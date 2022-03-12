@@ -1,0 +1,15 @@
+---
+title: "SUPERSTAR - CG5 (FNAF Security Breach Song Animation)"
+image: "https:\/\/i.ytimg.com\/vi\/bmVqdvT61f0\/hqdefault.jpg"
+vid_id: "bmVqdvT61f0"
+categories: "Music"
+tags: ["cg5","cg5 song","fnaf"]
+date: "2022-03-12T12:57:01+03:00"
+vid_date: "2022-01-08T17:00:26Z"
+duration: "PT2M58S"
+viewcount: "5438773"
+likeCount: "215325"
+dislikeCount: ""
+channel: "CG5"
+---
+{% raw %}STREAM NOW! Links below!<br />Spotify ▶ <a rel="nofollow" target="blank" href="https://spoti.fi/3zCnlyc">https://spoti.fi/3zCnlyc</a><br />Apple Music ▶ <a rel="nofollow" target="blank" href="https://apple.co/3n1PauP">https://apple.co/3n1PauP</a><br /><br />Music/Vocals by @CG5<br />Lyrics by @CG5, CKG, &amp; my Twitch chat<br />Animation by @Your Cup of Chii<br />Video Editing by Andrew Duemig: <a rel="nofollow" target="blank" href="https://twitter.com/andrewduemig">https://twitter.com/andrewduemig</a><br />Guitar by @RichaadEB<br />Inspired by FNAF Security Breach<br /><br />Follow CG5's social media:<br />Twitter ▶ <a rel="nofollow" target="blank" href="http://twitter.com/cg5beats">http://twitter.com/cg5beats</a><br />Twitch ▶ <a rel="nofollow" target="blank" href="https://www.twitch.tv/cg5music">https://www.twitch.tv/cg5music</a><br />Spotify ▶ <a rel="nofollow" target="blank" href="https://sptfy.com/cg5_">https://sptfy.com/cg5_</a><br />Instagram ▶ <a rel="nofollow" target="blank" href="http://www.instagram.com/cg5beats/">http://www.instagram.com/cg5beats/</a><br /><br />Follow @CG5LIVE, @CG5Covers, @CG5Clips, &amp; @CG5 Instrumentals<br />Discord Server ▶ <a rel="nofollow" target="blank" href="https://discord.gg/CG5">https://discord.gg/CG5</a><br /><br />LYRICS:<br /><br />Stand clear of the closing doors,<br />These old friends, they ain’t friends of yours.<br />I can feel a pain in my chest,<br />Under house arrest.<br />Isn’t your family looking for you?<br />Did mommy and daddy try to warn you?<br />Lend me your eyes and voice.<br />Soon we’re gonna have to make a choice.<br /><br />Simon says eyes on the prize cuz you won’t get another try<br />We’ll uncover every lie,<br />And I promise you’ll survive.<br /><br />Well done superstar,<br />Shine a light, we’re fighting the dark.<br />Well done superstar!<br />It’s my grand design,<br />I’ll never ever leave you behind.<br />It’s my grand design!<br /><br />Livin’ ain’t complementary,<br />Lights are off and your life’s in jeopardy.<br />Knockin’ on heaven’s door.<br />Don’t you give up, ‘cuz you can win.<br />Hide away within me.<br />Losing sight of what’s in front of you.<br />If I’m undone, put me back together soon.<br />Racing through a neon void,<br />Too bad they all must be destroyed.<br /><br />Simon says I found myself,<br />I cleaned the dust off of the shelf.<br />What’s your choice? In the end,<br />I’ll always be your friend.<br /><br />Well done superstar,<br />Shine a light, we’re fighting the dark.<br />Well done superstar!<br />It’s my grand design,<br />I’ll never ever leave you behind.<br />It’s my grand design!{% endraw %}
