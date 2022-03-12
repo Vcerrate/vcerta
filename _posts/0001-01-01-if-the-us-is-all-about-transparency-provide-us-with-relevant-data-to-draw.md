@@ -1,0 +1,15 @@
+---
+title: "‘If the US is all about transparency, provide us with relevant data to draw a conclusion‘"
+image: "https:\/\/i.ytimg.com\/vi\/_tPk3RpOenk\/hqdefault.jpg"
+vid_id: "_tPk3RpOenk"
+categories: "News-Politics"
+tags: ["Shanghai","Shanghaieye","China"]
+date: "2022-03-12T17:06:54+03:00"
+vid_date: "2022-03-12T10:12:19Z"
+duration: "PT3M8S"
+viewcount: "29718"
+likeCount: "2046"
+dislikeCount: ""
+channel: "ShanghaiEye魔都眼"
+---
+{% raw %}China called on the United States to prove that Russia's biological claims were fake.<br /><br />Zhang Jun, Permanent Representative of China to the United Nations, made the request during a United Nations Security Council meeting in New York on Friday.<br /><br />The Biden administration and Ukraine's leader reject Russian accusations that Ukraine is running chemical and biological labs with U.S. support.<br /><br />Jun said the U.S. should prove this by allowing for &quot;multilateral verification&quot; and producing &quot;relevant data and provide clarification.&quot;<br /><br />Lily<br />__________________<br />Powered by Shanghai Media Group, ShanghaiEye focuses on producing top-quality content for Facebook, Twitter, Instagram and Youtube.<br />Nobody knows Shanghai better than us.<br />Please subscribe to us  ☻☻☻<br />__________________<br />For more stories, please click <br />■ What's up today in Shanghai, the most updated news of the city<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MNjpE4hspSVry8dR555getN">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MNjpE4hspSVry8dR555getN</a><br />■ Amazing Shanghai, exploring the unknown corners of the city,  learning the people, food and stories behind them<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MMVTWr-zIXjsS4hhSQPmyes">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MMVTWr-zIXjsS4hhSQPmyes</a><br />■ What Chinese people's lives are like during the post COVID-19 period<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MPrPTmIirpfgETu6VKVESXe">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MPrPTmIirpfgETu6VKVESXe</a><br />■ Views of foreign scholars on China and its affairs<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MO9ua_nSK6slRPdUl-ovjRe">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MO9ua_nSK6slRPdUl-ovjRe</a><br />■ Foreign faces in Shanghai, people living in this city sharing their true feelings<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MP0vJDSw23_1MCPJhAfGbiG">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MP0vJDSw23_1MCPJhAfGbiG</a><br />■ Mini-docs showing why China is the country it is today <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MOreRu2AbZ3ziIUyCcdBLwX">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MOreRu2AbZ3ziIUyCcdBLwX</a><br />__________________<br />☎Leave us messages if you have any suggestions or questions!<br />Thank you!{% endraw %}
