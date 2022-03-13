@@ -1,0 +1,15 @@
+---
+title: "Customizing Air Force 1's And Giving Them Away! 👟🎨"
+image: "https:\/\/i.ytimg.com\/vi\/13HmgSUrJgo\/hqdefault.jpg"
+vid_id: "13HmgSUrJgo"
+categories: "Entertainment"
+tags: ["custom jordans","how to customize shoes","how to customize shoes for beginners"]
+date: "2022-03-13T10:34:40+03:00"
+vid_date: "2022-03-12T19:05:37Z"
+duration: "PT11M"
+viewcount: "5121"
+likeCount: "416"
+dislikeCount: ""
+channel: "Xavier Kickz"
+---
+{% raw %}Customizing Air Force 1's And Giving Them Away! - In this video, I am customizing air force 1's and giving them away.<br /><br />Materials Used In The Video <br />Posca Marker - <a rel="nofollow" target="blank" href="https://amzn.to/3kLWHux">https://amzn.to/3kLWHux</a><br />Angelus Paint - <a rel="nofollow" target="blank" href="https://angelusdirect.com/?rfsn=980233.e7542">https://angelusdirect.com/?rfsn=980233.e7542</a><br />Paint Brushes - <a rel="nofollow" target="blank" href="https://amzn.to/2VFOXTp">https://amzn.to/2VFOXTp</a><br />Heat Gun - <a rel="nofollow" target="blank" href="https://amzn.to/3xCIFkq">https://amzn.to/3xCIFkq</a><br />Air Brush - <a rel="nofollow" target="blank" href="https://amzn.to/2VFOXTp">https://amzn.to/2VFOXTp</a><br />Air Brush Compressor - <a rel="nofollow" target="blank" href="https://amzn.to/3lLNaqy">https://amzn.to/3lLNaqy</a><br />Canon Camera - <a rel="nofollow" target="blank" href="https://amzn.to/37rPaw1">https://amzn.to/37rPaw1</a><br />Sony Camera -<a rel="nofollow" target="blank" href="https://amzn.to/3s2rHuP">https://amzn.to/3s2rHuP</a><br /><br />If you want to know how to customize shoes here is a tutorial video I did<br /><br /><a rel="nofollow" target="blank" href="https://youtu.be/woIQlck0aQ8">https://youtu.be/woIQlck0aQ8</a><br /><br />If you want to know how to customize jordan here is a tutorial<br /><br /><a rel="nofollow" target="blank" href="https://youtu.be/_AiBMYVfdYk">https://youtu.be/_AiBMYVfdYk</a><br /><br />Here is a playlist I put together that has all my popular videos on this channel for you to watch :)<br /><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=gee0JHR6iyo">https://www.youtube.com/watch?v=gee0JHR6iyo</a><br /><br /><br />🔴JOIN THE XAVIER KICKZ FAMILY &amp; SUBSCRIBE BELOW 🔴: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC8RhCutmRSEUeKz7_Iamk2A">https://www.youtube.com/channel/UC8RhCutmRSEUeKz7_Iamk2A</a><br /><br />How did I do on today's video showing how to customize shoes with posca penst? Let me know in the comments!<br /><br />FOLLOW ME TO STAY UPDATED!<br />►Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/xavierkickz17">https://twitter.com/xavierkickz17</a><br />►Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/xavierkickz17">https://www.instagram.com/xavierkickz17</a><br />►Snapchat: xocrews44<br /><br />~TURN ON YOUR NOTIFICATIONS BY HITTING THE BELL!<br /><br />Business Email: crewsxavier@yahoo.com<br /><br />#CustomShoes #CustomAirforce1's #XavierKickz{% endraw %}
