@@ -1,0 +1,15 @@
+---
+title: "Sonic.exe \"For Hire\" Every Turn Different Character Sings - Friday Night Funkin Animation"
+image: "https:\/\/i.ytimg.com\/vi\/_wXbmuPJ0Yc\/hqdefault.jpg"
+vid_id: "_wXbmuPJ0Yc"
+categories: "Gaming"
+tags: ["FRIDAY NIGHT FUNKIN ANIMATIONS","FRIDAY NIGHT FUNKIN","FRIDAY NIGHT FUNKIN ANIMATION"]
+date: "2022-03-13T04:50:16+03:00"
+vid_date: "2022-03-12T14:00:27Z"
+duration: "PT1M44S"
+viewcount: "153982"
+likeCount: "4130"
+dislikeCount: ""
+channel: "Hornstromp Toons"
+---
+{% raw %}❤️ M.I.L.F. VS BOYFRIEND<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=L_7GN9HI2Ic">https://www.youtube.com/watch?v=L_7GN9HI2Ic</a><br /><br />❤️ SKY VS BOYFRIEND<br />PART 1- <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=VbA7GgfUOnc">https://www.youtube.com/watch?v=VbA7GgfUOnc</a><br />PART 2- <a rel="nofollow" target="blank" href="https://youtu.be/_rSkxgvyAks">https://youtu.be/_rSkxgvyAks</a><br /><br />❤️ SKID &amp; PUMP VS BOYFRIEND<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ofR7h7-Ww2I&amp;t=3s">https://www.youtube.com/watch?v=ofR7h7-Ww2I&amp;t=3s</a><br /><br />❤️ TANKMAN VS BOYFRIEND<br />STRESS - <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=CAGF7KvbC2I">https://www.youtube.com/watch?v=CAGF7KvbC2I</a><br />UGH! - <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=rt_iIUM4-4M&amp;t=1s">https://www.youtube.com/watch?v=rt_iIUM4-4M&amp;t=1s</a><br /><br />❤️ BOYFRIEND &amp; GIRLFRIEND TUTORIAL<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=WC-enhRPdNQ">https://www.youtube.com/watch?v=WC-enhRPdNQ</a><br /><br />❤️ WHITTY VS BOYFRIEND<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=OyMg5r0NPdk">https://www.youtube.com/watch?v=OyMg5r0NPdk</a><br /><br />❤️ RUV &amp; SARVENTE VS BOYFRIEND<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=BTo_N_xMq-s&amp;t=73s">https://www.youtube.com/watch?v=BTo_N_xMq-s&amp;t=73s</a><br /><br />❤️ EVIL BOYFRIEND VS SKID &amp; PUMP (CORRUPTION)<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Ym_MTpYPfHY">https://www.youtube.com/watch?v=Ym_MTpYPfHY</a><br /><br />❤️ EVIL BOYFRIEND VS PICO (CORRUPTION)<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=pbGxoUJS7ks">https://www.youtube.com/watch?v=pbGxoUJS7ks</a><br /><br />❤️ WHITTY &amp; CAROL<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=PPJUCwM6j_A">https://www.youtube.com/watch?v=PPJUCwM6j_A</a><br /><br />❤️ TRICKY VS BOYFRIEND &amp; PICO<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=v7y42Bv1Xzc">https://www.youtube.com/watch?v=v7y42Bv1Xzc</a><br /><br />Original video: <a rel="nofollow" target="blank" href="https://youtu.be/9VLIAJ5hNVg">https://youtu.be/9VLIAJ5hNVg</a><br />Original animation HORNSTROMP<br /><br />#FridayNightFunkin #FNF #FNFAnimation{% endraw %}
