@@ -1,0 +1,15 @@
+---
+title: "MANNY PACQUIAO'S SON WINS FIRST FIGHT IN CONTROVERSIAL DECISION | JIMUEL PACQUIAO VS ANDRES ROSALES"
+image: "https:\/\/i.ytimg.com\/vi\/9EO1DheBOPU\/hqdefault.jpg"
+vid_id: "9EO1DheBOPU"
+categories: "Sports"
+tags: ["boxing","fight hub","fight hub tv"]
+date: "2022-03-13T18:08:17+03:00"
+vid_date: "2022-03-12T23:10:56Z"
+duration: "PT10M24S"
+viewcount: "127068"
+likeCount: "1602"
+dislikeCount: ""
+channel: "Fight Hub TV"
+---
+{% raw %}The son of Manny Pacquiao, Jimuel Pacquiao wins his first amateur fight! But in controversial fashion, as he takes on Andres Rosales in San Diego at the house of boxing, boxing club. As the crowd gives mixed cheers when the decision is read, as Jimuel wins his first amateur fight! <br /><br />Subscribe: <a rel="nofollow" target="blank" href="http://goo.gl/vnzIb">http://goo.gl/vnzIb</a> | Merch: <a rel="nofollow" target="blank" href="https://merchlabs.shop/collections/fighthubtv">https://merchlabs.shop/collections/fighthubtv</a> <br /><br />Order SNAC FIGHTER'S TRAINING STACK. Get 25% OFF on all SNAC products w/ discount code FIGHTHUBTV1 <a rel="nofollow" target="blank" href="https://snac.com/products/fighters-training-stack">https://snac.com/products/fighters-training-stack</a><br /><br />LIVE FAN Q &amp; A EVERY MONDAY AT 5:45 PM PT!<br /><br />Follow Fight Hub TV <br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/fighthubtv">https://instagram.com/fighthubtv</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/FightHubTV">https://twitter.com/FightHubTV</a> <br />Marcos Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/heyitsmarcosv">https://twitter.com/heyitsmarcosv</a> <br />Marcos Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/heyitsmarcosv">https://instagram.com/heyitsmarcosv</a> <br /><br />Watch more videos! <br />OUR NEWEST VIDEOS: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL_-4P2CTc7AW86gMVKzKQnqVdGKHl1NZx">https://youtube.com/playlist?list=PL_-4P2CTc7AW86gMVKzKQnqVdGKHl1NZx</a><br /><br />FIGHT HUB’S GREATEST HITS: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL_-4P2CTc7AU4QQO0a40FoBKflPoW4vad">https://youtube.com/playlist?list=PL_-4P2CTc7AU4QQO0a40FoBKflPoW4vad</a><br /><br />CRAZY KO'S : <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL_-4P2CTc7AUjj5fd_vy25uqsLOP2qpaM">https://youtube.com/playlist?list=PL_-4P2CTc7AUjj5fd_vy25uqsLOP2qpaM</a><br /><br />BACK &amp; FORTH FIGHTS: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PL_-4P2CTc7AXz1BXa75dXsZlPyyZ_XTF7">https://youtube.com/playlist?list=PL_-4P2CTc7AXz1BXa75dXsZlPyyZ_XTF7</a><br /><br />Fight Hub TV brings to you daily video content from the world of boxing, MMA and combat sports! On this channel you will find a variety of content like boxing news, MMA interviews, boxing interviews and more! Make sure to subscribe and enable all notifications! <br /><br />#boxing #FightHubTV{% endraw %}
