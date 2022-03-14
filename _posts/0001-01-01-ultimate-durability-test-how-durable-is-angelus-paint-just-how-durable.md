@@ -1,0 +1,15 @@
+---
+title: "Ultimate Durability Test | How Durable Is Angelus Paint?"
+image: "https:\/\/i.ytimg.com\/vi\/ZuUx4iE8RXE\/hqdefault.jpg"
+vid_id: "ZuUx4iE8RXE"
+categories: "Howto-Style"
+tags: ["angeles paint","custom shoes","paint durability"]
+date: "2022-03-14T17:33:12+03:00"
+vid_date: "2022-03-09T20:30:01Z"
+duration: "PT4M46S"
+viewcount: "111172"
+likeCount: "240"
+dislikeCount: ""
+channel: "Angelus Brand"
+---
+{% raw %}Just how durable is Angelus paint? Today we find out. Watch as Jake Polino joins us to put a variety of shoes and accessories that have been customized using Angelus paint through a series of test to see just how much they can withstand. <br /><br />0:00 - Intro<br />0:14​​ - Can I Clean My Custom Shoes?<br />0:29 - Can I Put Painted Clothes in the Washing Machine?<br />0:51 - Can I Put Painted Cups in the Dishwasher?<br />1:06 - Is Angelus Paint Waterproof? Boiling Water? Pressure washer?<br />1:56 - Is Angelus Paint Heat Resistant / Fire-Proof?<br />2:54 -  Are Custom Shoes Painted With Angelus Paint Wearable?<br />3:30 - Will Angelus Paint Crack? Is Angelus Paint Flexible?<br />4:13 - Outro<br /><br /><br />- Follow Jake Polino - <br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@jakepolino?lang=en">https://www.tiktok.com/@jakepolino?lang=en</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/jakepolino/">https://www.instagram.com/jakepolino/</a><br /><br />Thanks to all the customizers whose customs we used for this video!<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/kingdom_made/">https://www.instagram.com/kingdom_made/</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/savethepanduhs/">https://www.instagram.com/savethepanduhs/</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/visionarykickz/">https://www.instagram.com/visionarykickz/</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/10andrea26/">https://www.instagram.com/10andrea26/</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/swellguycustoms/">https://www.instagram.com/swellguycustoms/</a><br /><br />Website: <a rel="nofollow" target="blank" href="https://www.AngelusBrand.com">https://www.AngelusBrand.com</a><br />Subscribe to our YouTube channel: Youtube.com/Angelusbrand<br />Like Us on Facebook: <a rel="nofollow" target="blank" href="https://bit.ly/2CgyiYR">https://bit.ly/2CgyiYR</a><br />Follow us on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/AngelusShoepolish/">https://www.instagram.com/AngelusShoepolish/</a><br />Shop online: <a rel="nofollow" target="blank" href="https://www.AngelusDirect.com/">https://www.AngelusDirect.com/</a><br />Email us: Info@angelusshoepolish.com<br />Find us at your local retailer: <a rel="nofollow" target="blank" href="https://angelusshoepolish.com/pages/where-to-buy">https://angelusshoepolish.com/pages/where-to-buy</a><br />#angelustutorials #angeluspaint #customshoes{% endraw %}
