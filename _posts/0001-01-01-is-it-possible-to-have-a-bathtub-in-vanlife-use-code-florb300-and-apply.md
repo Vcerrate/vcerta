@@ -1,0 +1,15 @@
+---
+title: "Is it possible to have a bathtub in Vanlife?"
+image: "https:\/\/i.ytimg.com\/vi\/1bztkU0OVz0\/hqdefault.jpg"
+vid_id: "1bztkU0OVz0"
+categories: "People-Blogs"
+tags: ["Travel","van life","van dwelling"]
+date: "2022-03-14T06:38:11+03:00"
+vid_date: "2022-02-14T12:00:01Z"
+duration: "PT11M37S"
+viewcount: "20898"
+likeCount: "916"
+dislikeCount: ""
+channel: "FLORB"
+---
+{% raw %}Use code 'FLORB300' and apply the $50 off coupon for Fanttik EVO 300 Power Station: <a rel="nofollow" target="blank" href="https://amzn.to/32AkQ3i">https://amzn.to/32AkQ3i</a>  #FanttikEVO300 #FanttikPowerStation<br />Subscribe to our new channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/dylanmagaster2">https://www.youtube.com/dylanmagaster2</a><br />BECOME PART OF THE TEAM: <a rel="nofollow" target="blank" href="https://www.patreon.com/FLORB">https://www.patreon.com/FLORB</a><br /><br />Follow Bryce and Katie:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/bryceandkatie/">https://www.instagram.com/bryceandkatie/</a><br /><br /><br />Follow me on Social Media<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/dylanmagaster">https://www.instagram.com/dylanmagaster</a><br /><br /><br /><br />Business inquires or music submissions:<br />florb@floatingorb.earth<br /><br /><br /><br />Music: <br />Epidemic Sound Affiliate link: <a rel="nofollow" target="blank" href="https://mbsy.co/epidemicsound/FLORB">https://mbsy.co/epidemicsound/FLORB</a><br /> Imba Wimbo - RaFa Orchestra<br />Breezing Through - Margareta<br />West Side Story (Instrumental Version) - Roy Edwin Williams<br />Cramp Blues - John Runefelt<br /><br /><br />Filmed by <br /><br /><br />Jackson Peters<br /><a rel="nofollow" target="blank" href="http://jacksonhpeters.com/">http://jacksonhpeters.com/</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/jacksonhpeters">https://www.youtube.com/jacksonhpeters</a><br /><a rel="nofollow" target="blank" href="https://vimeo.com/jacksonhpeters">https://vimeo.com/jacksonhpeters</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/jacksonhpeters/">https://www.instagram.com/jacksonhpeters/</a><br /><br /><br />Edited by <br /><br /><br /><a rel="nofollow" target="blank" href="http://jacksonhpeters.com/">http://jacksonhpeters.com/</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/jacksonhpeters">https://www.youtube.com/jacksonhpeters</a><br /><a rel="nofollow" target="blank" href="https://vimeo.com/jacksonhpeters">https://vimeo.com/jacksonhpeters</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/jacksonhpeters/">https://www.instagram.com/jacksonhpeters/</a><br /><br />Dylan Magaster<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/dylanmagaster">https://www.instagram.com/dylanmagaster</a><br /><br /><br /><br /><br />CAMERA GEAR <br />Full Gear List: <a rel="nofollow" target="blank" href="https://kit.co/DylanMagaster">https://kit.co/DylanMagaster</a>{% endraw %}
