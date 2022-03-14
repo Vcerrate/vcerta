@@ -1,0 +1,15 @@
+---
+title: "Homemade Sunblock with SPF for Beautiful Skin\/Natural Sunblock  - Ghazal Siddique"
+image: "https:\/\/i.ytimg.com\/vi\/m-R747_NZWg\/hqdefault.jpg"
+vid_id: "m-R747_NZWg"
+categories: "People-Blogs"
+tags: ["in hindi","in urdu","ghazal siddique"]
+date: "2022-03-14T18:33:10+03:00"
+vid_date: "2022-03-14T15:00:02Z"
+duration: "PT8M57S"
+viewcount: "2098"
+likeCount: "355"
+dislikeCount: ""
+channel: "Ghazal Siddique"
+---
+{% raw %}Zinc oxide powder<br /><a rel="nofollow" target="blank" href="https://www.amazon.ca/Organics-Uncoated-Non-Nano-Sunscreen-protection/dp/B01I8G5WUU?&amp;_encoding=UTF8&amp;tag=ghazalsiddi09-20&amp;linkCode=ur2&amp;linkId=dc6fcd928904225e25cf3b745c183262&amp;camp=15121&amp;creative=330641">https://www.amazon.ca/Organics-Uncoated-Non-Nano-Sunscreen-protection/dp/B01I8G5WUU?&amp;_encoding=UTF8&amp;tag=ghazalsiddi09-20&amp;linkCode=ur2&amp;linkId=dc6fcd928904225e25cf3b745c183262&amp;camp=15121&amp;creative=330641</a><br /><br />Shea Butter<br /><a rel="nofollow" target="blank" href="https://www.amazon.ca/Unrefined-Nourishment-Mary-Tylor-Naturals/dp/B017RUI3AY?&amp;_encoding=UTF8&amp;tag=ghazalsiddi09-20&amp;linkCode=ur2&amp;linkId=a16f1f654a2ef1a1578830688e375873&amp;camp=15121&amp;creative=330641">https://www.amazon.ca/Unrefined-Nourishment-Mary-Tylor-Naturals/dp/B017RUI3AY?&amp;_encoding=UTF8&amp;tag=ghazalsiddi09-20&amp;linkCode=ur2&amp;linkId=a16f1f654a2ef1a1578830688e375873&amp;camp=15121&amp;creative=330641</a><br /><br />Beeswax<br /><a rel="nofollow" target="blank" href="https://www.amazon.ca/Dutchmans-Gold-Beeswax-Cosmetic-Quality/dp/B084C1Q19B?&amp;_encoding=UTF8&amp;tag=ghazalsiddi09-20&amp;linkCode=ur2&amp;linkId=757ebfcf9d3610a2e0445627e1565bb7&amp;camp=15121&amp;creative=330641">https://www.amazon.ca/Dutchmans-Gold-Beeswax-Cosmetic-Quality/dp/B084C1Q19B?&amp;_encoding=UTF8&amp;tag=ghazalsiddi09-20&amp;linkCode=ur2&amp;linkId=757ebfcf9d3610a2e0445627e1565bb7&amp;camp=15121&amp;creative=330641</a><br /><br />Rose Essential Oil<br /><a rel="nofollow" target="blank" href="https://www.amazon.ca/Yethious-Essential-Therapeutic-Aromatherapy-Diffuser/dp/B087TCSSDZ?&amp;_encoding=UTF8&amp;tag=ghazalsiddi09-20&amp;linkCode=ur2&amp;linkId=e1bf039b129f51d428b149815dac5fd2&amp;camp=15121&amp;creative=330641">https://www.amazon.ca/Yethious-Essential-Therapeutic-Aromatherapy-Diffuser/dp/B087TCSSDZ?&amp;_encoding=UTF8&amp;tag=ghazalsiddi09-20&amp;linkCode=ur2&amp;linkId=e1bf039b129f51d428b149815dac5fd2&amp;camp=15121&amp;creative=330641</a><br /><br /><br />For my Instagram and Facebook, click below:<br />Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/ghazalsiddiqueofficial">http://www.instagram.com/ghazalsiddiqueofficial</a><br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/ghazalsiddiqueofficial">http://www.facebook.com/ghazalsiddiqueofficial</a><br /><br />Music Credit (and license reference)<br />‘Miles to Go’<br />Music by Jay Man<br />www.ourmusicbox.com{% endraw %}
