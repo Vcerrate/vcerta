@@ -1,0 +1,15 @@
+---
+title: "How many customers do you need? Start with one, invent for many!"
+image: "https:\/\/i.ytimg.com\/vi\/y3Eq0cdEpxY\/hqdefault.jpg"
+vid_id: "y3Eq0cdEpxY"
+categories: "Howto-Style"
+tags: ["start with one","start with one invent for many","john lee dumas"]
+date: "2022-03-15T20:32:33+03:00"
+vid_date: "2021-02-07T08:46:22Z"
+duration: "PT4M40S"
+viewcount: "183"
+likeCount: "29"
+dislikeCount: ""
+channel: "Tomas Bay"
+---
+{% raw %}How many customers do you need? Start with one, invent for many!<br /><br />Every week, I meet people who want to create new products and services for many people. <br /><br />The other day, I was having a conversation with a senior executive from a large company. He looked at me and said, “we have all these products for older people, but we really want to serve the younger people too. You know, all those millennials.”<br /><br />So what happens? When you want to serve everyone, you end up serving no one. So what do you do?<br /><br />In this video, I show you the power of starting with one customer. As someone said, “start with one, invent for many.”<br /><br />Let’s learn from John Lee Dumas and Entrepreneurs on Fire!<br /><br />Link to JLD’s article about customer avatar:<br /><br /><a rel="nofollow" target="blank" href="https://www.eofire.com/defining-your-avatar/">https://www.eofire.com/defining-your-avatar/</a><br /><br />**************************************************************<br /><br />Do you want to create better products or services? Check out the The Solution Map. The map has six steps that will help you think through your early product idea.<br /><br />Following the map will not guarantee success, but it will force you to focus on the essentials: <br /><br />Start with the customer<br />Deliver real value<br />Test your idea<br /><br />You can use it for product or services.<br />You can use this for your internal or external customers. <br /><br />If you want to use The Solution Map, You can download it here:<br /><br />www.coachbay.com/downloads<br /><br />Yes, it's free. I want to help as many people as possible.<br /><br />Innovation books I have read and like:<br /><a rel="nofollow" target="blank" href="https://www.coachbay.com/books">https://www.coachbay.com/books</a><br /><br />How can you support my work? Just buy me a coffee: <br /><a rel="nofollow" target="blank" href="https://www.buymeacoffee.com/coachbay​">https://www.buymeacoffee.com/coachbay​</a><br /><br /><br />My Gear:<br />Main Camera: <a rel="nofollow" target="blank" href="https://amzn.to/3rQcvjW​">https://amzn.to/3rQcvjW​</a><br />Lens: <a rel="nofollow" target="blank" href="https://amzn.to/2JCLPlg​">https://amzn.to/2JCLPlg​</a><br />Other camera: <a rel="nofollow" target="blank" href="https://amzn.to/2KVTnQS​">https://amzn.to/2KVTnQS​</a><br />Microphone: <a rel="nofollow" target="blank" href="https://amzn.to/3nhYSql​">https://amzn.to/3nhYSql​</a><br />Other microphone: Rode Wireless Go<br />Software: LumaFusion<br />Music: Storyblocks and Epidemic Sound<br />Subtitles: Rev.com{% endraw %}
