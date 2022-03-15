@@ -1,0 +1,15 @@
+---
+title: "Meaning of \"Catch-22\" - Superduper English Idioms"
+image: "https:\/\/i.ytimg.com\/vi\/d5R58PQO6sg\/hqdefault.jpg"
+vid_id: "d5R58PQO6sg"
+categories: "Education"
+tags: ["英文言語","american english","meaning of"]
+date: "2022-03-15T12:49:32+03:00"
+vid_date: "2020-08-13T15:40:28Z"
+duration: "PT5M30S"
+viewcount: "346"
+likeCount: "5"
+dislikeCount: ""
+channel: "Superduper English Idioms"
+---
+{% raw %}“Catch-22…”<br /><br />You’ve most probably heard someone refer to a situation as a “catch-22”, or a paradoxical situation which cannot be escaped.<br /><br />“Trying to get a job as a new graduate is a catch-22… you need experience to get a job, but you can’t get a job unless you have experience,” you might lament to a classmate.<br /><br />“I’m sorry, but you don’t have enough money to qualify for a business loan,” the banker might say as you retort, “But that’s exactly why I need the loan!”<br /><br />As is plain to see, the idiom, “catch-22” describes a situation that is a paradox, in other words a situation in which you are stuck for various reasons.<br /><br />There are no “catch-22s” in nature, however, because nature cannot contradict itself; but humans certainly can, and do often create two rules that are opposite.<br /><br />“Catch-22” is a term that was coined by Joseph Heller in his 1961 novel of the same name, “Catch-22”.<br /><br />In the novel, “Catch-22”, the phrase is used to describe absurd bureaucratic constraints placed on soldiers during World War II.<br /><br />An example from the novel is how a soldier must obey his commanding officer, even if the commanding officer’s orders go against the orders of that very same officer’s superiors.<br /><br />Related to the idiom, “catch-22”, you might hear someone say, “Damned if you do, damned if you don’t.”<br /><br />“Damned if you do, damned if you don’t,” doesn’t exactly apply to paradoxes, though, as it is used for situations in which either choice leads to a negative outcome.<br /><br />“If I leave the office early to attend the school play, my boss will be unhappy… but if I don’t, our child will be really unhappy. Damned if I do, damned if I don’t!” you might be discussing with your partner.<br /><br />It’s a tough choice, but the whole reason we work is so that we can earn money, so that we can take care of our family.<br /><br />A “catch-22” is a bit more tricky - and idiotic - than a situation in which you have two choices that will lead to pain, suffering or being “damned”.<br /><br />“The catch-22 of life is that by the time you are wise enough to appreciate life, you are old and don’t have much time left,” your elderly father might tell you.<br /><br />Maybe you’re volunteering at a retirement home when one of the seniors tells you, “Now that we have enough time and money to enjoy ourselves, we’re too old. It’s a catch-22!”.<br /><br />Thus, whatever ridiculous situation, paradoxical because of idiotic rules, you find yourself in, don’t forget to lament that it’s a “catch-22”.<br /><br />#superduperenglishidioms #englishidioms #idioms #proverbs{% endraw %}
