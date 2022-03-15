@@ -1,0 +1,15 @@
+---
+title: "(E9) BMW 3.0 CSL and Replica from Russia BMW E28 CSL"
+image: "https:\/\/i.ytimg.com\/vi\/HaHHvyTKTec\/hqdefault.jpg"
+vid_id: "HaHHvyTKTec"
+categories: "Science-Technology"
+tags: ["BMW","bmw e9","3.0 CSL"]
+date: "2022-03-15T03:12:03+03:00"
+vid_date: "2018-11-08T07:35:12Z"
+duration: "PT15M30S"
+viewcount: "19408"
+likeCount: "2073"
+dislikeCount: ""
+channel: "raceportv"
+---
+{% raw %}Видео об одном из самых легендарных БМВ в истории марки,  BMW 3.0 CSL в кузове E9.<br />Также часть видео посвящена работе по созданию Российской версии легендарного Бэтмобиля на базе кузова BMW 5 серии (E28) <a rel="nofollow" target="blank" href="http://raceport.ru/project/proekt-00079-bmw-e28-batmobile">http://raceport.ru/project/proekt-00079-bmw-e28-batmobile</a><br /><br /><br />Если вы любитель марки BMW или автоспорта, то мы рекомендуем вам посмотреть еще одно видео о дебюте компании BMW в серии Le Mans 24h <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Tw6B8gH5GBM">https://www.youtube.com/watch?v=Tw6B8gH5GBM</a><br /><br /><br />- Сайт компании Рейспорт: <a rel="nofollow" target="blank" href="http://www.raceport.ru">http://www.raceport.ru</a><br /><br />- Интересный Блог для любителей редких автомобилей: <a rel="nofollow" target="blank" href="http://raceport.ru/blog">http://raceport.ru/blog</a><br />- Галерея по маркам из цехов нашей компании: <a rel="nofollow" target="blank" href="http://raceport.ru/gallery">http://raceport.ru/gallery</a> (BMW, BMW ///M, BMW Classic, Alpina, Porsche, Ferrari, Lamborghini и многое другое)<br />- Проекты компании Raceport: <a rel="nofollow" target="blank" href="http://raceport.ru/project">http://raceport.ru/project</a><br />- Про наши проекты пишет пресса: <a rel="nofollow" target="blank" href="http://raceport.ru/pressa-o-nas">http://raceport.ru/pressa-o-nas</a><br />- Наши клиенты и отзывы о работе: <a rel="nofollow" target="blank" href="http://raceport.ru/nam-doveryayut">http://raceport.ru/nam-doveryayut</a><br /><br />ПОДПИШИСЬ НА НАС:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/Raceport/">https://www.instagram.com/Raceport/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/raceport">https://www.facebook.com/raceport</a><br />VC: <a rel="nofollow" target="blank" href="https://vk.com/raceport.centr">https://vk.com/raceport.centr</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/Raceport_Moscow">https://twitter.com/Raceport_Moscow</a><br />Drive2: <a rel="nofollow" target="blank" href="https://www.drive2.ru/o/RACEPORTru/">https://www.drive2.ru/o/RACEPORTru/</a><br /><br />Контакты сервисного центра BMW:<br /><br />Москва, 1я Магистральная ул., д. 29, стр. 1<br />Часы работы:<br />пн. - пт. 10.00 - 21.00<br />суб. - вс. 11.00 - 20.00 (праздничные дни)<br /><br />Тел: +7 (495) 741-72-82<br /><br />Интернет магазин аксессуаров на тему автоклассики. Ваши любимые модели прежних лет на футболках, поло и других аксессуарах - <a rel="nofollow" target="blank" href="https://mobiletradition.ru">https://mobiletradition.ru</a>{% endraw %}
