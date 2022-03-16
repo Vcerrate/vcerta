@@ -1,0 +1,15 @@
+---
+title: "Something About Pikmin SPEEDRUN (Loud Sound Warning) 🥕🥕🥕👨‍🚀🚀"
+image: "https:\/\/i.ytimg.com\/vi\/uHPCJoLrhS0\/hqdefault.jpg"
+vid_id: "uHPCJoLrhS0"
+categories: "Gaming"
+tags: ["terminalmontage","terminal","montage"]
+date: "2022-03-16T08:11:21+03:00"
+vid_date: "2022-03-14T14:33:08Z"
+duration: "PT4M17S"
+viewcount: "918369"
+likeCount: "85878"
+dislikeCount: ""
+channel: "TerminalMontage"
+---
+{% raw %}Captain Olimar crashed landed on a mysterious planet! Will he be able to repair his ship with the help of some sapient carrots?<br /><br /><br /><a rel="nofollow" target="blank" href="http://www.TerminalMontage.com">http://www.TerminalMontage.com</a><br />Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/terminalmontage">https://www.patreon.com/terminalmontage</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/TerminalMontage">https://twitter.com/TerminalMontage</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/TerminalMontage/">https://www.facebook.com/TerminalMontage/</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/jeremeyyyyyy/">https://www.instagram.com/jeremeyyyyyy/</a><br />Merch: <a rel="nofollow" target="blank" href="https://terminalmontagemerchportal.weebly.com/">https://terminalmontagemerchportal.weebly.com/</a><br /><br />Animatic, Animation, Backgrounds, Lineart, Sound Design, Writing by Jeremey Chinshue<br /><a rel="nofollow" target="blank" href="https://twitter.com/JeremeyChinshue">https://twitter.com/JeremeyChinshue</a><br /><br />Music:<br />Arcana/Card Master - Silent Forest of Doubt (Sega Genesis Remix) By TheLegendofRenegade <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=qW_j_C43_vU">https://www.youtube.com/watch?v=qW_j_C43_vU</a><br /><br />Valis III [GEN] - Ningenkai (SNES Remix) By TheLegendofRenegade <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=U0pNFCgHME0">https://www.youtube.com/watch?v=U0pNFCgHME0</a><br /><br />Little Nemo: The Dream Master [NES] - Final Boss @ВЭКА Channel cover (Sega Genesis Remix) By TheLegendofRenegade <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=WpQpT8MqNqE">https://www.youtube.com/watch?v=WpQpT8MqNqE</a><br /><br />Credits theme; Garden Stage by Jattello <a rel="nofollow" target="blank" href="https://youtu.be/WSDSCWLkaXE?t=2679">https://youtu.be/WSDSCWLkaXE?t=2679</a><br /><br />For advertising email: Marketing@Frederator.com<br /><br />TERMINALMONTAGE ® SOMETHING SERIES®<br />Registered in the U.S. Patent and Trademark Office.<br />© TERMINALMONTAGE LLC. All Rights Reserved. <br />For additional legal information, please see: <a rel="nofollow" target="blank" href="https://terminalmontageportal.weebly.com/legal-notices-and-disclaimers.html">https://terminalmontageportal.weebly.com/legal-notices-and-disclaimers.html</a><br /><br />#SomethingSeries #Pikmin #Nintendo #Parody #Gaming #Gamecube #TerminalMontage #Olimar #SmashBros{% endraw %}
