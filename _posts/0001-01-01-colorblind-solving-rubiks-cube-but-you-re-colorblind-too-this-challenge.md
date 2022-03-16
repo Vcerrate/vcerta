@@ -1,0 +1,15 @@
+---
+title: "Colorblind solving Rubiks Cube but YOU'RE colorblind too"
+image: "https:\/\/i.ytimg.com\/vi\/7ciE_xkP2EI\/hqdefault.jpg"
+vid_id: "7ciE_xkP2EI"
+categories: "Entertainment"
+tags: ["Ryan","Trahan","colorblind"]
+date: "2022-03-16T08:58:35+03:00"
+vid_date: "2020-02-14T18:13:15Z"
+duration: "PT15M18S"
+viewcount: "4440433"
+likeCount: "121202"
+dislikeCount: ""
+channel: "Ryan Trahan"
+---
+{% raw %}this challenge is wild, join the movement!<br />Buy Speedcubers Club Merch (profit goes to GoFundMe) ► <a rel="nofollow" target="blank" href="https://teespring.com/stores/ryan-trahan">https://teespring.com/stores/ryan-trahan</a><br />Donate to Jones family GoFundMe ►  <a rel="nofollow" target="blank" href="https://www.gofundme.com/f/sp7m4-color-blind-glasses">https://www.gofundme.com/f/sp7m4-color-blind-glasses</a><br />Take EnChroma colorblind test ► <a rel="nofollow" target="blank" href="https://enchroma.com/pages/test">https://enchroma.com/pages/test</a><br />Share your results ► <a rel="nofollow" target="blank" href="http://www.strawpoll.me/19392022/r">http://www.strawpoll.me/19392022/r</a><br /><br />Watch another video ► <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=1rwMH...">https://www.youtube.com/watch?v=1rwMH...</a><br />My family channel ► <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=WEccz...">https://www.youtube.com/watch?v=WEccz...</a><br />My 2nd channel ► <a rel="nofollow" target="blank" href="http://bit.ly/2NfCrVu">http://bit.ly/2NfCrVu</a><br />Hydra (my merch) ► <a rel="nofollow" target="blank" href="http://bit.ly/hydrashop">http://bit.ly/hydrashop</a><br /><br />ME ►<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/trahan">https://www.instagram.com/trahan</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/trahan">https://twitter.com/trahan</a><br /><a rel="nofollow" target="blank" href="https://twitch.tv/ryantrahan">https://twitch.tv/ryantrahan</a><br /><br />Business ► ryantrahanbiz@gmail.com<br /><br />FAQ:<br />1. What equipment do you use?<br />My camera - <a rel="nofollow" target="blank" href="http://amzn.to/2gHUHI8">http://amzn.to/2gHUHI8</a><br />Vlog lens - <a rel="nofollow" target="blank" href="http://amzn.to/2h7fNfF">http://amzn.to/2h7fNfF</a><br />Vlog mic - <a rel="nofollow" target="blank" href="https://amzn.to/2BEYBLA">https://amzn.to/2BEYBLA</a><br />Photography lens - <a rel="nofollow" target="blank" href="https://amzn.to/2PtIgw7">https://amzn.to/2PtIgw7</a><br />My drone - <a rel="nofollow" target="blank" href="http://amzn.to/2julTer">http://amzn.to/2julTer</a><br />Desk mic (commentary) - <a rel="nofollow" target="blank" href="https://amzn.to/2nVinIH">https://amzn.to/2nVinIH</a><br />My computer - <a rel="nofollow" target="blank" href="http://amzn.to/2xmyGBI">http://amzn.to/2xmyGBI</a><br />My tripod - <a rel="nofollow" target="blank" href="https://amzn.to/2w27Tfj">https://amzn.to/2w27Tfj</a><br /><br />HIDDEN COMMENT: jonathan a g{% endraw %}
