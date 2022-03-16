@@ -1,0 +1,15 @@
+---
+title: "Maybe Lawmakers Shouldn't Be Allowed To Trade Stocks? - SOME MORE NEWS"
+image: "https:\/\/i.ytimg.com\/vi\/K5B175H0G9c\/hqdefault.jpg"
+vid_id: "K5B175H0G9c"
+categories: "Comedy"
+tags: ["stocks","Nancy pelosi","Nancy Pelosi stocks"]
+date: "2022-03-16T07:55:42+03:00"
+vid_date: "2022-03-13T17:00:19Z"
+duration: "PT40M11S"
+viewcount: "228854"
+likeCount: "14190"
+dislikeCount: ""
+channel: "Some More News"
+---
+{% raw %}Hi. Today we discuss an obvious thing we should obviously take care of in an obvious way.<br /><br />Check out our new series SOME THIS! - <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLkJemc4T5NYbcqTbNmyH3uqutwcj8fHf3">https://www.youtube.com/playlist?list=PLkJemc4T5NYbcqTbNmyH3uqutwcj8fHf3</a><br /><br />Support us on our PATREON: <a rel="nofollow" target="blank" href="http://patreon.com/somemorenews">http://patreon.com/somemorenews</a><br />Check out our MERCH STORE: <a rel="nofollow" target="blank" href="https://www.teepublic.com/stores/somemorenews?ref_id=9949">https://www.teepublic.com/stores/somemorenews?ref_id=9949</a><br />SUBSCRIBE to SOME MORE NEWS: <a rel="nofollow" target="blank" href="https://tinyurl.com/ybfx89rh">https://tinyurl.com/ybfx89rh</a><br /><br />Executive Producer - Katy Stoll (@KatyStoll). Writer - Ella Yurman (@elyurman). Director -  Will Gordh (@will_gordh). Editor -  John Conway. Graphics by F. Clint DeNisco. Head Writer - David Christopher Bell. Producer - Nick Mundy. Researcher - Marco Siler-Gonzales (@mijo_marco). Associate Producer - Quincy Tucker (@LTP313).<br /><br />Grab Liquid I.V. in bulk nationwide at Costco or you can get 25% off when you go to <a rel="nofollow" target="blank" href="http://LIQUIDIV.com">http://LIQUIDIV.com</a> and use code MORENEWS at checkout!<br /><br />Athletic Greens is going to give you an immune supporting FREE 1 year supply of Vitamin D AND 5 free travel packs with your first purchase if you visit <a rel="nofollow" target="blank" href="http://athleticgreens.com/morenews">http://athleticgreens.com/morenews</a> today.<br /><br />Ready to give your brain some TLC? Download Best Fiends FREE today on the App Store or Google Play. That’s friends, without the r—Best Fiends.<br /><br />Subscribe to the Even More News and SMN: Audio podcasts here:<br />Apple Podcasts: <a rel="nofollow" target="blank" href="https://podcasts.apple.com/us/podcast/some-more-news/id1364825229">https://podcasts.apple.com/us/podcast/some-more-news/id1364825229</a><br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/show/6ebqegozpFt9hY2WJ7TDiA?si=5keGjCe5SxejFN1XkQlZ3w&amp;dl_branch=1">https://open.spotify.com/show/6ebqegozpFt9hY2WJ7TDiA?si=5keGjCe5SxejFN1XkQlZ3w&amp;dl_branch=1</a><br />Stitcher: <a rel="nofollow" target="blank" href="https://www.stitcher.com/show/even-more-news">https://www.stitcher.com/show/even-more-news</a><br /><br />Source List: <a rel="nofollow" target="blank" href="https://docs.google.com/document/d/1z4FF_r-TkSmh7Sij7RXVfi5dln8_GX2H8eRFdPumZiI/edit?usp=sharing">https://docs.google.com/document/d/1z4FF_r-TkSmh7Sij7RXVfi5dln8_GX2H8eRFdPumZiI/edit?usp=sharing</a>{% endraw %}
