@@ -1,0 +1,15 @@
+---
+title: "Mapping Reducibility + Reductions, what are they? - Easy Theory"
+image: "https:\/\/i.ytimg.com\/vi\/-5TAx4tZlro\/hqdefault.jpg"
+vid_id: "-5TAx4tZlro"
+categories: "Education"
+tags: ["easy theory","mapping reduction","mapping reduction turing machines"]
+date: "2022-03-16T13:21:55+03:00"
+vid_date: "2021-01-30T14:00:00Z"
+duration: "PT8M12S"
+viewcount: "5186"
+likeCount: "132"
+dislikeCount: ""
+channel: "Easy Theory"
+---
+{% raw %}Here we introduce mapping reductions and show that if A mapping reduces to B and B is decidable, then A is also decidable.<br /><br />Easy Theory Website: <a rel="nofollow" target="blank" href="https://www.easytheory.org">https://www.easytheory.org</a><br />Become a member: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC3VY6RTXegnoSD_q446oBdg/join">https://www.youtube.com/channel/UC3VY6RTXegnoSD_q446oBdg/join</a><br />Donation (appears on streams): <a rel="nofollow" target="blank" href="https://streamlabs.com/easytheory1/tip">https://streamlabs.com/easytheory1/tip</a><br />Paypal: <a rel="nofollow" target="blank" href="https://paypal.me/easytheory">https://paypal.me/easytheory</a><br />Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/easytheory">https://www.patreon.com/easytheory</a><br />Discord: <a rel="nofollow" target="blank" href="https://discord.gg/SD4U3hs">https://discord.gg/SD4U3hs</a><br /><br />#easytheory<br /><br />Youtube Live Streaming (Sundays) - subscribe for when these occur.<br /><br />Social Media:<br />Facebook Page: <a rel="nofollow" target="blank" href="https://www.facebook.com/easytheory/">https://www.facebook.com/easytheory/</a><br />Facebook group: <a rel="nofollow" target="blank" href="https://www.facebook.com/groups/easytheory/">https://www.facebook.com/groups/easytheory/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/EasyTheory">https://twitter.com/EasyTheory</a><br /><br />Merch:<br />Language Hierarchy Apparel: <a rel="nofollow" target="blank" href="https://teespring.com/language-hierarchy?pid=2&amp;cid=2122">https://teespring.com/language-hierarchy?pid=2&amp;cid=2122</a><br />Pumping Lemma Apparel: <a rel="nofollow" target="blank" href="https://teespring.com/pumping-lemma-for-regular-lang">https://teespring.com/pumping-lemma-for-regular-lang</a><br /><br />If you like this content, please consider subscribing to my channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC3VY6RTXegnoSD_q446oBdg?sub_confirmation=1">https://www.youtube.com/channel/UC3VY6RTXegnoSD_q446oBdg?sub_confirmation=1</a><br /><br />Gold Supporters: Micah Wood<br />Silver Supporters: Timmy Gy<br /><br />▶SEND ME THEORY QUESTIONS◀<br />ryan.e.dougherty@icloud.com<br /><br />▶ABOUT ME◀<br />I am a professor of Computer Science, and am passionate about CS theory. I have taught many courses at several different universities, including several sections of undergraduate and graduate theory-level classes.{% endraw %}
