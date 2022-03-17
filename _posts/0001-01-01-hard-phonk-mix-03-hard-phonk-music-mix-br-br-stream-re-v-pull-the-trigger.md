@@ -1,0 +1,15 @@
+---
+title: "HARD PHONK MIX 03"
+image: "https:\/\/i.ytimg.com\/vi\/RV8w2wsqEFA\/hqdefault.jpg"
+vid_id: "RV8w2wsqEFA"
+categories: "Music"
+tags: ["hard phonk","hard phonk mix","hard phonk for gym"]
+date: "2022-03-17T23:45:21+03:00"
+vid_date: "2022-03-16T20:15:00Z"
+duration: "PT38M"
+viewcount: "2261"
+likeCount: "175"
+dislikeCount: ""
+channel: "rare"
+---
+{% raw %}HARD PHONK MUSIC MIX 🔥<br /><br />Stream 'Re_V - Pull The Trigger Back': <a rel="nofollow" target="blank" href="https://share.amuse.io/track/rare-pull-the-trigger-back">https://share.amuse.io/track/rare-pull-the-trigger-back</a><br />Subscribe to @rare ➜ <a rel="nofollow" target="blank" href="https://www.youtube.com/rarephonk?sub_confirmation=1">https://www.youtube.com/rarephonk?sub_confirmation=1</a><br />Follow us on Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/3tkoy9GCAtUURmsrtuSFMj">https://open.spotify.com/artist/3tkoy9GCAtUURmsrtuSFMj</a><br /><br />HARD PHONK MIX 02<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=7fP_N6xcpzg">https://www.youtube.com/watch?v=7fP_N6xcpzg</a><br /><br />HARD PHONK MIX 01<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=dV1nEHo4EYY">https://www.youtube.com/watch?v=dV1nEHo4EYY</a><br /><br />Follow rare:<br /><a rel="nofollow" target="blank" href="https://instagram.com/rarephonk">https://instagram.com/rarephonk</a><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/rxaxrxe">https://soundcloud.com/rxaxrxe</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/rarephonk">https://twitter.com/rarephonk</a><br /><br />'HARD PHONK MIX 3' TRACKLIST:<br />00:00 THXNDER - DIRTY BUSINESS<br />10:23 LOCPLAYA - I'M GETTIN' HIGH AS FUCK<br />12:29 bonque - PIMP SHIT<br />14:37 Cloudymane - UZI MIX<br />17:40 CXLIN - MURDER WITH A CASE<br />20:26 FDYN - OUT HERE<br />21:26 SIGHT MVSK - DOUGH BOYS<br />24:43 DEITYCLICK - UZI TOOL w/ JAPANESE KILLA<br />26:34 blubear - PACK A GAT<br />29:33 gelato .45 - STEPPIN OVER CORPSES w/ VEXOR<br />32:29 NORTH POSSE - NEVER TRUST EM<br />35:09 kushface - ACCIDENTAL SPILL<br /><br />Don't forget to support the artists by following them on SoundCloud!<br /><br />👇 rare merch (thank you for the love)<br /><a rel="nofollow" target="blank" href="https://rare-phonk.creator-spring.com/">https://rare-phonk.creator-spring.com/</a><br /><br />Rare Phonk 24/7 Live Radio 🎧<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=f52JPKTiaiI">https://www.youtube.com/watch?v=f52JPKTiaiI</a><br /><br />Support this channel ❤️<br /><a rel="nofollow" target="blank" href="https://patreon.com/rarephonk">https://patreon.com/rarephonk</a><br /><a rel="nofollow" target="blank" href="https://paypal.me/rarephonk">https://paypal.me/rarephonk</a><br /><br />Cartoon Music - The Simpsons<br /><br />RARE PHONK TAPE<br /><br />CARTOON PHONK MIX<br /><br />rare<br /><br />#hardphonk #phonk #phonkmix<br /><br />r a r e .{% endraw %}
