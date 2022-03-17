@@ -1,0 +1,15 @@
+---
+title: "Recognizing Intent Is Key To Covering Your ASP"
+image: "https:\/\/i.ytimg.com\/vi\/qB-smhDhOhc\/hqdefault.jpg"
+vid_id: "qB-smhDhOhc"
+categories: "Education"
+tags: ["self defense","self protection","active self"]
+date: "2022-03-18T02:48:30+03:00"
+vid_date: "2022-03-17T14:00:18Z"
+duration: "PT5M47S"
+viewcount: "102899"
+likeCount: "6298"
+dislikeCount: ""
+channel: "Active Self Protection"
+---
+{% raw %}Please thank StormHunter WX for today’s video of Recognizing Intent Is Key To Covering Your ASP!  The StormHunter WX weather app is free to download and use. It provides you with warning of severe weather even before the national weather services issue alerts!  I use it every day.  Download it free and without in-app purchases on iOS (<a rel="nofollow" target="blank" href="https://get-asp.com/shios)">https://get-asp.com/shios)</a> and android (<a rel="nofollow" target="blank" href="https://get-asp.com/shandroid)">https://get-asp.com/shandroid)</a> today!<br /><br />ASP merch is now in stock in the store…go get a newly designed limited edition ASP polo! <a rel="nofollow" target="blank" href="http://get-asp.com/store">http://get-asp.com/store</a><br /><br />If you value what we do at ASP, would you consider becoming an ASP Patron Member to support making videos like Recognizing Intent Is Key To Covering Your ASP? <a rel="nofollow" target="blank" href="https://get-asp.com/patron">https://get-asp.com/patron</a> or <a rel="nofollow" target="blank" href="https://get-asp.com/patron-annual">https://get-asp.com/patron-annual</a> gives the details and benefits.  You can also become a GOLD Patron member by clicking here for the monthly subscription and get our monthly online seminars for free: <a rel="nofollow" target="blank" href="https://get-asp.com/ellk">https://get-asp.com/ellk</a><br /><br />Video Source:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=f7k4_wjL9hg">https://www.youtube.com/watch?v=f7k4_wjL9hg</a><br /><br />News Story:<br /><a rel="nofollow" target="blank" href="https://get-asp.com/it30">https://get-asp.com/it30</a><br /><br />Attitude. Skills. Plan.<br /><br />If you’re looking for a quality holster for your every-day carry, the ASP Holster Consortium stands ready to provide you with high quality, clueful holsters that meet our standards with excellence.  Our entire staff carries in these products, and we highly recommend them to you.  Find out more here: <a rel="nofollow" target="blank" href="https://get-asp.com/9ybs">https://get-asp.com/9ybs</a><br /><br />ASP Sponsors and Recommended Products: <a rel="nofollow" target="blank" href="https://activeselfprotection.com/recommended-products-and-sponsors/">https://activeselfprotection.com/recommended-products-and-sponsors/</a><br /><br />Copyright Disclaimer. Under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, comment, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational or personal use tips the balance in favor of fair use.{% endraw %}
