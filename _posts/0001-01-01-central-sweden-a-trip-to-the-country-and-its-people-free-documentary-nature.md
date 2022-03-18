@@ -1,0 +1,15 @@
+---
+title: "Central Sweden - A Trip to the Country and its People | Free Documentary Nature"
+image: "https:\/\/i.ytimg.com\/vi\/hE9psED6kPs\/hqdefault.jpg"
+vid_id: "hE9psED6kPs"
+categories: "Education"
+tags: ["Free Documentary","Documentaries","Full documentary"]
+date: "2022-03-18T04:27:26+03:00"
+vid_date: "2022-01-12T14:00:31Z"
+duration: "PT43M12S"
+viewcount: "507415"
+likeCount: "4765"
+dislikeCount: ""
+channel: "Free Documentary - Nature"
+---
+{% raw %}Central Sweden - A Trip to the Country and its People | Nature Documentary<br /><br />Watch 'Band of Bears - In the Forests of Scandinavia' here:  <a rel="nofollow" target="blank" href="https://youtu.be/j6vM_xlfJjI">https://youtu.be/j6vM_xlfJjI</a><br /><br />Sweden, right up on the border with Norway, 150 kilometers north of the Arctic Circle: Here Heidi Andersson lives in a village called Ensamheten - loneliness. That's why everyone stays together, works with wood and in agriculture, and practices the same sport - arm wrestling. Heidi is an eight times world champion in this unusual sport for women and enjoys her life in &quot;solitude&quot;. <br /><br />The Baltic Sea coast in southern Lapland: Here you can find the herring delicacy surstromming, the &quot;sour herring&quot;. And as is so often the case with specialties, opinions differ - the smell and taste are definitely unique. <br />Our journey then leads into the forests and swamps of Sweden. Around 400,000 moose live in the whole country. But you can hardly see them. Unless you visit Sune Häggmark. He takes care of orphaned and sick animals. Tourists have made it a business for him.<br /><br />Sundborn is located in the heart of central Sweden. After a visit to the pilgrimage site for Sweden fans from all over the world - the house of the most popular Swedish painter Carl Larsson - the trip to Sweden ends with Peter Mosten. He produces birch champagne. To do this, he drills holes in the trunks and taps the birch trees with them. He presses sparkling wine from the juice according to a secret recipe. Business is booming, and so he has set himself the goal of one day bringing 50,000 liters onto the market<br /><br />▬▬▬▬▬▬▬▬▬<br /><br /><br /><br />Subscribe Free Documentary - Nature Channel for free: <a rel="nofollow" target="blank" href="http://bit.ly/2mFDC3Q">http://bit.ly/2mFDC3Q</a><br /><br />Facebook: <a rel="nofollow" target="blank" href="https://bit.ly/2QfRxbG">https://bit.ly/2QfRxbG</a><br /><br />Twitter: <a rel="nofollow" target="blank" href="https://bit.ly/2QlwRiI">https://bit.ly/2QlwRiI</a><br /><br /><br /><br />▬▬▬▬▬▬▬▬▬<br /><br />#FreeDocumentaryNature #Documentary #Sweden<br /><br />▬▬▬▬▬▬▬▬▬<br /><br /><br />Free Documentary is dedicated to bring high-class documentaries to you on youtube for free. With the latest camera equipment used by well-known filmmakers working for famous production studios. You will see fascinating shots from the deep seas and up in the air, capturing great stories and pictures from everything our beautiful and interesting planet has to offer. <br /><br /><br /><br />Enjoy stories about nature, wildlife, culture, people, history and more to come.{% endraw %}
