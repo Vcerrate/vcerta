@@ -1,0 +1,15 @@
+---
+title: "climate change is moving noticeably in the United States. Washington covered by bad weather"
+image: "https:\/\/i.ytimg.com\/vi\/ixpq8fLI4Bs\/hqdefault.jpg"
+vid_id: "ixpq8fLI4Bs"
+categories: "News-Politics"
+tags: ["snowstorm Washington","weather","snow"]
+date: "2022-03-18T08:33:36+03:00"
+vid_date: "2022-03-14T22:00:25Z"
+duration: "PT2M7S"
+viewcount: "5274"
+likeCount: "191"
+dislikeCount: ""
+channel: "Planet News"
+---
+{% raw %}Subscribe to the channel and stay up to date with news about natural disasters and answer the main question of interest Will there be global warming and will people themselves be to blame<br />Brief description of this video : Strong Late-Winter Storm Knocks Out Power and Snarls Travel<br />More than 143,000 customers were without power <br />as the storm packed powerful winds and snowfall at a rate of one to two inches per hour in some places.<br />A fast-moving winter storm brought high winds and heavy snowfall to a wide stretch of the eastern United States on Saturday, <br />knocking out power to thousands and disrupting travel with hazardous conditions, meteorologists said.<br />As the storm traveled from Tennessee to Maine, putting about 16 million people under a National Weather Service winter storm warning,<br />meteorologists warned that the precipitation would be followed by a cold snap and strong winds.<br />Heavy snowfall was already affecting the central Appalachians on Saturday morning, <br />and it would be moving rapidly across the northern mid-Atlantic region and up into the Northeast over the course of the day.<br />Snowfall exceeded eight inches in some parts of Kentucky, Pennsylvania, Tennessee and West Virginia, <br />according to preliminary reports from the Weather Service.<br />The Pennsylvania Department of Transportation asked drivers to avoid unnecessary travel and imposed speed restrictions on some roads.<br />Snow may fall in some places at a rate of one to two inches per hour and may combine with winds of up to 50 miles per hour<br />The channel lists natural disasters such as:<br />1) emergency geological situations: earthquake, volcanic eruption, mudflow, landslide, collapse, avalanche;<br />2) Hydrological emergencies: flood, tsunami, limnological catastrophe, floods, flooding;<br />3) Fires: forest fire, peat fire, glass fire, forest fire;<br />4) Extreme meteorological situations: Tornado, Cyclone, Snowstorm, Hail, Drought, Hail, Hurricane, Storm, Thunderstorm, Typhoon, Storm, Lightning.<br />A terrible #blizzard covered the capital of Iceland Reykjavik<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=AkYyQ-vX6NM">https://www.youtube.com/watch?v=AkYyQ-vX6NM</a><br />Playlist Snow 2022<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Xc-MvZVoL6Q&amp;list=PLHWMqs-B5OVCzB6l1pm5zkZsfy-eQW_Un">https://www.youtube.com/watch?v=Xc-MvZVoL6Q&amp;list=PLHWMqs-B5OVCzB6l1pm5zkZsfy-eQW_Un</a><br />#snow #onstorm #element #evacuation #hurricane  #snowstorm #disaster #blizzardWashington #snowUSA #winter2022{% endraw %}
