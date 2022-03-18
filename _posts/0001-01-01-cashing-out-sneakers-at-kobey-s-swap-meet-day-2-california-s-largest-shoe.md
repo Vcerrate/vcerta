@@ -1,0 +1,15 @@
+---
+title: "CASHING OUT SNEAKERS AT KOBEY'S SWAP MEET DAY 2! *California's Largest Shoe & Vintage Event in 2022*"
+image: "https:\/\/i.ytimg.com\/vi\/_d3rGZvcqqI\/hqdefault.jpg"
+vid_id: "_d3rGZvcqqI"
+categories: "People-Blogs"
+tags: ["The Common Hype","Sneaker Store in Arizona","Day in the Life of a Sneaker Store Owner"]
+date: "2022-03-18T21:41:09+03:00"
+vid_date: "2022-03-17T17:00:34Z"
+duration: "PT15M48S"
+viewcount: "53286"
+likeCount: "2088"
+dislikeCount: ""
+channel: "The Common Hype"
+---
+{% raw %}Shop Online, We Ship Nationwide!<br /><a rel="nofollow" target="blank" href="https://www.commonhypeaz.com/">https://www.commonhypeaz.com/</a><br /><br />Text 'Hype' to 812-615-2868 to Join Our FREE VIP Club!<br /><br />Shop Reshoevn8r Here!<br /><a rel="nofollow" target="blank" href="http://bit.ly/commonhype">http://bit.ly/commonhype</a><br /><br />Download WhatNot!<br /><a rel="nofollow" target="blank" href="https://www.whatnot.com/invite/commonhype">https://www.whatnot.com/invite/commonhype</a><br /><br />Follow Us On Instagram:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/commonhypeaz/">https://www.instagram.com/commonhypeaz/</a><br /><br />Follow Us On Twitch:<br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/thecommonhype">https://www.twitch.tv/thecommonhype</a><br /><br />Add Us On Snapchat:<br />CommonHype<br /><br />Follow Us On Facebook:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/commonhypeaz/">https://www.facebook.com/commonhypeaz/</a><br /><br />In today's video, we pull up to Kobey's Swap Meet 2022. We traveled from Phoenix/Tempe Arizona all the way to San Diego, California to come cash out and buy sneakers at the sneaker and vintage clothing event. Our main buys in this video are the Nike Dunk Low Panda or Black / White, Jordan 1 low Starfish, Nike Dunk Low Archeo Pink, Jordan 6 UNC, Nike SB Dunk Low Parra, Nike Dunk Low Off White Lot, and more. Sellers and vendors at Kobey's Swap Meet were charging good prices, so we spent over $15,000. We do a segment called &quot;Lowballing Resellers&quot; and were able to get some pairs from that too. We also got the opportunity to meet so many of our fans and supporters and get great deals at these shows from vendors and resellers. Watch the full video to find out what we bought at GotSole Boston and the prices we paid. A lot of subscribers told us at the event that our free sneaker investing advice has made them thousands of dollars in profits! The sneakers and clothing we pick up are our best selling sneakers in our sneaker store. This event is similar to a Sneakercon, Sneaker Exit or Got Sole. This is our second sneaker event of March 2022. We hope you all enjoy the videos and thank you for the continued support! We will see you in a few weeks at Sneaker Con San Antonio, Texas !<br /><br />If you guys are in the Phoenix, Chandler, Gilbert, Mesa, Tempe or Scottsdale area in Arizona, come check out our shop located in Tempe!<br /><br />Music<br />Prod. &amp; Feat. LuxeXI<br /><br />#KobeysSwapMeet #SneakerEvent #ResellingShoes{% endraw %}
