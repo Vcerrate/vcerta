@@ -1,0 +1,15 @@
+---
+title: "ULTRA SUPER SAIYAN BLUE KAIOKEN GOKU IS DEFINITELY Z TIER!!! Dragon Ball Legends Gameplay!"
+image: "https:\/\/i.ytimg.com\/vi\/i6zP7C5Mssk\/hqdefault.jpg"
+vid_id: "i6zP7C5Mssk"
+categories: "Gaming"
+tags: ["ULTRA SUPER SAIYAN BLUE KAIOKEN GOKU IS DEFINITELY Z TIER!!! Dragon Ball Legends Gameplay!","dragon ball legends ultra super saiyan blue kaioken goku","dragon ball legends ultra super saiyan god ss goku"]
+date: "2022-03-19T09:34:15+03:00"
+vid_date: "2022-03-17T21:00:28Z"
+duration: "PT16M52S"
+viewcount: "50958"
+likeCount: "2648"
+dislikeCount: ""
+channel: "Ndukauba"
+---
+{% raw %}ULTRA SUPER SAIYAN BLUE KAIOKEN GOKU IS DEFINITELY Z TIER!!! Dragon Ball Legends Gameplay! We managed to get Ultra Super Saiyan Blue Kaioken Goku in Dragon Ball Legends, so let's try him out in some online PvP battles! Enjoy!<br /><br />If you enjoyed this video, don't forget to like the video, share it, and subscribe to my channel!<br /><br />You like what you see? Subscribe here!<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/subscription_center?add_user=ndukauba1">https://www.youtube.com/subscription_center?add_user=ndukauba1</a><br /><br />Want to know when my next video will be up? Follow me on Twitter!<br /><a rel="nofollow" target="blank" href="https://twitter.com/NdukaubaYT">https://twitter.com/NdukaubaYT</a><br /><br />Want to see me play games live? Catch all of my livestreams on Twitch!<br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/ndukauba">https://www.twitch.tv/ndukauba</a><br /><br />For business inquiries, contact me here:<br /><a rel="nofollow" target="blank" href="https://ndukaubayt@gmail.com">https://ndukaubayt@gmail.com</a><br /><br />Get your official Ndukauba merch here!<br /><a rel="nofollow" target="blank" href="https://teespring.com/stores/ndukauba">https://teespring.com/stores/ndukauba</a><br /><br />Wants some Dragon Ball figures? Check out Zenmarket here!<br /><a rel="nofollow" target="blank" href="https://zenmarket.jp/en/showcase/ndukauba-page-sign-up?affid=CDC1B78D">https://zenmarket.jp/en/showcase/ndukauba-page-sign-up?affid=CDC1B78D</a><br /><br />Get 10% off a DXRacer chair with the code &quot;ndukauba&quot;!<br /><a rel="nofollow" target="blank" href="https://dxr.us/Ndukauba">https://dxr.us/Ndukauba</a><br /><br />Get a 30-day free VRV trial now for ad-free access to all your favorite shows, anime, and cartoons using my link!<br /><a rel="nofollow" target="blank" href="https://bit.ly/Ndukauba">https://bit.ly/Ndukauba</a><br /><br />Save $3 off any order over $20 or more on play-asia.com with the code KAUBA (code will not work with cash equivalent items such as PSN cards, Nintendo Network cards, etc.)<br /><a rel="nofollow" target="blank" href="http://www.play-asia.com/?affiliate_id=1553483&amp;tagid=1553483">http://www.play-asia.com/?affiliate_id=1553483&amp;tagid=1553483</a><br /><br />Intro Song made by Jordyn Edmonds<br /><a rel="nofollow" target="blank" href="https://smarturl.it/jordynedmonds">https://smarturl.it/jordynedmonds</a>{% endraw %}
