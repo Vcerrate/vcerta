@@ -1,0 +1,15 @@
+---
+title: "SUMO Haru Basho 2022 Day 7 March 19th Makuuchi ALL BOUTS"
+image: "https:\/\/i.ytimg.com\/vi\/_qgYVixI4_Y\/hqdefault.jpg"
+vid_id: "_qgYVixI4_Y"
+categories: "Sports"
+tags: ["sumo","haru basho","makuuchi"]
+date: "2022-03-19T19:55:10+03:00"
+vid_date: "2022-03-19T09:25:02Z"
+duration: "PT29M14S"
+viewcount: "18880"
+likeCount: "961"
+dislikeCount: ""
+channel: "NattoSumo"
+---
+{% raw %}SUMO Haru Basho 2022 Day 7 March 19th Makuuchi ALL BOUTS. Condensed, enjoy!  <br />Original footage from NHK.  <br />Email: nattosumocontact@gmail.com  <br />Discord:<a rel="nofollow" target="blank" href="https://discord.gg/xjqCCMEVhX">https://discord.gg/xjqCCMEVhX</a>   <br />twitter: <a rel="nofollow" target="blank" href="https://twitter.com/NattoSumo/">https://twitter.com/NattoSumo/</a>  <br />Games:  <a rel="nofollow" target="blank" href="https://www.nattosumo.com">https://www.nattosumo.com</a> <br />Support: <a rel="nofollow" target="blank" href="https://ko-fi.com/nattosumo">https://ko-fi.com/nattosumo</a>  <br />Backup channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCYUftmtLmDHY_8EmUNQKJPA">https://www.youtube.com/channel/UCYUftmtLmDHY_8EmUNQKJPA</a><br /><br />Please support my work, I would appriciate it a lot: <a rel="nofollow" target="blank" href="https://ko-fi.com/nattosumo">https://ko-fi.com/nattosumo</a> <br />    <br />With Stats / Without     <br />1 Akua vs Ichiyamamoto 1:01/ 1:12<br />2 Kotoshoho vs Kagayaki 1:53/ 2:04<br />3 Chiyomaru vs Tochinoshin 2:52/ 3:03<br />4 Yutakayama vs Chiyotairyu 4:08/ 4:19<br />5 Kotoeko vs Kotokuzan 5:05/ 5:16<br />6 Chiyonokuni vs Terutsuyoshi 5:50/ 6:01<br />7 Nishikigi vs Aoiyama 6:44/ 6:55<br />8 Tobizaru vs Myogiryu 7:47/ 7:58<br />9 Chiyoshoma vs Wakamotoharu 8:56/ 9:07<br />10 Shimanoumi vs Okinoumi 10:07/ 10:18<br />11 Sadanoumi vs Kotonowaka 11:27/ 11:38<br />12 Hokutofuji vs Takayasu 12:30/ 12:41<br />13 Takarafuji vs Endo 13:56/ 14:07<br />14 Ichinojo vs Kiribayama 15:12/ 15:23<br />15 Takanosho vs Hoshoryu 17:40/ 17:51<br />16 Ura vs Abi 19:30/ 19:41<br />17 Wakatakakage vs Daieisho 21:43/ 21:54<br />18 Onosho vs Mitakeumi 23:06/ 23:17<br />19 Tamawashi vs Takakeisho 24:38/ 24:49<br />20 Shodai vs Meisei 26:22/ 26:33<br />     <br />Leader board entering 0:00    <br />Bout recap / Leader board leaving: 28:51    <br />     <br />Torikumi Day 8      <br />1 Azumaryu vs Kotokuzan  <br />2 Tochinoshin vs Yutakayama  <br />3 Chiyomaru vs Kagayaki  <br />4 Kotoeko vs Nishikigi  <br />5 Ichiyamamoto vs Chiyotairyu  <br />6 Myogiryu vs Akua  <br />7 Kotoshoho vs Terutsuyoshi  <br />8 Chiyoshoma vs Aoiyama  <br />9 Shimanoumi vs Sadanoumi  <br />10 Takayasu vs Wakamotoharu  <br />11 Hokutofuji vs Tobizaru  <br />12 Takarafuji vs Okinoumi  <br />13 Kotonowaka vs Endo  <br />14 Meisei vs Tamawashi  <br />15 Takanosho vs Ichinojo  <br />16 Wakatakakage vs Ura  <br />17 Daieisho vs Abi  <br />18 Shodai vs Kiribayama  <br />19 Hoshoryu vs Mitakeumi  <br />20 Onosho vs Takakeisho{% endraw %}
