@@ -1,0 +1,15 @@
+---
+title: "William Henry Explains Why ETs Are Making Contact with Humanity"
+image: "https:\/\/i.ytimg.com\/vi\/CqHfTuywteE\/hqdefault.jpg"
+vid_id: "CqHfTuywteE"
+categories: "Entertainment"
+tags: ["gaia","yoga on gaia","cosmic disclosure"]
+date: "2022-03-19T16:45:52+03:00"
+vid_date: "2022-03-18T15:13:55Z"
+duration: "PT10M39S"
+viewcount: "20906"
+likeCount: "1321"
+dislikeCount: ""
+channel: "Gaia"
+---
+{% raw %}8,000+ Films, Shows &amp; Classes on Gaia. Start Your Free Trial - <a rel="nofollow" target="blank" href="https://bit.ly/36qFjJC">https://bit.ly/36qFjJC</a><br /><br />William Henry is fueled by the conviction that the work of ascension is the destiny of humanity. When he first began his studies at a Southern Baptist college, he wanted to answer the question, who was Jesus really, and what did he teach? Researching this question and other mysteries, he has discovered compelling evidence that transforming or ascending to a being of light is the universal goal of spiritual and metaphysical traditions worldwide. As a researcher of esoteric traditions, he dives into ancient texts and works of art to show it is possible for every human to realize this potential of their higher selves and bring our planet into a higher state of consciousness in light and love.<br /><br />About Gaia:<br />Gaia offers the largest resource of consciousness expanding videos. Answer life's deeper questions and go beyond the mainstream narrative with Gaia— a member-supported media network of truth seekers and believers empowering an evolution of consciousness. Explore over 8,000 ad-free, streaming titles that challenge modern paradigms and allow you to manifest the reality that defines your being. You can experience Gaia in English, Spanish, German, or French. We offer original, dubbed or subtitled content in these languages. Join hundreds of thousands of members in 185 countries in awakening your consciousness.<br /><br />Connect with Gaia:<br />Visit Gaia WEBSITE: <a rel="nofollow" target="blank" href="https://www.gaia.com/">https://www.gaia.com/</a><br />Like Gaia on FACEBOOK:  <a rel="nofollow" target="blank" href="https://www.facebook.com/Gaia">https://www.facebook.com/Gaia</a><br />Like Gaia Unexplained on FACEBOOK:  <a rel="nofollow" target="blank" href="https://www.facebook.com/GaiaUnexplained">https://www.facebook.com/GaiaUnexplained</a><br />Like Gaia Yoga on FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/yogaongaia">https://www.facebook.com/yogaongaia</a><br />Follow Gaia on YOUTUBE: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/GaiaVideo">https://www.youtube.com/c/GaiaVideo</a><br />Follow Gaia on TWITTER: <a rel="nofollow" target="blank" href="https://twitter.com/yourmothergaia">https://twitter.com/yourmothergaia</a><br />Follow Gaia on INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/wearegaia/">https://www.instagram.com/wearegaia/</a><br />Follow Gaia Yoga on INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/yogaongaia/">https://www.instagram.com/yogaongaia/</a><br /><br />#Gaia #WilliamHenry #GreatMinds{% endraw %}
