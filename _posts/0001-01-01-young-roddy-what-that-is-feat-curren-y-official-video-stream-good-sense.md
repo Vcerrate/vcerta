@@ -1,0 +1,15 @@
+---
+title: "Young Roddy - \"What That Is\" (feat. Curren$y) [Official Video]"
+image: "https:\/\/i.ytimg.com\/vi\/cDKjKiMzbUM\/hqdefault.jpg"
+vid_id: "cDKjKiMzbUM"
+categories: "Music"
+tags: ["Young Roddy","Curren$y (Musical Artist)","Hip Hop Music (Musical Genre)"]
+date: "2022-03-19T19:34:35+03:00"
+vid_date: "2015-12-18T21:47:23Z"
+duration: "PT4M5S"
+viewcount: "143797"
+likeCount: "2280"
+dislikeCount: ""
+channel: "iHipHopDistribution"
+---
+{% raw %}Stream Good Sense on Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/album/1MNXEYS14DFzXOWGUw3wWX">https://open.spotify.com/album/1MNXEYS14DFzXOWGUw3wWX</a><br /><br />You are now watching the official music video for &quot;What That Is&quot; featuring Curren$y by Young Roddy, from the album Good Sense, in stores worldwide via GOOD$ENSE / iHipHop Distribution.<br /><br />For more information on Young Roddy, please visit:<br /><a rel="nofollow" target="blank" href="https://twitter.com/young_roddy">https://twitter.com/young_roddy</a><br /><a rel="nofollow" target="blank" href="https://instagram.com/roddy31st">https://instagram.com/roddy31st</a><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/roddy31st">https://soundcloud.com/roddy31st</a><br /><br />About iHipHop Distribution:<br />iHipHop Distribution was founded in 2009 in an attempt to provide artists with a new paradigm for distributing their music and building their brand. iHipHop Distribution has worked successfully with many artists and producers including Wiz Khalifa, Smoke DZA, Hippie Sabotage, SD, Jet Life, Wu-Tang Clan, Cannibal Ox, and more (check out our list of Top Sellers) and maintains a partnership with the A3C Hip-Hop Festival for the release of its annual hip-hop compilation. <br /><br />iHipHop Distribution also maintains its own innovative worldwide digital distribution platform, iHipHopDistribution.com providing superior distribution and marketing services to artists worldwide.<br /><br /><a rel="nofollow" target="blank" href="https://twitter.com/ih2d">https://twitter.com/ih2d</a><br /><a rel="nofollow" target="blank" href="http://www.youtube.com/iHipHopDistribution">http://www.youtube.com/iHipHopDistribution</a><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/ihiphop-distribution">https://soundcloud.com/ihiphop-distribution</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/ihiphop_distribution">https://www.instagram.com/ihiphop_distribution</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/ihiphopdistro">https://www.facebook.com/ihiphopdistro</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/ihiphop/">https://www.instagram.com/ihiphop/</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/iHipHop">https://www.facebook.com/iHipHop</a><br />Get Distribution: <a rel="nofollow" target="blank" href="http://www.iHipHopDistribution.com">http://www.iHipHopDistribution.com</a>{% endraw %}
