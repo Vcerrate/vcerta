@@ -1,0 +1,15 @@
+---
+title: "Euler's real identity NOT e to the i pi = -1"
+image: "https:\/\/i.ytimg.com\/vi\/yPl64xi_ZZA\/hqdefault.jpg"
+vid_id: "yPl64xi_ZZA"
+categories: "Education"
+tags: ["e to the i p","Euler's identity","Euler's formula"]
+date: "2022-03-19T07:02:30+03:00"
+vid_date: "2017-08-11T14:52:31Z"
+duration: "PT17M16S"
+viewcount: "841225"
+likeCount: "19710"
+dislikeCount: ""
+channel: "Mathologer"
+---
+{% raw %}NEW (Christmas 2019). Two ways to support Mathologer <br />Mathologer Patreon:  <a rel="nofollow" target="blank" href="https://www.patreon.com/mathologer">https://www.patreon.com/mathologer</a><br />Mathologer PayPal: paypal.me/mathologer<br />(see the Patreon page for details)<br /><br />I've got some good news and some bad news for you. The bad news is that Euler's identity e to the i pi = -1 is not really Euler's identity. The good news is that Euler really did discover zillions of fantastic identities. This video is about the one that made him famous pretty much overnight: pi squared over 6 = the infinite sum of the reciprocals of the square natural numbers. This video is about Euler's  ingenious original argument which apart from this superfamous identity allowed him to evaluate the precise values of the zeta function at all even numbers (amongst many other things :)<br /><br />I am a huge fan of Euler’s and had been wanting to to make this video for a long time. Pretty nice how it did come together I think. One of the things I like best about making these videos is how much I end up learning myself. In this particular instance the highlights were actually calculating those other sums I mention myself using Euler’s idea (the Riemann Zeta function evaluated at even numbers) as well as learning about this alternate way to derive the Leibniz formula using the zeros of 1-sin(x). Oh, and one more thing. Euler’s idea of writing sin(x) in terms of its zeros may seem a bit crazy, but there is actually a theorem that tells us exactly what is possible in this respect. It’s called the Weierstrass factorization theorem. <br /><br />Good references are the following works by Euler: <a rel="nofollow" target="blank" href="http://www.17centurymaths.com/contents/introductiontoanalysisvol1.htm">http://www.17centurymaths.com/contents/introductiontoanalysisvol1.htm</a><br /><a rel="nofollow" target="blank" href="http://eulerarchive.maa.org//docs/translations/E352.pdf">http://eulerarchive.maa.org//docs/translations/E352.pdf</a><br /><br />The t-shirt I am wearing in this video is from here: <a rel="nofollow" target="blank" href="https://shirt.woot.com/offers/pi-rate?ref=cnt_ctlg_dgn_1">https://shirt.woot.com/offers/pi-rate?ref=cnt_ctlg_dgn_1</a><br /><br /><br />Thank you very much for Marty Ross and Danil Dmitriev for their feedback on an earlier draft of this video and Michael Franklin for his help with recording this video..<br /><br />Enjoy!<br /><br />Typo around 16:30: In the product formula for 1-sin x every second factor should feature a (1+...) instead of a (1-...). So the whole thing starts like this: (1 - 2 x/Pi)^2 (1 + 2 x/(3 Pi))^2 (1 - 2 x/(5 Pi))^2 (1 + 2 x/(9 Pi))^2...    :){% endraw %}
