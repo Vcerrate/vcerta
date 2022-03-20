@@ -1,0 +1,15 @@
+---
+title: "Wim Hof | It Takes Only 2 Days!"
+image: "https:\/\/i.ytimg.com\/vi\/0R5UbCwR2zA\/hqdefault.jpg"
+vid_id: "0R5UbCwR2zA"
+categories: "Education"
+tags: ["video advice","video advice motivation","wim hof"]
+date: "2022-03-20T18:30:15+03:00"
+vid_date: "2018-09-24T12:13:12Z"
+duration: "PT5M4S"
+viewcount: "3250615"
+likeCount: "62946"
+dislikeCount: ""
+channel: "Video Advice"
+---
+{% raw %}&quot;It Takes 2 Days To Do This, And You'll be A Superhuman Too!&quot; The Iceman Wim Hof.<br />►►►If you struggle and have a hard time, consider taking an online therapy session with our partner BetterHelp - <a rel="nofollow" target="blank" href="http://tryonlinetherapy.com/videoadvice">http://tryonlinetherapy.com/videoadvice</a><br />We receive commissions for referrals to BetterHelp. We only recommend products we know and trust.<br /><br />►This video was uploaded with the permission of the owner.<br />Special thanks to LONDON REAL for this amazing interview<br />Subscribe to their channel!<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/LondonRealTV">https://www.youtube.com/user/LondonRealTV</a><br /><br />►MOTIVATIONAL CLOTHES  Be a Dreamer <a rel="nofollow" target="blank" href="http://onlydreamersallowed.com">http://onlydreamersallowed.com</a><br /><br />#videoadvice#wimhof#theiceman<br />========================================================<br /><br />►►►Watch Wim Hof's Breathing Technique Video: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=3Y8Jk1FUv_o&amp;t=32s">https://www.youtube.com/watch?v=3Y8Jk1FUv_o&amp;t=32s</a><br /><br />►Check out his channel for more videos: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/wimhofmethod">https://www.youtube.com/user/wimhofmethod</a><br /><br />=====================================================<br /><br />Follow us for daily motivation:<br /><br />Facebook  - <a rel="nofollow" target="blank" href="https://www.facebook.com/videoadvice">https://www.facebook.com/videoadvice</a><br />Instagram - <a rel="nofollow" target="blank" href="https://www.instagram.com/videoadvice...">https://www.instagram.com/videoadvice...</a><br /><br />=====================================================<br /><br />►Speech by Wim Hof.<br /><br />Wim Hof's website: <a rel="nofollow" target="blank" href="http://www.icemanwimhof.com/">http://www.icemanwimhof.com/</a><br />Wim Hof on Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/iceman_hof">http://twitter.com/iceman_hof</a><br /><br />Source of the speech: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=woxjutWVuj4&amp;t=2481s">https://www.youtube.com/watch?v=woxjutWVuj4&amp;t=2481s</a><br /><br />=====================================================<br /><br />Music by Audiojungle.<br /><br />=====================================================<br /><br />❗All the footages are under the Creative Commons License 3.0, 4.0.<br />If any content owners would like their images removed, please contact us by email at videoadvice@yahoo.ro<br />Thank you!{% endraw %}
