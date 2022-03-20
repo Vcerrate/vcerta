@@ -1,0 +1,15 @@
+---
+title: "Claire Saffitz Makes Sourdough Bread | Dessert Person"
+image: "https:\/\/i.ytimg.com\/vi\/mV7tcR8PlIs\/hqdefault.jpg"
+vid_id: "mV7tcR8PlIs"
+categories: "Howto-Style"
+tags: ["bread","sourdough","fermentation"]
+date: "2022-03-20T07:06:51+03:00"
+vid_date: "2022-03-17T14:00:30Z"
+duration: "PT44M49S"
+viewcount: "136773"
+likeCount: "5367"
+dislikeCount: ""
+channel: "Claire Saffitz x Dessert Person"
+---
+{% raw %}Thank you to Made In for sponsoring today's episode! <br />Visit <a rel="nofollow" target="blank" href="https://www.madeincookware.com/claire">https://www.madeincookware.com/claire</a><br />to get 15% off your entire order using Claire15 at checkout.<br /><br />Bread is what I make when I feel happy, or sad, or stressed -- or just when I am in the mood for fresh, delicious, bread! The process is just as rewarding as the end result, so it’s never too late to learn the basics of sourdough bread-baking. Here Claire walks you through the steps, especially the home-friendly method of baking bread in a Dutch oven. <br /><br />Claire Saffitz Makes Sourdough Bread | Dessert Person<br /><br />#ClaireSaffitz #Sourdough #Bread<br /><br />Claire's Sourdough Bread:<br />Makes 2 Loaves<br />500g bread flour<br />500g random other flours<br />850g water<br />200g Sourdough Starter<br />20g Salt<br /><br />Special Equipment<br />Dutch Oven<br />Kitchen Scale <br />Bench Scraper <br />Bowl Scraper<br />Sifter<br />Bread Lame<br /><br />Video Breakdown:<br />0:00 Start<br />0:08 Cabin Update<br />0:58 Dessert Person Jingle<br />1:20 Into To Sourdough Bread<br />3:55 Baker's Percentages<br />4:52 Weigh The Flours<br />6:44 What is Autolyse<br />9:27 The Float Test<br />16:21Bulk Fermentation<br />20:29 Pre-shaping Bread<br />24:58 Shaping Your Bread<br />27:25 Proofing<br />37:20 Slice &amp; Eat + Outro<br /><br />Thanks for watching!<br /><br />Subscribe To Made In's YouTube Channel <a rel="nofollow" target="blank" href="https://www.youtube.com/c/MadeInCookware/videos">https://www.youtube.com/c/MadeInCookware/videos</a><br />Dessert Person Online: <a rel="nofollow" target="blank" href="https://www.dessertperson.com/">https://www.dessertperson.com/</a><br />Claire on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/csaffitz/?h...">https://www.instagram.com/csaffitz/?h...</a><br />Claire Merchandise: <a rel="nofollow" target="blank" href="https://www.dessertperson.com/buystuff">https://www.dessertperson.com/buystuff</a><br />Penguin Random House Books: <a rel="nofollow" target="blank" href="https://www.penguinrandomhouse.com/">https://www.penguinrandomhouse.com/</a><br /><br />Dessert Person Cookbook<br />Photographer: Alex Lau<br />Food Stylist: Sue Li<br />Prop Stylist: Astrid Chastka<br /><br />Video Series:<br />Producer/Director: @VincentCross <br />Camera Operator: Calvin Robertson<br />Sound Engineer/Music: Michael Guggino<br />Editor: Hal McFall<br /><br />Animation Credits:<br />Character Designer/Animator: Jack Sherry<br />Character Rigger: Johara Dutton<br />Background/Prop Designer: M. Cody Wiley<br />Background Illustrator: Jagriti Khirwar{% endraw %}
