@@ -1,0 +1,15 @@
+---
+title: "Amrut Dhara 179 | Swaminarayan Katha | HDH Bapji"
+image: "https:\/\/i.ytimg.com\/vi\/wclQb4_TjLk\/hqdefault.jpg"
+vid_id: "wclQb4_TjLk"
+categories: "Nonprofits-Activism"
+tags: ["HDH Bapji","Swaminarayan","SMVS"]
+date: "2022-03-20T09:59:21+03:00"
+vid_date: "2022-03-20T02:00:19Z"
+duration: "PT1H11M51S"
+viewcount: "821"
+likeCount: "71"
+dislikeCount: ""
+channel: "Swaminarayan Mandir Vasna Sanstha"
+---
+{% raw %}Website: <a rel="nofollow" target="blank" href="https://www.smvs.org">https://www.smvs.org</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/SMVSBhaleDayalu">https://www.instagram.com/SMVSBhaleDayalu</a><br />WhatsApp: <a rel="nofollow" target="blank" href="https://www.smvs.org/cms/bhale-dayalu-whatsapp">https://www.smvs.org/cms/bhale-dayalu-whatsapp</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/SMVSSwaminarayanSanstha">https://www.facebook.com/SMVSSwaminarayanSanstha</a><br />YouTube Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/smvs">https://www.youtube.com/smvs</a><br />Telegram Channel: <a rel="nofollow" target="blank" href="https://www.t.me/SMVSBhaleDayalu">https://www.t.me/SMVSBhaleDayalu</a><br />Our Live Events: <a rel="nofollow" target="blank" href="https://live.smvs.org">https://live.smvs.org</a><br /><br />Mobile App - SMVS Satsang:<br />For Android Users: <a rel="nofollow" target="blank" href="https://play.google.com/store/apps/details?id=org.smvs.smvssatsang">https://play.google.com/store/apps/details?id=org.smvs.smvssatsang</a><br />For iOS Users: <a rel="nofollow" target="blank" href="https://itunes.apple.com/in/app/smvs-satsang/id795605749?mt=8">https://itunes.apple.com/in/app/smvs-satsang/id795605749?mt=8</a><br /><br />•     •     •     •     •<br /><br />Swaminarayan Mandir Vasna Sanstha also known as Shreeji Maharaj no Vahalo Samaj or SMVS is an organization within the Swaminarayan Faith which propagates the preaching and teaching of Swaminarayan. Devnandandasji Swami, respectfully addressed as Gurudev Bapji by his devotees and followers, is the founder and mentor of the organization. Multifaceted activities in areas like social, cultural, educational, religious fields are carried out by SMVS under the directions and guidance of our current Guru, HDH Swamishri, according to the inspirations and visions given  to us by our founder, Gurudev Bapji.<br /><br />From a modest beginning in 1987, SMVS has today developed into a multifaceted institution. SMVS has 50 main centers throughout Gujarat, wherein 87 saints, 100 lady saints, and about 400 front-line devotees and volunteers are entrusted religious duties. Many of their saints and devotees have visited United States, United Kingdom, Canada, and other parts of the world to propagate preaching and teaching of Sahajanand Swami and also to monitor construction and expansion of SMVS Swaminarayan temples as well as other related religious and cultural activities such as functioning of medical centers, old age homes, schools, hospitals, and other charities.{% endraw %}
