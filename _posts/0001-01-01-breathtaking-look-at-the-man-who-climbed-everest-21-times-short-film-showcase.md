@@ -1,0 +1,15 @@
+---
+title: "Breathtaking Look at the Man Who Climbed Everest 21 Times | Short Film Showcase"
+image: "https:\/\/i.ytimg.com\/vi\/R3VMW6fxK6Y\/hqdefault.jpg"
+vid_id: "R3VMW6fxK6Y"
+categories: "People-Blogs"
+tags: ["Short film showcase","national geographic","nat geo"]
+date: "2022-03-21T02:22:50+03:00"
+vid_date: "2018-09-26T12:00:02Z"
+duration: "PT14M22S"
+viewcount: "3493291"
+likeCount: "74501"
+dislikeCount: ""
+channel: "National Geographic"
+---
+{% raw %}Every spring, Mount Everest draws in people from around the world to conquer its peak. Despite the riches surrounding the highest point on Earth, the Sherpa people who live in its shadow remain poor with few educational opportunities. One man hoping to change this reality is Apa Sherpa, a child of the Khumbu and world-record holder for summiting Everest. Like many before him, Apa Sherpa was pulled from home at the age of 12 to work on the mountain as a high-altitude porter. Now, the Apa Sherpa Foundation is working to create a different future for the children of Nepal. As Apa says, &quot;without education we have no choice.&quot;<br />➡ Subscribe: <a rel="nofollow" target="blank" href="http://bit.ly/NatGeoSubscribe">http://bit.ly/NatGeoSubscribe</a><br />➡ Get More Short Film Showcase: <a rel="nofollow" target="blank" href="http://bit.ly/ShortFilmShowcase">http://bit.ly/ShortFilmShowcase</a><br /><br />About Short Film Showcase:<br />The Short Film Showcase spotlights exceptional short videos created by filmmakers from around the web and selected by National Geographic editors. We look for work that affirms National Geographic's belief in the power of science, exploration, and storytelling to change the world. The filmmakers created the content presented, and the opinions expressed are their own, not those of National Geographic Partners. <br /><br />See more from National Geographic's Short Film Showcase at <a rel="nofollow" target="blank" href="http://documentary.com">http://documentary.com</a><br /><br />Get More National Geographic:<br />Official Site: <a rel="nofollow" target="blank" href="http://bit.ly/NatGeoOfficialSite">http://bit.ly/NatGeoOfficialSite</a><br />Facebook: <a rel="nofollow" target="blank" href="http://bit.ly/FBNatGeo">http://bit.ly/FBNatGeo</a><br />Twitter: <a rel="nofollow" target="blank" href="http://bit.ly/NatGeoTwitter">http://bit.ly/NatGeoTwitter</a><br />Instagram: <a rel="nofollow" target="blank" href="http://bit.ly/NatGeoInsta">http://bit.ly/NatGeoInsta</a><br /><br />About National Geographic:<br />National Geographic is the world's premium destination for science, exploration, and adventure. Through their world-class scientists, photographers, journalists, and filmmakers, Nat Geo gets you closer to the stories that matter and past the edge of what's possible.<br /><br />Breathtaking Look at the Man Who Climbed Everest 21 Times | Short Film Showcase<br /><a rel="nofollow" target="blank" href="https://youtu.be/R3VMW6fxK6Y">https://youtu.be/R3VMW6fxK6Y</a><br /><br />National Geographic<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/natgeo">https://www.youtube.com/natgeo</a>{% endraw %}
