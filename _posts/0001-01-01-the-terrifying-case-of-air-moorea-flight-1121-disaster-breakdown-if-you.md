@@ -1,0 +1,15 @@
+---
+title: "The Terrifying Case of Air Moorea Flight 1121 - DISASTER BREAKDOWN"
+image: "https:\/\/i.ytimg.com\/vi\/TpMPnvdmFgU\/hqdefault.jpg"
+vid_id: "TpMPnvdmFgU"
+categories: "Education"
+tags: ["plane crash","air crash investigation","disaster breakdown"]
+date: "2022-03-20T15:51:27+03:00"
+vid_date: "2022-03-19T14:00:17Z"
+duration: "PT12M25S"
+viewcount: "20162"
+likeCount: "1316"
+dislikeCount: ""
+channel: "Disaster Breakdown"
+---
+{% raw %}If you found this video to be interesting, be sure to subscribe as there is a new video every Saturday. This video also went out to my Patrons on Patreon 48 hours before going out publicly. Consider joining here from £1 per month: <a rel="nofollow" target="blank" href="https://www.patreon.com/DisasterBreakdown">https://www.patreon.com/DisasterBreakdown</a><br /><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/Chloe_HowieCB">https://twitter.com/Chloe_HowieCB</a><br />Music/Personal Channel:  <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCOwQGtbF_x7ODL1U_A61IQg">https://www.youtube.com/channel/UCOwQGtbF_x7ODL1U_A61IQg</a><br /><br />When you board an airplane, you probably don’t expect it to break in flight. You assume that a certain standard of maintenance has been carried out that would keep the plane you’re flying on in an airworthy state. Airplanes are made of upwards of millions of individual parts. The failure of any one of them could result in outcomes ranging from negligible and un-noticeable, all the way up catastrophic meaning certain fatal injury. When Air Moorea Fight 1121 left for a very short flight in French Polynesia, its occupants certainly couldn’t have been prepared for what would happen to their plane just moments into the flight.<br /><br />Sources:<br /><a rel="nofollow" target="blank" href="https://www.bea.aero/docspa/2007/f-qi070809.en/pdf/f-qi070809.en.pdf">https://www.bea.aero/docspa/2007/f-qi070809.en/pdf/f-qi070809.en.pdf</a><br /><a rel="nofollow" target="blank" href="https://www.vikingair.com/sites/default/files/Viking-Twin-Otter-Series-400-Technical-Specifications-R-01-2018.pdf">https://www.vikingair.com/sites/default/files/Viking-Twin-Otter-Series-400-Technical-Specifications-R-01-2018.pdf</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Q_KE9gO5sKo&amp;t=91&amp;ab_channel=Viking">https://www.youtube.com/watch?v=Q_KE9gO5sKo&amp;t=91&amp;ab_channel=Viking</a><br /><a rel="nofollow" target="blank" href="https://web.archive.org/web/20070927175426/http://www.pacificmagazine.net/news/2007/08/10/all-20-aboard-doomed-air-moorea-flight-feared-dead">https://web.archive.org/web/20070927175426/http://www.pacificmagazine.net/news/2007/08/10/all-20-aboard-doomed-air-moorea-flight-feared-dead</a><br /><a rel="nofollow" target="blank" href="https://bea.aero/en/investigation-reports/notified-events/detail/accident-to-the-dhc6-300-off-the-coast-of-the-island-of-moorea-french-polynesia-on-9-august-2007/">https://bea.aero/en/investigation-reports/notified-events/detail/accident-to-the-dhc6-300-off-the-coast-of-the-island-of-moorea-french-polynesia-on-9-august-2007/</a>{% endraw %}
