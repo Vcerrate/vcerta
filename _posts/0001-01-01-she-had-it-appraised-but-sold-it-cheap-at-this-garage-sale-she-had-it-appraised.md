@@ -1,0 +1,15 @@
+---
+title: "She Had It APPRAISED But Sold It CHEAP At This Garage Sale!"
+image: "https:\/\/i.ytimg.com\/vi\/QTDh4VzvFPQ\/hqdefault.jpg"
+vid_id: "QTDh4VzvFPQ"
+categories: "People-Blogs"
+tags: ["garage sales","estate sales","reselling"]
+date: "2022-03-20T23:24:02+03:00"
+vid_date: "2022-03-20T13:45:00Z"
+duration: "PT12M59S"
+viewcount: "2706"
+likeCount: "247"
+dislikeCount: ""
+channel: "Florida Pickers"
+---
+{% raw %}She Had It APPRAISED But Sold It CHEAP At This Garage Sale!<br /><br />This weekend at garage sales we found so many underpriced items to resell on eBay for a profit!  We found some amazing items and some of them were items that we have sold in the past! We love finding items like that! At one of the garage sales there seller had an item appraised but didn't care what it was worth, she just wanted to sell it! Check out everything we got today!<br /><br />Thanks for watching!<br /><br />More Garage Sale Videos You Might Like!<br />I Took A Risk And It Paid Off BIG At This Garage Sale! - <a rel="nofollow" target="blank" href="https://youtu.be/yTqu2zHYCIQ">https://youtu.be/yTqu2zHYCIQ</a><br />Our BIGGEST SCORE EVER Found at a Garage Sale! - <a rel="nofollow" target="blank" href="https://youtu.be/mV2P2TBXQ8A">https://youtu.be/mV2P2TBXQ8A</a><br /><br />Here are (affiliate) links to the gear that we use in the video:<br />Camera Canon M50 - <a rel="nofollow" target="blank" href="https://amzn.to/2Bwdekc">https://amzn.to/2Bwdekc</a><br />Flexible Tripod - <a rel="nofollow" target="blank" href="https://amzn.to/2HBUnW9">https://amzn.to/2HBUnW9</a><br />Microphone - <a rel="nofollow" target="blank" href="https://amzn.to/2GbeZT0">https://amzn.to/2GbeZT0</a><br />GoPro Hero 8 - <a rel="nofollow" target="blank" href="https://amzn.to/2Varbi7">https://amzn.to/2Varbi7</a><br />Go Pro Chest Mount - <a rel="nofollow" target="blank" href="https://amzn.to/3li45Ry">https://amzn.to/3li45Ry</a><br />Go Pro Backpack Clip - <a rel="nofollow" target="blank" href="https://amzn.to/3zZ4uMy">https://amzn.to/3zZ4uMy</a><br />Bubble Wrap. - <a rel="nofollow" target="blank" href="https://amzn.to/3ldElpn">https://amzn.to/3ldElpn</a><br />Rollo Label Printer - <a rel="nofollow" target="blank" href="https://amzn.to/3ldUWJG">https://amzn.to/3ldUWJG</a><br />Printer Labels - <a rel="nofollow" target="blank" href="https://amzn.to/3CcjGIq">https://amzn.to/3CcjGIq</a><br />Packing Tape - <a rel="nofollow" target="blank" href="https://amzn.to/3fAmbL1">https://amzn.to/3fAmbL1</a><br />Postal Scale - <a rel="nofollow" target="blank" href="https://amzn.to/3C1Vmc5">https://amzn.to/3C1Vmc5</a><br /><br />⇨ SUBSCRIBE to our channel so you can see all the underpriced items that we pick up at garage sales, yard sales, rummage sales, thrift stores, and estate sales to resell on eBay, Poshmark, Mercari, and Facebook Marketplace. <br /><br />Instagram ⇨ @FloridaPickers<br /><br />Ebay Store: <a rel="nofollow" target="blank" href="https://www.ebay.com/str/thesandyunicorn">https://www.ebay.com/str/thesandyunicorn</a><br /><br />#garagesales #reselling #yardsales{% endraw %}
