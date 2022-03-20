@@ -1,0 +1,15 @@
+---
+title: "Ghostemane - Fed up (Tiktok Remix) [Lyrics] | what the f*ck is that, fed up fed up fed up fed up"
+image: "https:\/\/i.ytimg.com\/vi\/9GMGnyv-Lbk\/hqdefault.jpg"
+vid_id: "9GMGnyv-Lbk"
+categories: "Music"
+tags: ["ghostemane","fed up","slowed"]
+date: "2022-03-20T06:19:50+03:00"
+vid_date: "2021-06-07T12:04:25Z"
+duration: "PT2M51S"
+viewcount: "365686"
+likeCount: "7813"
+dislikeCount: ""
+channel: "GOD LYRICS"
+---
+{% raw %}Ghostemane - Fed up (Tiktok Remix) [Lyrics] | what the f*ck is that, fed up fed up fed up fed up<br /><br />Lyrics <br /><br />[Intro]<br />Ayy, ayy<br />Fed up, I'm fed up, ayy, ayy, ayy<br />Fed up, I'm fed up, ayy<br />Fed up, I'm fed up, ayy<br />Fed up, I'm fed up, ayy, ayy<br />Fed up, I'm fed up, ayy, ayy, ayy, ayy<br /><br />[Chorus]<br />Fed up, I'm fed up<br />Fed up, fed up, fed up, fed up<br />Fed up, I'm fed up<br />Fed up, fed up, fed up, I'm fed up<br />Fed up, I'm fed up with the drugs<br />Fed up with the fake love, put the gun to my brain, go bang<br />I'm fed up with the drama<br />Got a crib for my momma 'cause I don't think I'ma live too much longer<br />I'm fed up<br />Fed up, fed up, fed up, fed up<br />Fed up, I'm fed up<br />Fed up, fed up, fed up, I'm fed up<br />Fed up, I'm fed up with the drugs<br />Fed up with the fake love, put the gun to my brain, go bang<br />I'm fed up with the drama<br />Got a crib for my momma 'cause I don't think I'ma live too much longer<br /><br />[Verse 1]<br />I'm fed up with the fame<br />I'm sick of reading my name in any other way than I intended<br />Fed up with all of these motherfuckers misunderstandin' me<br />I'm fed up with the ones that try to say you a fan of me<br />But then they turn their back and mothafuckers abandon me<br />You think I'm sitting high with everything, but now can't you see?<br />I'm livin' in reality, a struggle, not fantasy<br />I'm in a million-dollar couch, back then I was in a van<br /><br />[Bridge]<br />(A.I., A.I., A.I., A.I.)<br /><br />[Verse 2]<br />Wind up in the wrong mindset<br />Might've wound up with the wrong set of friends<br />On a benzo bender withdrawal, never go back, no<br />Say a prayer to someone who cares<br />Ain't nobody listenin', or they left you on read again<br />Never again will I put my faith in a religion<br />No God or Satan gonna make me understand I'm dealt a bad hand<br /><br />[Chorus]<br />Fed up, I'm fed up<br />Fed up, fed up, fed up, fed up<br />Fed up, I'm fed up<br />Fed up, fed up, fed up, I'm fed up<br />Fed up, I'm fed up with the drugs<br />Fed up with the fake love, put the gun to my brain, go bang<br />I'm fed up with the drama<br />Got a crib for my momma 'cause I don't think I'ma live too much longer<br />I'm fed up<br />Fed up, fed up, fed up, fed up<br />Fed up, I'm fed up<br />Fed up, fed up, fed up, I'm fed up<br />Fed up, I'm fed up with the drugs<br />Fed up with the fake love, put the gun to my brain, go bang<br />I'm fed up with the drama<br />Got a crib for my momma 'cause I don't think I'ma live too much longer, I'm<br /><br />Tags:- <br />#tiktok #tiktoksong #fedupslowed #fedupfedup #Lyrics #tiktokremix #ghostemanefedup{% endraw %}
