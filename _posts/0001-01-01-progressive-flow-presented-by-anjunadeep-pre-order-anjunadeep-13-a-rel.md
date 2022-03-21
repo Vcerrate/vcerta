@@ -1,0 +1,15 @@
+---
+title: "'Progressive Flow' presented by Anjunadeep"
+image: "https:\/\/i.ytimg.com\/vi\/7W-Lbd10gUk\/hqdefault.jpg"
+vid_id: "7W-Lbd10gUk"
+categories: "Music"
+tags: ["Anjunadeep","Deep House","Melodic House"]
+date: "2022-03-21T21:30:33+03:00"
+vid_date: "2022-03-20T17:00:04Z"
+duration: "PT33M58S"
+viewcount: "10677"
+likeCount: "525"
+dislikeCount: ""
+channel: "Anjunadeep"
+---
+{% raw %}• Pre-order Anjunadeep 13: <a rel="nofollow" target="blank" href="https://anjunadeep.ffm.to/deep13.oyd">https://anjunadeep.ffm.to/deep13.oyd</a><br />• Follow Anjunadeep New Releases: <a rel="nofollow" target="blank" href="https://anjunadeep.ffm.to/newreleases.oyd">https://anjunadeep.ffm.to/newreleases.oyd</a><br />• Listen to the Anjunadeep Discography: <a rel="nofollow" target="blank" href="https://anjunadeep.ffm.to/discog.oyd">https://anjunadeep.ffm.to/discog.oyd</a><br />• Listen to Anjunadeep Radio 24/7: <a rel="nofollow" target="blank" href="https://anjunadeep.ffm.to/radio">https://anjunadeep.ffm.to/radio</a><br />• Join our newsletter for updates: <a rel="nofollow" target="blank" href="https://anjunadeep.com/signup">https://anjunadeep.com/signup</a><br /><br />Featuring some gems from the Anjunadeep back catalogue, enter a state of flow with 30 minutes of progressive picks from the team at HQ.<br /><br />Tracklist: <br /><br />[00:00] Tom Middleton - WYV AUW CHU<br />[05:43] Jamie Matrix - Gold Rush<br />[12:46] 16BL - From Far Away<br />[20:36] Andrew Bayer - Movement 2<br />[26:42] Paul Keely - Paper Jet<br /><br />Follow Anjunadeep:<br />• Youtube: <a rel="nofollow" target="blank" href="http://Anjunadeep.lnk.to/DeepSubcc">http://Anjunadeep.lnk.to/DeepSubcc</a><br />• Website: <a rel="nofollow" target="blank" href="http://www.anjunadeep.com">http://www.anjunadeep.com</a><br />• Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/anjunadeep">http://www.facebook.com/anjunadeep</a><br />• Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/anjunadeep">http://www.twitter.com/anjunadeep</a><br />• Spotify: <a rel="nofollow" target="blank" href="https://Anjunadeep.lnk.to/NewReleasesYo/spotify">https://Anjunadeep.lnk.to/NewReleasesYo/spotify</a><br />• Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/anjunadeep">http://www.instagram.com/anjunadeep</a><br />• SoundCloud: <a rel="nofollow" target="blank" href="http://soundcloud.com/anjunadeep">http://soundcloud.com/anjunadeep</a><br />• Reddit: <a rel="nofollow" target="blank" href="https://reddit.com/r/AboveandBeyond/">https://reddit.com/r/AboveandBeyond/</a><br />• Twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/anjuna">https://www.twitch.tv/anjuna</a><br />• Discord: <a rel="nofollow" target="blank" href="http://www.discord.gg/anjuna">http://www.discord.gg/anjuna</a><br />• Join our newsletter: <a rel="nofollow" target="blank" href="https://anjunadeep.com/signup/">https://anjunadeep.com/signup/</a><br /><br /><br />#Anjunadeep #Progressive #DJMix{% endraw %}
