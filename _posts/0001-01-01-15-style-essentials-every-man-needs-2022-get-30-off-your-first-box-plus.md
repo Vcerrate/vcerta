@@ -1,0 +1,15 @@
+---
+title: "15 Style Essentials Every Man Needs 2022"
+image: "https:\/\/i.ytimg.com\/vi\/dED3tzy1waM\/hqdefault.jpg"
+vid_id: "dED3tzy1waM"
+categories: "Howto-Style"
+tags: ["15 style essentials every man needs 2022","style essentials every man needs 2002","style essentials men need"]
+date: "2022-03-21T15:20:22+03:00"
+vid_date: "2022-03-12T21:00:21Z"
+duration: "PT13M"
+viewcount: "15807"
+likeCount: "1249"
+dislikeCount: ""
+channel: "The Style O.G."
+---
+{% raw %}Get 30% off your first box, plus a FREE gift, when you give Tiege Hanley a try at <a rel="nofollow" target="blank" href="http://tiege.com/ogstyle">http://tiege.com/ogstyle</a><br /><br />The best style essentials are those that are versatile. In this video, Jeff from The Style O.G. discusses 15 style essentials every man needs in 2022.<br /><br />10 Casual Style Rules Every Man Should Know  <a rel="nofollow" target="blank" href="https://youtu.be/PdgYSK8Fojo">https://youtu.be/PdgYSK8Fojo</a><br />12 Rules Every Man Should Live By  <a rel="nofollow" target="blank" href="https://youtu.be/_lyeeR0AtEs">https://youtu.be/_lyeeR0AtEs</a><br />Be Kind, Not Nice  <a rel="nofollow" target="blank" href="https://youtu.be/QGAvAe1HrCQ">https://youtu.be/QGAvAe1HrCQ</a><br />10 Things Nice Guys Get Wrong  <a rel="nofollow" target="blank" href="https://youtu.be/K0xTqbxs_-w">https://youtu.be/K0xTqbxs_-w</a><br />10 Things You Should Say To a Woman  <a rel="nofollow" target="blank" href="https://youtu.be/eBTmTSe0wCo">https://youtu.be/eBTmTSe0wCo</a><br />Things Men Should Never Say To A Woman  <a rel="nofollow" target="blank" href="https://youtu.be/B-3jirkSeEk">https://youtu.be/B-3jirkSeEk</a><br />10 Things Women Don't Care About <a rel="nofollow" target="blank" href="https://youtu.be/hj_bsSPnJRc">https://youtu.be/hj_bsSPnJRc</a><br />10 Reasons You Should Not Date Your Co Worker  <a rel="nofollow" target="blank" href="https://youtu.be/_zJSVmnBwbA">https://youtu.be/_zJSVmnBwbA</a><br />10 Type Of Women Men Should Avoid Dating <a rel="nofollow" target="blank" href="https://youtu.be/87zNGkMm1a0">https://youtu.be/87zNGkMm1a0</a><br />10 Small Things Women Notice About Men <a rel="nofollow" target="blank" href="https://youtu.be/TEl1R0zj9p0">https://youtu.be/TEl1R0zj9p0</a><br />10 Best Places To Meet Women  <a rel="nofollow" target="blank" href="https://youtu.be/rW8Yuz-_eEc">https://youtu.be/rW8Yuz-_eEc</a><br />10 Colognes Women Love  <a rel="nofollow" target="blank" href="https://youtu.be/yaOyhZbLlyI">https://youtu.be/yaOyhZbLlyI</a><br />10 Casual Shoes Men Need    <a rel="nofollow" target="blank" href="https://youtu.be/AXD7sAMAwHg">https://youtu.be/AXD7sAMAwHg</a><br />How To Wear Dress Shoes Casually <a rel="nofollow" target="blank" href="https://youtu.be/R2ZRS9lmxxM">https://youtu.be/R2ZRS9lmxxM</a><br />How To Wear Older Guys Should Wear Sneakers<br /><a rel="nofollow" target="blank" href="https://youtu.be/cFOxn1Hxt_M">https://youtu.be/cFOxn1Hxt_M</a><br />How To Wear The Nike Killshot 2 <a rel="nofollow" target="blank" href="https://youtu.be/i4GZYSrgZCg">https://youtu.be/i4GZYSrgZCg</a><br /><br />FTC Disclaimer: This video was sponsored by Tiege Hanley{% endraw %}
