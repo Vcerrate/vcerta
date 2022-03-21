@@ -1,0 +1,15 @@
+---
+title: "DON'T choose the Wrong Uber! Dirt Cheap vs Luxury Uber"
+image: "https:\/\/i.ytimg.com\/vi\/1ZmtoKNT7WQ\/hqdefault.jpg"
+vid_id: "1ZmtoKNT7WQ"
+categories: "Comedy"
+tags: ["team edge","team edge challenge","teamedge"]
+date: "2022-03-22T02:26:46+03:00"
+vid_date: "2022-03-18T19:00:01Z"
+duration: "PT13M43S"
+viewcount: "363058"
+likeCount: "14489"
+dislikeCount: ""
+channel: "Team Edge"
+---
+{% raw %}Hey guys! In this video, you have two options. The $10 Uber, or the $1,000 Uber! we have numerous tasks to complete and whoever completes them first wins! One destination is the beautiful beaches of Santa Barbera, and the other is the smelly and sticky Bakersfield! <br /><br />Team Edge Merchandise! ➡ <a rel="nofollow" target="blank" href="https://teamedge.store">https://teamedge.store</a><br /><br />🔽MORE LINKS BELOW 🔽<br />TE Instagram  ➡ <a rel="nofollow" target="blank" href="https://instagram.com/itsteamedge/">https://instagram.com/itsteamedge/</a><br />TE TikTok ➡ <a rel="nofollow" target="blank" href="https://www.tiktok.com/@teamedge?lang=en">https://www.tiktok.com/@teamedge?lang=en</a><br />TE Twitter ➡ <a rel="nofollow" target="blank" href="https://twitter.com/its_teamedge?lang=en">https://twitter.com/its_teamedge?lang=en</a><br /><br />J-Freds ➡ <a rel="nofollow" target="blank" href="https://www.instagram.com/itsjfred/?hl=en">https://www.instagram.com/itsjfred/?hl=en</a><br />Bryans ➡ <a rel="nofollow" target="blank" href="https://www.instagram.com/itsbryito/?hl=en">https://www.instagram.com/itsbryito/?hl=en</a><br />Bobby ➡ <a rel="nofollow" target="blank" href="https://www.instagram.com/presidentbobby/?hl=en">https://www.instagram.com/presidentbobby/?hl=en</a><br />Connor ➡ <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC2OXXgGejCNDbxAbUDUuMEQ">https://www.youtube.com/channel/UC2OXXgGejCNDbxAbUDUuMEQ</a><br />Josh ➡ <a rel="nofollow" target="blank" href="https://www.instagram.com/jugglinjosh/?hl=en">https://www.instagram.com/jugglinjosh/?hl=en</a><br />Keobi ➡ <a rel="nofollow" target="blank" href="https://www.instagram.com/keobi_/?hl=en">https://www.instagram.com/keobi_/?hl=en</a><br />Jordan ➡ <a rel="nofollow" target="blank" href="https://www.instagram.com/jdhubbs/?hl=en">https://www.instagram.com/jdhubbs/?hl=en</a><br />Marvin ➡ <a rel="nofollow" target="blank" href="https://www.instagram.com/marv.active/?hl=en">https://www.instagram.com/marv.active/?hl=en</a><br /><br />Welcome to Team Edge! <br />Heres 3 things we love!<br />-We love spending time with each other, creating crazy competitions, and having fun doing it! Thats all you'll see on this channel every Tuesday and Friday!<br />-We love Jesus and believe its our purpose here on earth to spread the good news that he has saved us from our sins. Because we love him its our mission to provide family friendly content that glorifies him!<br />-We love you. We hope you'll be part of Team Edge and join us for the ride!<br /><br />Buisness Inquiries: inquiries@teamedgegames.com{% endraw %}
