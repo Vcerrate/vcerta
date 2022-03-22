@@ -1,0 +1,15 @@
+---
+title: "7 Habits of Highly Effective Employees"
+image: "https:\/\/i.ytimg.com\/vi\/dCekuzKGBX4\/hqdefault.jpg"
+vid_id: "dCekuzKGBX4"
+categories: "Education"
+tags: ["career development","career development training","career development video clip"]
+date: "2022-03-22T06:39:24+03:00"
+vid_date: "2016-02-18T20:00:06Z"
+duration: "PT10M45S"
+viewcount: "54769"
+likeCount: "992"
+dislikeCount: ""
+channel: "Rick Conlow International"
+---
+{% raw %}Want to advance in your career? Want to accelerate your results?  Do you want a better job and to make more money? Watch this career development training video. Rick will share the 7 habits from high effective employees. These career tips are invaluable.<br /><br />Too many people take short cuts, and do just enough to get by. When they aren't progressing or doing well financially they blame others. They make excuses and say it isn't their fault.<br /><br />Others find a better path. In his career, Rick, used these seven habits to start at the bottom and eventually become an executive and business owner. He had numerous promotions and of course his income climbed. This career training video clip will show you the way. It works.<br /><br />YOU can do this to if you want to. It will take work, and personal change. Being a successful employee begins with a positive attitude. Then, and only then,  the 7 habits will work for you. The best of success to you.<br /><br />Do you want to learn more about being a successful employee?  Check out Rick's eBook, THE EXTRAORDINARY EMPLOYEE – ROADMAP FOR SUCCESS (EBOOK):  <a rel="nofollow" target="blank" href="https://rickconlow.com/product/the-extraordinary-employee-roadmap-for-success/">https://rickconlow.com/product/the-extraordinary-employee-roadmap-for-success/</a><br /><br />In addition, do you want more success in life. See this complimentary guide and assessment on success habits: <a rel="nofollow" target="blank" href="https://mailchi.mp/rickconlow/successpractices">https://mailchi.mp/rickconlow/successpractices</a><br /><br />Also, go here for our RealTime Learning and Training leadership and personal development website. It includes many career defining resources. Micro-learning at your fingertips! <a rel="nofollow" target="blank" href="https://rickconlow.com/product/real-time-learning-training/">https://rickconlow.com/product/real-time-learning-training/</a><br /><br />Rick Conlow<br />CEO Rick Conlow International (RCI)<br />RCI  is a business consulting and training company that empowers managers. RCI transforms managers to leaders to achieve record-breaking performances in sales growth, customer experience improvement, employee engagement and leadership effectiveness.<br /><br />Consulting Services: <a rel="nofollow" target="blank" href="https://rickconlow.com/">https://rickconlow.com/</a><br />Books &amp; Training Resources: <a rel="nofollow" target="blank" href="https://rickconlow.com/shop/">https://rickconlow.com/shop/</a><br />612-868-8521{% endraw %}
