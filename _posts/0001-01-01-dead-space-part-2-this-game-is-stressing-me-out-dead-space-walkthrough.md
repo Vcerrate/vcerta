@@ -1,0 +1,15 @@
+---
+title: "Dead Space - Part 2 - THIS GAME IS STRESSING ME OUT"
+image: "https:\/\/i.ytimg.com\/vi\/Zgno7U-8jGw\/hqdefault.jpg"
+vid_id: "Zgno7U-8jGw"
+categories: "Gaming"
+tags: ["Dead space","dead space game","dead space gameplay"]
+date: "2022-03-23T15:00:33+03:00"
+vid_date: "2021-05-21T20:07:56Z"
+duration: "PT1H22M1S"
+viewcount: "128678"
+likeCount: "5311"
+dislikeCount: ""
+channel: "Hollow"
+---
+{% raw %}Dead Space Walkthrough Gameplay Part 2. Welcome to the official series of the Dead Space, this series will include the full game story, Dead Space review and first impressions after 13 years. This Dead Space series will include the full game story walkthrough with all boss fights, all upgrades, and missions.<br /><br /><br />Dead Space Full Playlist:<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLUU9DSgxgRLB9GlCVTargEua-7fxH38XI">https://youtube.com/playlist?list=PLUU9DSgxgRLB9GlCVTargEua-7fxH38XI</a><br /><br /><br />Subscribe for more!: <a rel="nofollow" target="blank" href="http://bit.ly/sub2hollowpoiint">http://bit.ly/sub2hollowpoiint</a><br /><br />#Deadspace #Gameplay #Walkthrough<br /><br />Follow me on Social Media:<br />▶ Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/HollowPoiint">https://twitter.com/HollowPoiint</a><br />▶ Facebook: <a rel="nofollow" target="blank" href="https://Facebook.com/HollowPoiint">https://Facebook.com/HollowPoiint</a><br />▶ Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/HollowPoiint">http://instagram.com/HollowPoiint</a><br />▶Twitch: <a rel="nofollow" target="blank" href="https://Twitch.tv/HollowPoiint">https://Twitch.tv/HollowPoiint</a><br /><br />▶Hollowpoiint LIMITED EDITION Merch:<br /><a rel="nofollow" target="blank" href="https://teespring.com/stores/hollowpoiint">https://teespring.com/stores/hollowpoiint</a><br /><br />Hey my name is &quot;Hollow&quot; or “HollowPoiint.” I LOVE uploading videos Call of Duty, Fortnite, Lets Play Walkthroughs and tons of more Story game driven video games!<br /><br />EVERYTHING I use to Game:<br />▶Kontrol Freek:<br /><a rel="nofollow" target="blank" href="http://kontrolfreek.pro/hKRFoO">http://kontrolfreek.pro/hKRFoO</a><br />USE Code &quot;Hollow&quot; For 10% OFF<br />▶SCUF Gaming: <br /><a rel="nofollow" target="blank" href="http://scuf.co/Hollow">http://scuf.co/Hollow</a><br />USE Code &quot;Hollow&quot; For % OFF<br />▶ASTRO (My HEADSETS)<br /><a rel="nofollow" target="blank" href="https://astro.family/HollowPoiint">https://astro.family/HollowPoiint</a><br />USE Code &quot;Hollow&quot; For Discount<br />▶GFUEL:<br /><a rel="nofollow" target="blank" href="http://gfuel.com/">http://gfuel.com/</a><br />(USE Code &quot;Hollow&quot; For 10% OFF)<br />▶LOGITECH: Click Link For Discount!<br /><a rel="nofollow" target="blank" href="http://bit.ly/2Lnqkjd">http://bit.ly/2Lnqkjd</a><br />▶FAN MAIL Address:<br />6800 SW 40th St #282 <br />Miami FL 33155<br /><br /><br />HollowPoiint<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/HollowPoiint">https://www.youtube.com/HollowPoiint</a><br /><br />Video Uploaded By HollowPoiintnm. ,/{% endraw %}
