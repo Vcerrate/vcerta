@@ -1,0 +1,15 @@
+---
+title: "STUDY VLOG | realistic college MIDTERMS (such a stressful week)"
+image: "https:\/\/i.ytimg.com\/vi\/sL7gpfhCp_w\/hqdefault.jpg"
+vid_id: "sL7gpfhCp_w"
+categories: "Howto-Style"
+tags: ["study with me","study vlog","midterms"]
+date: "2022-03-23T08:25:47+03:00"
+vid_date: "2022-03-20T19:10:47Z"
+duration: "PT10M27S"
+viewcount: "45509"
+likeCount: "3821"
+dislikeCount: ""
+channel: "Zhirelle"
+---
+{% raw %}hi guys!!<br />this week i had midterms! i was taking exams, studying, reading, taking notes, finishing projects and painting! i drank a lot of coffee and just had a pretty stressful week of school before i have spring break! watching these types of videos always helps me to stay productive and realize that we’re all getting through this together! i hope u enjoy todays video:)<br /><br /><br />follow me:<br />@zhirelle<br />- instagram<br />- tik tok<br />- twitter<br />- pinterest<br />- spotify<br /> 🌞<br /><br />PO BOX ADDRESS:💌<br />Zhirelle Cushman<br />PO Box 574<br />Camarillo, CA 93011<br /><br />About me!💓<br />- I live in Southern California<br />- I am a college student<br />- I have 4 younger siblings<br />- I love to travel<br />- My favorite videos to film are weekly vlogs<br />- I love making art!<br />- I am 20<br />- I take pictures of everything!<br />🍄<br /><br />subscribe &amp; become one of my best friends!:)<br /><br />sub count: 441K!<br /><br />Music by MOZART - Prime - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=121FE29C">https://thmatc.co/?l=121FE29C</a><br />Music by Mr. Jello - Island Lifestyle - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=0EDA4FF5">https://thmatc.co/?l=0EDA4FF5</a><br />Music by MOZART - Sunbeam - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=F94C45A4">https://thmatc.co/?l=F94C45A4</a><br />Music by ninjoi. - Kristmas - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=74C873F4">https://thmatc.co/?l=74C873F4</a><br />Music by Public Library Commute  - Across The Room - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=B4651488">https://thmatc.co/?l=B4651488</a><br />Music by ninjoi. - Acceptance - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=231ABACD">https://thmatc.co/?l=231ABACD</a><br />Music by Citrus Avenue - Sunday in Ventimiglia - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=425ED7BD">https://thmatc.co/?l=425ED7BD</a><br /><br /><br />i love you guys!<br /><br />tags (ignore): study with me, study vlog, midterms, productive and realistic, that girl, school vlog, study vlog, getting my life together, workout, study vlog, self care, satisfying clean out, cleaning, declutter, cleaning my room, cleaning my messy room, room cleaning, room transformation, spring cleaning, study vlog, motivational, study with me, productive days in my life, productive school days, college day in my life, back to school, in person school, get ready with me, first day of school, college, high school, day in my life, student, school vlog, in person school day{% endraw %}
