@@ -1,0 +1,15 @@
+---
+title: "The GODS of STAR WARS explained: The Celestials, the Ones (...and the Man who saw them)"
+image: "https:\/\/i.ytimg.com\/vi\/xQlS-JGshlY\/hqdefault.jpg"
+vid_id: "xQlS-JGshlY"
+categories: "Entertainment"
+tags: ["star wars","star wars eckhartsladder","celestials"]
+date: "2022-03-23T09:22:38+03:00"
+vid_date: "2020-01-23T00:57:41Z"
+duration: "PT10M31S"
+viewcount: "679340"
+likeCount: "20559"
+dislikeCount: ""
+channel: "EckhartsLadder"
+---
+{% raw %}Today, we discuss the Gods of the Star Wars Universe, and the man who saw them, and the fate of the Galaxy. All that and more on today's Star Wars Legends Lore video!<br /><br />Check out Corey's Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/coreysdatapad">https://www.youtube.com/coreysdatapad</a><br /><br />Music: Alison - Warm / Endless Reflexions / Space Echo<br /><br />Thumbnail: Kruphix, God of Horizons card art for MTG by Daarken<br /><a rel="nofollow" target="blank" href="https://gatherer.wizards.com/Pages/Search/Default.aspx?action=advanced&amp;artist=[%22Daarken%22]">https://gatherer.wizards.com/Pages/Search/Default.aspx?action=advanced&amp;artist=[%22Daarken%22]</a><br /><br />***<br /><br />🔵 ASSETS 🔵<br /><br />Intro/Outro Music: Home - Resonance<br /><br />Outro meme'd by: <a rel="nofollow" target="blank" href="https://twitter.com/freightmytrain">https://twitter.com/freightmytrain</a><br /><br />Music Playlist: <a rel="nofollow" target="blank" href="https://goo.gl/YRzmaZ">https://goo.gl/YRzmaZ</a><br /><br /><br /><br />🔵 SOCIAL MEDIA 🔵<br /><br />Twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/eckhartsladder">https://www.twitch.tv/eckhartsladder</a><br /><br />2nd YT: <a rel="nofollow" target="blank" href="https://www.youtube.com/eckstoo">https://www.youtube.com/eckstoo</a><br /><br />Twitter: <a rel="nofollow" target="blank" href="https://www.twitter.com/eckhartsladder">https://www.twitter.com/eckhartsladder</a><br /><br /><br /><br />Discord: <a rel="nofollow" target="blank" href="https://discord.gg/eckhartsladder">https://discord.gg/eckhartsladder</a><br /><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/eckhartsladder">https://www.instagram.com/eckhartsladder</a><br /><br />Merch: <a rel="nofollow" target="blank" href="https://www.teespring.com/eckhartsladder">https://www.teespring.com/eckhartsladder</a><br /><br /><br /><br />🔵 SUPPORT ECK 🔵<br /><br />Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/eckhartsladder">https://www.patreon.com/eckhartsladder</a><br /><br />Paypal: <a rel="nofollow" target="blank" href="https://www.paypal.me/eckhartsladder">https://www.paypal.me/eckhartsladder</a><br /><br />Sub: <a rel="nofollow" target="blank" href="https://goo.gl/vBao71">https://goo.gl/vBao71</a><br /><br />Join: <a rel="nofollow" target="blank" href="https://goo.gl/5G4Xr8">https://goo.gl/5G4Xr8</a><br /><br /><br /><br />🔵 SEND ME STUFF 🔵<br /><br />PO Box 3271, Station East, Dartmouth NS, B2W 5G2<br /><br />You can address any mail to Justin{% endraw %}
