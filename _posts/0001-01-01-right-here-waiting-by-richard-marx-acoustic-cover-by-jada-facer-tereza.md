@@ -1,0 +1,15 @@
+---
+title: "Right Here Waiting by Richard Marx | acoustic cover by Jada Facer &  Tereza Fahlevi"
+image: "https:\/\/i.ytimg.com\/vi\/0s_Uf4kKmgw\/hqdefault.jpg"
+vid_id: "0s_Uf4kKmgw"
+categories: "Music"
+tags: ["Right Here Waiting","Right here waiting cover","Right here waiting Richard Marx"]
+date: "2022-03-23T15:15:59+03:00"
+vid_date: "2021-09-02T17:30:02Z"
+duration: "PT4M4S"
+viewcount: "1837212"
+likeCount: "22750"
+dislikeCount: ""
+channel: "Jada Facer"
+---
+{% raw %}Loved that Tereza asked me to do this remote collab with him! We finally got it out! I filmed on one of the hottest, most humid days in Nashville haha! Idk how you Tennesseans do it... <br />Right Here Waiting by Richard Marx | acoustic cover by Jada Facer &amp;  Tereza Fahlevi<br /><br />Check me out on Spotify! <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/4k51JgB5G0e33QYVpbcPuf?si=jvEGUpQCQOKdXBcSsxR1Tg&amp;dl_branch=1">https://open.spotify.com/artist/4k51JgB5G0e33QYVpbcPuf?si=jvEGUpQCQOKdXBcSsxR1Tg&amp;dl_branch=1</a><br /><br />Tereza Fahlevi:<br />Youtube: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/officialterezamusic">https://www.youtube.com/c/officialterezamusic</a><br />IG: <a rel="nofollow" target="blank" href="https://www.instagram.com/tereza1969/?hl=en">https://www.instagram.com/tereza1969/?hl=en</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/tereza_1969">https://twitter.com/tereza_1969</a><br /><br />My socials :)<br />IG: <a rel="nofollow" target="blank" href="https://www.instagram.com/jadafacer/">https://www.instagram.com/jadafacer/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/jadafacer?lang=en">https://twitter.com/jadafacer?lang=en</a><br /><br />Produced by: Tereza Fahlevi<br />Mixed by: David Kidd:<br /><br />Video Edited by: Tereza Fahlevi<br /><br />Lyrics:<br />Oceans apart day after day<br />And I slowly go insane<br />I hear your voice on the line<br />But it doesn't stop the pain<br /><br />If I see you next to never<br />How can we say forever<br /><br />Wherever you go<br />Whatever you do<br />I will be right here waiting for you<br />Whatever it takes<br />Or how my heart breaks<br />I will be right here waiting for you<br /><br />I took for granted, all the times<br />That I thought would last somehow<br />I hear the laughter, I taste the tears<br />But I can't get near you now<br /><br />Oh, can't you see it baby<br />You've got me going crazy<br /><br />Wherever you go<br />Whatever you do<br />I will be right here waiting for you<br />Whatever it takes<br />Or how my heart breaks<br />I will be right here waiting for you<br /><br />I wonder how we can survive<br />This romance<br />But in the end if I'm with you<br />I'll take the chance<br /><br />Oh, can't you see it baby<br />You've got me going crazy<br /><br />Wherever you go<br />Whatever you do<br />I will be right here waiting for you<br />Whatever it takes<br />Or how my heart breaks<br />I will be right here waiting for you<br />Waiting for you<br /><br />#JadaFacer #TerezaFahlevi #RightHereWaiting{% endraw %}
