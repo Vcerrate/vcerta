@@ -1,0 +1,15 @@
+---
+title: "The Skeletal System - L2 Gym Instructing"
+image: "https:\/\/i.ytimg.com\/vi\/IxnwsOwZ7IA\/hqdefault.jpg"
+vid_id: "IxnwsOwZ7IA"
+categories: "Education"
+tags: ["Skeletal","System","Instructing"]
+date: "2022-03-23T03:04:37+03:00"
+vid_date: "2021-03-17T13:22:38Z"
+duration: "PT8M16S"
+viewcount: "74"
+likeCount: "2"
+dislikeCount: ""
+channel: "Educate Fitness"
+---
+{% raw %}Health and Fitness consultant Damian Foster takes you through a brief explanation of 'The Skeletal System', which is required as part of the Level 2 Certificate in Gym Instructing.<br /><br />Educate Fitness Courses<br />Level 2 Certificate in Gym Instructing - <a rel="nofollow" target="blank" href="https://educatefitness.co.uk/product/level-2-certificate-in-fitness-instructing-distance/">https://educatefitness.co.uk/product/level-2-certificate-in-fitness-instructing-distance/</a><br />Level 3 Diploma in Personal Training - <a rel="nofollow" target="blank" href="https://educatefitness.co.uk/product/level-3-certificate-in-personal-training-distance/">https://educatefitness.co.uk/product/level-3-certificate-in-personal-training-distance/</a><br />Level 3 Diploma in Gym Instructing and Personal Training Practitioner - <a rel="nofollow" target="blank" href="https://educatefitness.co.uk/product/level-3-diploma-in-fitness-instructing-and-personal-training/">https://educatefitness.co.uk/product/level-3-diploma-in-fitness-instructing-and-personal-training/</a><br /><br />What's in this video<br /><br />Bone<br />Calcified connective tissue<br />Own blood supply<br />Hard in texture<br />Contains important minerals<br />206 bones in skeleton<br /><br />Cartilage<br />Dense, fibrous tissue that is able to withstand compression forces<br />Absorbs impact shock and reduces friction at joints<br />Cover the end of bones<br />Three main types: hyaline, elastic and fibro<br /><br />Types of cartilage<br />Hyaline - most common<br /> - end of bones to form joints<br /> - thin, strong and smooth<br /> - Helps reduce friction<br /><br />Elastic - Found in places that require maintenance of <br /> specific shape<br /> - Similar to hyaline, but more fibres<br /> - Most fibres made up of elastin<br /><br />Fibrocartliage - shock absorber in cartilaginous joints<br /> - Thick and stronger<br /> - Found less in the body<br /> - Various shapes and forms<br /><br />Axial<br />Bones forming main frame (e.g. skull, ribs, spine, sternum)<br /><br />Appendicular<br />Bones that attach to the main frame (e.g. scapula, humerus, pelvis, femur)<br /><br />Functions of the skeleton<br />Shape/structure<br />Movement<br />Soft tissue attachment<br />Protection of organs<br />Storage of minerals<br />Production of cells<br /><br />Ligaments - Attach bone to bone<br />Tendons - Attach muscles to bone<br /><br />Get in touch<br />Talk to an Educate Fitness consultant today and get the help you need on your health and fitness journey. Call 0203 794 9250 with your questions about the 'Level 2 Gym Instructing' and 'Level 3 Personal Training' qualifications. Consultants are available Monday through Friday from 9am to 8pm GMT.{% endraw %}
