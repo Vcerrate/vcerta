@@ -1,0 +1,15 @@
+---
+title: "James Bay - Give Me The Reason (Official Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/m1SUJQ05OrQ\/hqdefault.jpg"
+vid_id: "m1SUJQ05OrQ"
+categories: "Music"
+tags: ["James","Bay","Give"]
+date: "2022-03-24T21:35:44+03:00"
+vid_date: "2022-03-24T16:00:09Z"
+duration: "PT4M1S"
+viewcount: "6125"
+likeCount: "1872"
+dislikeCount: ""
+channel: "JamesBayVEVO"
+---
+{% raw %}“Give Me The Reason” Out Now: <a rel="nofollow" target="blank" href="https://jamesbay.lnk.to/GMTR">https://jamesbay.lnk.to/GMTR</a><br /><br />Subscribe for more official content from James Bay: <a rel="nofollow" target="blank" href="https://JamesBay.lnk.to/SubscribeYD/">https://JamesBay.lnk.to/SubscribeYD/</a> <br /><br />Connect with James Bay: <br /><a rel="nofollow" target="blank" href="https://www.jamesbay.com">https://www.jamesbay.com</a> <br /><a rel="nofollow" target="blank" href="https://JamesBay.lnk.to/SpotifyFollow">https://JamesBay.lnk.to/SpotifyFollow</a> <br /><a rel="nofollow" target="blank" href="https://JamesBay.lnk.to/AppleMusic">https://JamesBay.lnk.to/AppleMusic</a> <br /><a rel="nofollow" target="blank" href="https://www.instagram.com/jamesbaymusic">https://www.instagram.com/jamesbaymusic</a> <br /><a rel="nofollow" target="blank" href="https://twitter.com/JamesBayMusic">https://twitter.com/JamesBayMusic</a> <br /><a rel="nofollow" target="blank" href="https://www.facebook.com/jamesbaymusic">https://www.facebook.com/jamesbaymusic</a> <br /><br />Lyrics: <br />Give me the reason<br />Am I staying or leaving?<br />Give me the reason to give it one more try<br />Don’t wanna say goodbye. <br /><br />Feels like yesterday<br />You and I we were walking around New York City<br />Hand in hand, man it was so pretty that day<br />Standing on the corner in your favourite dress <br />I was trying to take our picture, my hair was such a mess<br />Oh but we laughed so hard<br />Then you broke my heart <br /><br />I can’t stand to see those tears in your eyes<br />We should be dancing like we did that night <br />Give me the reason to give it one more shot<br />And I’ll give it all that I got.<br />Oh I’d hate to lay that weight on your heart<br />After all that we did to everything that we are<br />Just give me the reason to give it one more try <br />Don’t wanna say goodbye <br /><br />Give me the reason…<br /><br />Coz I’ve got nothing left<br />Without your foot on the drum that beats inside my chest <br />I feel like mirrors and smoke <br />All of my words are broke<br />I wanna just throw me in the ocean.<br />It’s not that I couldn’t see you were in pain,<br />I wish we could talk, maybe no ones to blame.<br />I still want you now, I still need you now<br />I’m not fooling around..<br /><br />I can’t stand… <br /><br />I can’t stand to see those tears in your eyes<br />We should be dancing like we did that night <br />I want you to know that<br />We don’t have to say goodbye<br /><br />#JamesBay #GiveMeTheReason<br /><br /><br />Music video by James Bay performing Give Me The Reason. © 2022 Republic Records, a division of UMG Recordings, Inc.{% endraw %}
