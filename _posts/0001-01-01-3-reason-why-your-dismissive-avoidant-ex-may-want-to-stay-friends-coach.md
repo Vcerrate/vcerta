@@ -1,0 +1,15 @@
+---
+title: "3 Reason Why Your Dismissive Avoidant Ex May Want to Stay Friends | Coach Court"
+image: "https:\/\/i.ytimg.com\/vi\/hUwZW5psOYs\/hqdefault.jpg"
+vid_id: "hUwZW5psOYs"
+categories: "Howto-Style"
+tags: ["Why your dismissive avoidant ex wont chase you","3 reasons why your avoidant ex may want to stay friends","dismissive avoidant"]
+date: "2022-03-24T12:13:05+03:00"
+vid_date: "2022-03-15T11:00:31Z"
+duration: "PT8M2S"
+viewcount: "3409"
+likeCount: "206"
+dislikeCount: ""
+channel: "Coach Court"
+---
+{% raw %}In this video, Coach Courtney Gatlin talks about 3 reasons why your avoidant ex may want to stay friends after the breakup.<br /><br />Book a Session!  <a rel="nofollow" target="blank" href="https://www.fruitfulseedz.com/collections/all">https://www.fruitfulseedz.com/collections/all</a><br /><br />Join Coach Court's Patreon:<br /><a rel="nofollow" target="blank" href="https://www.patreon.com/CoachCourt">https://www.patreon.com/CoachCourt</a><br /><br />Donate to Support the Channel's Growth and Longevity: <br /><a rel="nofollow" target="blank" href="https://linktr.ee/iamcoachcourt">https://linktr.ee/iamcoachcourt</a><br />____<br /><br />Thank you for the overwhelming love and support on a channel that was purely created as a labor of love. This has turned into an amazingly supportive community so pleas feel free to subscribe!<br /><br />____<br />On my journey of healing, I came across 5 books that changed my life and I want to share them. <br /><br />You can get them here:<br /><br />Attached: The New Science of Adult Attachment - Amil Levine: <a rel="nofollow" target="blank" href="https://amzn.to/3L1BERs">https://amzn.to/3L1BERs</a><br />The Power of Attachment - Diane Heller PHD: <a rel="nofollow" target="blank" href="https://amzn.to/3wsqbGy">https://amzn.to/3wsqbGy</a><br />Attachment: 60 Trauma-Informed Assessment - Christina Reese: <a rel="nofollow" target="blank" href="https://amzn.to/3Laxirf">https://amzn.to/3Laxirf</a><br />Homecoming: Reclaiming and Championing Inner Child - John Bradshaw: <a rel="nofollow" target="blank" href="https://amzn.to/3L6K2iA">https://amzn.to/3L6K2iA</a><br />Change your thoughts, change your life - Dr. Wayne Dyer: <a rel="nofollow" target="blank" href="https://amzn.to/3LbeTul">https://amzn.to/3LbeTul</a><br /><br />____<br />Learn more about the Dismissive Avoidant Attachment with this PLAYLIST: <br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLdLWImiP2h-5491cBFBoHa06C2BtzNjc2">https://youtube.com/playlist?list=PLdLWImiP2h-5491cBFBoHa06C2BtzNjc2</a><br />____<br /><br />Public Facebook Page: <br /><a rel="nofollow" target="blank" href="https://www.facebook.com/Iamcoachcourt/">https://www.facebook.com/Iamcoachcourt/</a><br /><br />Instagram: <br /><a rel="nofollow" target="blank" href="https://www.instagram.com/iamcoachcourt/">https://www.instagram.com/iamcoachcourt/</a><br /><br />___<br /><br />#dismissiveavoidant #coachcourt #3reasons #breakups #healing{% endraw %}
