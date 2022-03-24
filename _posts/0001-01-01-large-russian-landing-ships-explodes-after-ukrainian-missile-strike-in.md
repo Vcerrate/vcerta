@@ -1,0 +1,15 @@
+---
+title: "Large Russian Landing Ships Explodes After Ukrainian Missile Strike In Berdyansk Port"
+image: "https:\/\/i.ytimg.com\/vi\/en3W4jDpmDk\/hqdefault.jpg"
+vid_id: "en3W4jDpmDk"
+categories: "Education"
+tags: ["russian forces","Армия России","Armada Rusa"]
+date: "2022-03-24T18:03:48+03:00"
+vid_date: "2022-03-24T13:20:27Z"
+duration: "PT1M2S"
+viewcount: "3094"
+likeCount: "38"
+dislikeCount: ""
+channel: "Odo Puiu Events"
+---
+{% raw %}Odo Puiu Events invites you to watch a ….<br />Large Russian Landing Ships Explodes After Ukrainian Missile Strike In Berdyansk Port.<br />Russian warship destroyed in occupied port of Berdyansk, says Ukraine.<br />A Russian landing ship has been destroyed and two other boats have been damaged in the occupied Ukrainian port city of Berdyansk, say Ukrainian officials.<br />The Ukrainian military posted footage early on Thursday and said the Orsk had been hit by its forces.<br />Details of what caused the explosion and fire on board the ship are unclear.<br />Berdyansk, which is west of the besieged port of Mariupol, was seized four days after Russia invaded Ukraine.<br />Russia says it has used the port as a base to ferry in equipment for its troops.<br />Russian army TV hailed the arrival of the Orsk in Berdyansk last week as an &quot;epic event&quot; as it was the first Russian warship to dock there.<br /><br />SOURCE: <a rel="nofollow" target="blank" href="https://www.fleetmon.com/maritime-news/2022/37657/russian-navy-large-landing-ship-explosion-fire-aft/">https://www.fleetmon.com/maritime-news/2022/37657/russian-navy-large-landing-ship-explosion-fire-aft/</a><br />SOURCE: <a rel="nofollow" target="blank" href="https://www.bbc.com/news/world-europe-60859337">https://www.bbc.com/news/world-europe-60859337</a><br />SOURCE: From Wikipedia, the free encyclopedia<br />SOURCE:  <a rel="nofollow" target="blank" href="https://inews.co.uk/news/world/russian-landing-ship-destroyed-berdyansk-ukraine-claims-1536441">https://inews.co.uk/news/world/russian-landing-ship-destroyed-berdyansk-ukraine-claims-1536441</a><br /><br />✅ Video/Thumbnail Picture Just For Illustration<br />Video Editing by:  OdoPuiuEvents<br />- None of these images, music &amp; video clips were created/owned by us. <br />- This video is purely fan-made, if you (owners) have seen your content and want to remove this video, please message us privately before doing anything. We will respectfully remove it immediately. <br /><br />All videos are based on publicly available information unless otherwise noted.<br />Dear friends! Welcome to the OdoPuiuEvents Channel!<br />You will find current and topical news here!<br />Please keep discussions on this channel clean and respectful. Refrain from using racist or sexist slurs as well as personal insults.<br />Hope you all enjoy the video!<br />Check more of our videos on our channel <br />Thanks for watching guys, really appreciate your time.<br />Thanks for subscribing, likes and comments.<br />Thank you my friends.<br />Please Click On YouTube Subscribe Button To Be Notified Of New OdoPuiuEvents Videos!{% endraw %}
