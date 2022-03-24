@@ -1,0 +1,15 @@
+---
+title: "Crisp & Flaky Egg Custard Tarts | Dan Tat 蛋撻"
+image: "https:\/\/i.ytimg.com\/vi\/ORPYMcDIY8I\/hqdefault.jpg"
+vid_id: "ORPYMcDIY8I"
+categories: "Howto-Style"
+tags: ["Crisp","Flaky","Custard"]
+date: "2022-03-24T10:55:03+03:00"
+vid_date: "2021-11-21T01:00:04Z"
+duration: "PT15M55S"
+viewcount: "204002"
+likeCount: "10794"
+dislikeCount: ""
+channel: "emmymade"
+---
+{% raw %}Save 25% on your first Native Plastic-Free Deodorant Pack - normally $39, you’ll get it for $29! Click here <a rel="nofollow" target="blank" href="https://bit.ly/nativeemmy6">https://bit.ly/nativeemmy6</a> and use my code EMMY6 #AD<br /><br />Dan tat or egg custard tarts remind me of being a kid. There's something about the individual tart with its flaky crust and vanilla tinged eggy custard that says, 'Hey kid, hurry up and eat me up.' Thank you, Kristina, for this sharing this lovely recipe. #dantat #emmymade<br /><br />👚 Merch: <a rel="nofollow" target="blank" href="https://www.bonfire.com/store/emmy-made/">https://www.bonfire.com/store/emmy-made/</a><br />❤️ Subscribe: <a rel="nofollow" target="blank" href="http://youtube.com/subscription_center?add_user=emmymadeinjapan">http://youtube.com/subscription_center?add_user=emmymadeinjapan</a><br />👩🏻 Website: <a rel="nofollow" target="blank" href="https://www.emmymade.com/">https://www.emmymade.com/</a><br />🐦 Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/emmymadeinjapan">https://twitter.com/emmymadeinjapan</a><br />🌈 Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/emmymade">http://instagram.com/emmymade</a><br />🙃 Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/itsemmymadeinjapan/">https://www.facebook.com/itsemmymadeinjapan/</a><br />⏰ Tiktok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@emmymadetok">https://www.tiktok.com/@emmymadetok</a><br />🎂 Cameo: <a rel="nofollow" target="blank" href="https://www.cameo.com/emmymade">https://www.cameo.com/emmymade</a><br />🐝: emmymade extras: <a rel="nofollow" target="blank" href="https://www.youtube.com/emmymadeextras">https://www.youtube.com/emmymadeextras</a><br /><br />I tested Kristina Cho's dan tat recipe from 'Mooncakes And Milk Bread' (Amazon affiliate link) : <a rel="nofollow" target="blank" href="https://amzn.to/3kU4BUG">https://amzn.to/3kU4BUG</a><br /><br />This video IS sponsored. Thank you, Native!<br /><br />3&quot; tart molds (Amazon affiliate link): <a rel="nofollow" target="blank" href="https://amzn.to/32msVIv">https://amzn.to/32msVIv</a><br />Breville Smart Oven Air (Amazon affiliate link): <a rel="nofollow" target="blank" href="https://amzn.to/3isrL3I">https://amzn.to/3isrL3I</a><br /><br />Disclaimer:<br />Some of the above links are Amazon affiliate links and I receive a small commission with each sale at no extra cost to you. Thanks so much for the support.<br /><br />Music courtesy of Epidemic Sound and 'Sprightly' from iMovie. You've made it to the end - welcome!  Did you find the hidden words or the mysterious blank screen? Comment: &quot;*burp*&quot;{% endraw %}
