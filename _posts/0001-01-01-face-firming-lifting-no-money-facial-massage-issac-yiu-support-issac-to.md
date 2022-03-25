@@ -1,0 +1,15 @@
+---
+title: "Face Firming + Lifting ! no money | Facial massage  | 面部緊致提升按摩 | ISSAC YIU"
+image: "https:\/\/i.ytimg.com\/vi\/0Oqi7WaVoGY\/hqdefault.jpg"
+vid_id: "0Oqi7WaVoGY"
+categories: "Howto-Style"
+tags: ["kbeauty","korean skincare","korean skin care home remedies"]
+date: "2022-03-25T17:30:14+03:00"
+vid_date: "2021-04-06T14:00:19Z"
+duration: "PT8M51S"
+viewcount: "272897"
+likeCount: "10394"
+dislikeCount: ""
+channel: "ISSAC YIU"
+---
+{% raw %}👽Support issac to create more useful video👽 <br /><a rel="nofollow" target="blank" href="https://www.paypal.me/issacyiu">https://www.paypal.me/issacyiu</a> <br /><br />Welcome to be ISSAC FAMILY  !!👽<br />Instagram: <a rel="nofollow" target="blank" href="http://bit.ly/2P9mYUr">http://bit.ly/2P9mYUr</a><br />Salon booking: <a rel="nofollow" target="blank" href="https://bit.ly/2BJMf5F">https://bit.ly/2BJMf5F</a><br />Facebook: <a rel="nofollow" target="blank" href="http://bit.ly/2UOS6h6">http://bit.ly/2UOS6h6</a><br />Business inquiries: issacyiumedia@gmail.com <br /><br />This massage method is from Traditional Chinese Physician ,#kbeauty and my experience ! <br />Hope my video can save your life! also #nomoney !!!! #free !!!!!!!<br />please share your result with us  in 1- 2 weeks !! ^^<br /><br />if you want more tips &amp; workout to make your face look better !!! <br /><br />Slimmer nose = <a rel="nofollow" target="blank" href="https://bit.ly/37iou0l">https://bit.ly/37iou0l</a><br /><br />Better Jawline + Chin =  <a rel="nofollow" target="blank" href="https://bit.ly/3pFJqX4">https://bit.ly/3pFJqX4</a><br /><br />slimmer face =  <a rel="nofollow" target="blank" href="https://bit.ly/3aFqAJ9">https://bit.ly/3aFqAJ9</a><br /><br />SUPER SLIM FACE WORKOUT  = <a rel="nofollow" target="blank" href="https://bit.ly/3dxoYTe">https://bit.ly/3dxoYTe</a><br /><br />morning Skincare : <a rel="nofollow" target="blank" href="https://bit.ly/2QY6i4L​">https://bit.ly/2QY6i4L​</a> <br /><br />Skincare at night : <a rel="nofollow" target="blank" href="https://bit.ly/2QDHWNq">https://bit.ly/2QDHWNq</a><br /><br />KPOP Makeover =  <a rel="nofollow" target="blank" href="https://bit.ly/2H6XLuo">https://bit.ly/2H6XLuo</a><br /><br /><br />Hope u guys love my videos  ^^v  PLEASE SUBSCRIBE ! LIKE ! SHARE ! <br />~ Be a better me ~<br /><br />music <br /><br />Patrick Patrikios - Cover<br /><br /> Sad Puppy - You Look So Pretty<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=xDL9LcDHEyk">https://www.youtube.com/watch?v=xDL9LcDHEyk</a><br /><br />Track: Half-ID - Reverse My Mind<br />Free download / Stream: <a rel="nofollow" target="blank" href="https://jupitamusic.com/reversemymind/">https://jupitamusic.com/reversemymind/</a><br /><br />Track: Culture Code - Feel Again (feat. Harley Bird) [NCS Release]<br />Music provided by NoCopyrightSounds.<br />Watch: <a rel="nofollow" target="blank" href="https://youtu.be/YGLA_V_yZXo​">https://youtu.be/YGLA_V_yZXo​</a><br />Free Download / Stream: <a rel="nofollow" target="blank" href="http://ncs.io/FeelAgainYO">http://ncs.io/FeelAgainYO</a>{% endraw %}
