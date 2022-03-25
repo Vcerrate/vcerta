@@ -1,0 +1,15 @@
+---
+title: "Capital Expenditures (CapEx) Definition | Finance Strategists | Your Online Finance Dictionary"
+image: "https:\/\/i.ytimg.com\/vi\/Bz4eZ5jdDJE\/hqdefault.jpg"
+vid_id: "Bz4eZ5jdDJE"
+categories: "People-Blogs"
+tags: ["Finance Strategists","finance","capital expenditure"]
+date: "2022-03-25T04:22:41+03:00"
+vid_date: "2020-10-23T17:16:50Z"
+duration: "PT2M35S"
+viewcount: "8942"
+likeCount: "107"
+dislikeCount: ""
+channel: "Finance Strategists"
+---
+{% raw %}Any funds spent on acquiring new assets or upgrading old ones to improve performance are capital expenses, or CapEx. <br /><br />For accounting purposes, any expense that either adds new physical assets to a company or extends the life of an existing physical asset by more than one year is recorded as a capital expenditure.<br />_______________________<br />0:00 Capital Expenditures (CapEx) Definition<br />0:31 What are Capital Expenditures?<br />0:52 CapEx in Cash Flow Statement<br />1:10 CapEx Depreciation<br />1:48 CapEx Decisions in the Organization<br />2:03 Capital Expenditure Question &amp; Application<br />_______________________<br />Talk with an advisor by emailing advisor@financestrategists.com<br /><br />Learn more by visiting the page: <br /><a rel="nofollow" target="blank" href="https://www.financestrategists.com/terms/capex/">https://www.financestrategists.com/terms/capex/</a><br /><br />Check out the main Finance Strategists YouTube Page here:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCqScqlMRSeoHXRigrf0WxLg">https://www.youtube.com/channel/UCqScqlMRSeoHXRigrf0WxLg</a><br />_______________________<br />Message from the founder: <br />Here at Finance Strategists, we believe one of the best ways you can help someone is with their finances. We create helpful informational videos and content to help people take control of their finances. <br /><br />Finance Strategists plans to launch &quot;Finance Strategists for Kids&quot; where we teach fundamental financial concepts to kids in a clear manner allowing them to generate margin in their lives to bless other people. We believe raising up a generation of leaders with financial freedom can change individual lives, neighborhoods, countries, and the world. <br />_________________________<br />🔔 Hit the bell next to Subscribe so you don't miss a video!<br />📧 Fill out this form to receive the &quot;Finance Word of the Day&quot; in your inbox!<br />👨🏻‍💻 Watch our newest vids! - <a rel="nofollow" target="blank" href="https://bit.ly/FS-Recently-Added">https://bit.ly/FS-Recently-Added</a><br />💃  To book Ranie for voiceover or spokeswoman, email info@financestrategists.com<br />_________________________<br />Follow us on Socials:<br />Website: FinanceStrategists.com<br />Instagram: @financetrategists<br />Twitter: @FinStrategists<br />LinkedIn: <a rel="nofollow" target="blank" href="https://bit.ly/FS-linkedin">https://bit.ly/FS-linkedin</a><br />Facebook: <a rel="nofollow" target="blank" href="https://bit.ly/Facebook-FS">https://bit.ly/Facebook-FS</a>{% endraw %}
