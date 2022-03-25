@@ -1,0 +1,15 @@
+---
+title: "DIY: Make Eyeliner Out of Colored Pencils!"
+image: "https:\/\/i.ytimg.com\/vi\/jQJ_aalErnw\/hqdefault.jpg"
+vid_id: "jQJ_aalErnw"
+categories: "Entertainment"
+tags: ["diy","diy eyeliner","diy eyeliner out of a colored pencil"]
+date: "2022-03-26T01:56:07+03:00"
+vid_date: "2015-05-03T17:30:06Z"
+duration: "PT3M12S"
+viewcount: "13502353"
+likeCount: "210210"
+dislikeCount: ""
+channel: "Rclbeauty101"
+---
+{% raw %}“DIY: How To Make Eyeliner Out of Colored Pencils!”GET THIS VIDEO TO 100,000 likes! MY SNAPCHAT IS RCLBEAUTY101! FOLLOW ME! :)<br /><br />Watch My Last Video! ➜ <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ZNPaPk2nkhk">https://www.youtube.com/watch?v=ZNPaPk2nkhk</a><br /><br />CRAYOLA was not involved in the making of this video, they didn't tell me to use colored pencils as eyeliner, and they didn't give me permission to, so this video is purely my own, they didn't make the product to be used like this, however it's equally as safe as regular eyeliner and people have been using the colored pencil eyeliner trick for a while. Use this at your own discretion though, I gained my information from the crayola nontoxic safety sheet form where they wrote that there were no potential health effects from the product getting in your eye, and this isn't a new trick that I came up with it's been around for a while, but at the same time every eye is different so test it but have saline near if you do feel irritated then you know that this diy is not for you! And of course ask your parents permission first. <br /><br />ALSO CHECK OUT:<br /><a rel="nofollow" target="blank" href="http://www.youtube.com/watch?v=GSWDlgMl7z0">http://www.youtube.com/watch?v=GSWDlgMl7z0</a><br />AND<br /><a rel="nofollow" target="blank" href="http://www.youtube.com/watch?v=FyZ-5X0QKNI">http://www.youtube.com/watch?v=FyZ-5X0QKNI</a><br /><br />- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -<br />BECOME MY FRIEND➜  <a rel="nofollow" target="blank" href="http://bit.ly/1odjqNY">http://bit.ly/1odjqNY</a><br />- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -<br />I DARE YOU TO STALK ME:<br /><br />❄ T W I T T E R➜  <a rel="nofollow" target="blank" href="https://twitter.com/rclbeauty101">https://twitter.com/rclbeauty101</a><br /><br />❄ I N S T A G R A M➜ <a rel="nofollow" target="blank" href="http://instagram.com/rclbeauty101">http://instagram.com/rclbeauty101</a><br />- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -<br />Business Inquiries Only: Manager- info@lennonmgmt.com <br />- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -<br />Want to send me something?<br /><br />Rachel Levin<br />P.O. BOX 60177<br />Philadelphia, PA<br />19102<br />- - - - - -- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -<br /> I decided to do a, DIY, but not a normal DIY, a DIY Eyeliner out of a colored pencil, its very cheap to buy and colorful and bright to make,{% endraw %}
