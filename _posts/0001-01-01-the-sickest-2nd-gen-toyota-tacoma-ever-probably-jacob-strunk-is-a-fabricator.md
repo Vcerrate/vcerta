@@ -1,0 +1,15 @@
+---
+title: "The sickest 2nd Gen Toyota Tacoma EVER... probably"
+image: "https:\/\/i.ytimg.com\/vi\/pcdGEBT_XZQ\/hqdefault.jpg"
+vid_id: "pcdGEBT_XZQ"
+categories: "Autos-Vehicles"
+tags: ["toyota tacoma","tahuya","orv"]
+date: "2022-03-25T06:37:12+03:00"
+vid_date: "2022-03-24T23:00:30Z"
+duration: "PT5M7S"
+viewcount: "1521"
+likeCount: "154"
+dislikeCount: ""
+channel: "Maxx Powell"
+---
+{% raw %}Jacob Strunk is a fabricator and creator on Instagram and YouTube who built what might be considered the sickest second generation Toyota Tacoma ever! We started off by running some of the easy trails in Tahuya Orv park which Jacobs truck walked through effortlessly. Eventually we came upon a large rock pile which posed a small challenge for the solid axle truck. After seeing this truck move i decided we needed a full walk around video of Jacobs 2nd Gen Toyota Tacoma rock crawling overland build.<br /><br />Here's Jacob's build list! <br /><br />Truck is sitting on a full set of brand new 40” tires and comes with TWO brand new 40” spares. All matching and all brand new <br /><br />Dual cases with 2.58 gearing in both for a total reduction of 6.1 out of them (Northwest Fab kit with tripple sticks)<br /><br />Front axle is a Dana 60 kingpin with a grizzly locker, 5.38 gears and fresh fluid. <br /><br />Rear axle is a Chevy 14 bolt with the same specs as above, both axle are disc brake. <br /><br />Front and rear bumpers at coastal offroad extreme clearance kits, rock sliders are custom fabricated along with the full bed cage and GFC SuperLite tent mounts. <br /><br />Tent is a GoFastCampers SuperLite (currently discontinued and highly desired) I have installed an LED strip inside for lighting at night <br /><br />Diesel heater mounted inside bed rail, built into a pelican style box with a custom fuel tank. Can usually get about 30 hours of run time off the tank <br /><br />Full in bed lighting <br /><br />13,000lb winch up front with wireless and wired remotes <br /><br />Projector retrofit headlights along with four amber led pods light up the night <br /><br />Extra 12v SAE plug in bed for inverter or whatever else you need. <br /><br />Truck has 1/0 gauge high end wiring ran front to rear for jumper cable plug in or whatever else you want to use them for. No ends on either end yet <br /><br />50watt ham radio mounted in overhead console <br /><br />40” Milestar Patagonia tires sitting on beautiful faux beadlocks. Comes with 6 tires total (two spares). All with less than 2k miles on them (two of them have never seen a rim) <br /><br />Front suspension is a custom 3 link kit with 14” 2.5 coilovers with resis, limit straps and bumpstops installed. Unreal amount of travel with it <br /><br />Rear suspension is a set of Chevy 63 springs with 18” 2.5” shocks with resis, these perform awesome. <br /><br />All shocks are FOA brand, valved on the stiffer side of things to better handle whoops and jumps if desired. <br /><br />Factory 4.0 liter motor and automatic transmission.{% endraw %}
