@@ -1,0 +1,15 @@
+---
+title: "Cody Francis - We're Gonna Be Okay"
+image: "https:\/\/i.ytimg.com\/vi\/rJRWfH6AlEI\/hqdefault.jpg"
+vid_id: "rJRWfH6AlEI"
+categories: "Music"
+tags: ["Epidemic Sound","Coffehouse pop","Folk inspire"]
+date: "2022-03-25T08:09:27+03:00"
+vid_date: "2019-02-22T14:30:02Z"
+duration: "PT3M20S"
+viewcount: "983516"
+likeCount: "14139"
+dislikeCount: ""
+channel: "Epidemic Acoustic"
+---
+{% raw %}Listen to our Acoustic songs playlist: <a rel="nofollow" target="blank" href="https://music.youtube.com/playlist?list=PLgvMfywOim8lX0KBC-n-N5n7CLP89VcZs">https://music.youtube.com/playlist?list=PLgvMfywOim8lX0KBC-n-N5n7CLP89VcZs</a><br />Subscribe to be part of our community: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCm_DCqBaoewBmFJ68JT7H3g?sub_confirmation=1">https://www.youtube.com/channel/UCm_DCqBaoewBmFJ68JT7H3g?sub_confirmation=1</a><br /><br />We upload the best acoustic music used across the creator community. Subscribe and press the notification bell to get updated when we publish new acoustic songs!<br /><br />Subscribe to discover more music:<br />Epidemic Country: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UChNoDcwrdwUlmgktF-DEy-A">https://www.youtube.com/channel/UChNoDcwrdwUlmgktF-DEy-A</a><br />Epidemic Indie: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC__-AddYeZB_YCuSY8WZn-w">https://www.youtube.com/channel/UC__-AddYeZB_YCuSY8WZn-w</a><br />Epidemic Pop: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCzMxEa-lDX2AfgotszScOFg">https://www.youtube.com/channel/UCzMxEa-lDX2AfgotszScOFg</a><br />Epidemic Soul: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCuIYXHQDrshoYcbFttrvAjw">https://www.youtube.com/channel/UCuIYXHQDrshoYcbFttrvAjw</a><br /><br />Royalty free music and sound effects (30-day free trial): <a rel="nofollow" target="blank" href="https://www.epidemicsound.com/music/genres/acoustic/?utm_source=youtube_music&amp;utm_medium=social&amp;utm_campaign=youtubeacoustic">https://www.epidemicsound.com/music/genres/acoustic/?utm_source=youtube_music&amp;utm_medium=social&amp;utm_campaign=youtubeacoustic</a><br />More channels from Epidemic Sound: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC_sOjEnngNB2y_AEaDd2cSA/channels">https://www.youtube.com/channel/UC_sOjEnngNB2y_AEaDd2cSA/channels</a><br /><br />We believe in a world where music can flow freely and fairly across timezones, borders, audiences and channels. Thank you for being a part of our community! ♫<br /><br />• Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/epidemicsound/">https://instagram.com/epidemicsound/</a><br />• Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/epidemicsound/">https://twitter.com/epidemicsound/</a><br />• Facebook: <a rel="nofollow" target="blank" href="https://facebook.com/EpidemicSound/">https://facebook.com/EpidemicSound/</a><br /><br />#epidemicacoustic #epidemicsound{% endraw %}
