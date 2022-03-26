@@ -1,0 +1,15 @@
+---
+title: "High Intensity Low Impact Bodyweight Workout (No Jumping + No Equipment!) | FOLLOW ALONG"
+image: "https:\/\/i.ytimg.com\/vi\/OHV0imdoiIU\/hqdefault.jpg"
+vid_id: "OHV0imdoiIU"
+categories: "Sports"
+tags: ["no jumping workout","low impact workout","no equipment workout"]
+date: "2022-03-26T08:01:09+03:00"
+vid_date: "2022-03-03T15:00:11Z"
+duration: "PT20M19S"
+viewcount: "34174"
+likeCount: "1353"
+dislikeCount: ""
+channel: "Blue Star Nutraceuticals"
+---
+{% raw %}0:00 Today’s workout is low impact, but high intensity. <br /><br />It’s safe for the joints, yet great for burning calories, and fat fast.<br /><br />So if you're looking for a fun, yet effective workout with no jumping, and no equipment, so you can burn fat while sparing your knees. . . <br /><br />Today's workout is exactly what you need.<br /><br />Plus, James Johnson is gonna be doing it with your in real-time every step of the way, to show you exactly how it's done. <br /><br />You're gonna love this!<br /><br />🛡️Use Code: JJ10 to save 10% Off Joint Armour™ ➞ <a rel="nofollow" target="blank" href="https://bit.ly/3wu0ROv">https://bit.ly/3wu0ROv</a><br /><br />1:32 Warm-up: 2 minutes<br />- Squats<br />- Lunges<br />- Arm Swings + Circles<br />- Toe touches<br />- High knees + Heel taps<br /><br />2:32 Workout:<br />- 8 Exercises in circuit fashion<br />- 40 secs work + 20 secs rest<br />- 2 rounds for a total of 16 minutes<br /><br />Round 1<br />3:32 Exercise #1: High Knees<br />4:32 Exercise #2: Squat + Knee<br />5:32 Exercise #3: Cross Body High Knee<br />6:32 Exercise #4: Walkout Push-ups<br />7:32 Exercise #5: Shoulder Tap Plank<br />8:32 Exercise #6: Spiderman Push-ups<br />9:32 Exercise #7: Supermans<br />10:32 Exercise #8: Lying Scissor Kicks<br /><br />Round 2<br />11:32 Exercise #1: High Knees<br />12:32 Exercise #2: Squat + Knee<br />13:32 Exercise #3: Cross Body High Knee<br />14:32 Exercise #4: Walkout Push-ups<br />15:32 Exercise #5: Shoulder Tap Plank<br />16:32 Exercise #6: Spiderman Push-ups<br />17:32 Exercise #7: Supermans<br />18:32 Exercise #8: Lying Scissor Kicks<br /><br />19:15 Great job pushing through this. What exercise was your favourite from this one?<br /><br />👍 Hit Thumbs Up if you enjoyed this video<br />💬 Drop a comment with your thoughts on this workout and what you want to see next<br /><br />◾ LINKS ◾ <br />🛡️Use Code: JJ10 to save 10% Off Joint Armour™ ➞ <a rel="nofollow" target="blank" href="https://bit.ly/3wu0ROv">https://bit.ly/3wu0ROv</a><br />🏋️7-Minute Full Body Warm up ➞ <a rel="nofollow" target="blank" href="https://youtu.be/GUc0zkTJDO4">https://youtu.be/GUc0zkTJDO4</a><br />🍴 3x3 Faster Fat Loss Diet Plan ➞ <a rel="nofollow" target="blank" href="https://youtu.be/tk0oQGdq7ZM">https://youtu.be/tk0oQGdq7ZM</a><br />🔔 Subscribe for new videos every week ➞ <a rel="nofollow" target="blank" href="http://bit.ly/BlueStarYT">http://bit.ly/BlueStarYT</a><br /><br />MB01SSNZXQFMJRN<br /><br />#LowImpactWorkout #FasterFatLoss #BlueStarNutraceuticals{% endraw %}
