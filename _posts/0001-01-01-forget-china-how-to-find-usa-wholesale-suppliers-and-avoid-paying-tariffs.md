@@ -1,0 +1,15 @@
+---
+title: "Forget China! How To Find USA Wholesale Suppliers And Avoid Paying Tariffs"
+image: "https:\/\/i.ytimg.com\/vi\/fT-rpr_RO-A\/hqdefault.jpg"
+vid_id: "fT-rpr_RO-A"
+categories: "Howto-Style"
+tags: ["amazon fba","sell on amazon","importing from china"]
+date: "2022-03-26T07:19:13+03:00"
+vid_date: "2022-01-11T14:30:06Z"
+duration: "PT10M15S"
+viewcount: "10437"
+likeCount: "519"
+dislikeCount: ""
+channel: "MyWifeQuitHerJob Ecommerce Channel"
+---
+{% raw %}When it comes to finding suppliers for products to sell online, most people look towards China and other Asian countries because the price of labor is far cheaper than the United States.<br /><br />But working with Asian vendors comes at a cost. In this video, you'll learn 4 ways to find USA wholesale suppliers.<br /><br />0:00 4 Ways To Find USA Wholesale Suppliers<br />1:11 Pros And Cons Of Sourcing From Asia Vs The United States<br />2:16 Method #1: Use ReferenceUSA<br />3:43 How To Use ReferenceUSA<br />4:40 Method #2 Use ThomasNet.com<br />5:53 Method #3: Use WorldWide Brands<br />7:13 Method #4: Use Makers Row<br />8:16 Choosing From The Different Supplier Research Tools<br /><br />Take My Free Mini-Course - <a rel="nofollow" target="blank" href="https://mywifequitherjob.com/free">https://mywifequitherjob.com/free</a><br /><br />TOOLS MENTIONED<br />Worldwide Brands Save $30 - <a rel="nofollow" target="blank" href="https://mywifequitherjob.com/go/wwb.php">https://mywifequitherjob.com/go/wwb.php</a><br />Reference USA - <a rel="nofollow" target="blank" href="https://www.data-axle.com/what-we-do/reference-solutions/">https://www.data-axle.com/what-we-do/reference-solutions/</a><br />Thomas.net - <a rel="nofollow" target="blank" href="https://thomasnet.com">https://thomasnet.com</a><br />Makers Row - <a rel="nofollow" target="blank" href="https://makersrow.com">https://makersrow.com</a><br /><br />MY FREE ONLINE COURSES:<br />🚀  My FREE 6 Day Ecommerce Course - <a rel="nofollow" target="blank" href="https://mywifequitherjob.com/free/">https://mywifequitherjob.com/free/</a><br /><br />MY FULL ECOMMERCE COURSE:<br />🍿 Create A Profitable Online Store - <a rel="nofollow" target="blank" href="https://profitableonlinestore.com">https://profitableonlinestore.com</a><br /><br />🎙 My weekly podcast - <a rel="nofollow" target="blank" href="https://mywifequitherjob.com/category/podcast/">https://mywifequitherjob.com/category/podcast/</a><br /><br /> 📸  Instagram - <a rel="nofollow" target="blank" href="https://instagram.com/mywifequit">https://instagram.com/mywifequit</a><br />🐦  Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/mywifequit">https://twitter.com/mywifequit</a><br /><br />WHO AM I:<br /><br />🌍  My website / blog - <a rel="nofollow" target="blank" href="https://mywifequitherjob.com">https://mywifequitherjob.com</a><br /><br />GET IN TOUCH:<br />If you’d like to talk, I’d love to hear from you. Tweeting @mywifequit directly will be the quickest way to get a response, but if your question is very long, feel free to email me at steve@mywifequitherjob.com{% endraw %}
