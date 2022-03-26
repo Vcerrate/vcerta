@@ -1,0 +1,15 @@
+---
+title: "we asked you to pick the fabric (and two blouses were born) | WITHWENDY"
+image: "https:\/\/i.ytimg.com\/vi\/UpKnsALTuCU\/hqdefault.jpg"
+vid_id: "UpKnsALTuCU"
+categories: "Howto-Style"
+tags: ["withwendy","thredup","pick fabric"]
+date: "2022-03-26T15:56:51+03:00"
+vid_date: "2022-03-24T21:00:08Z"
+duration: "PT17M36S"
+viewcount: "54548"
+likeCount: "5261"
+dislikeCount: ""
+channel: "withwendy"
+---
+{% raw %}Get up to 60% off your first order and free shipping with my code WENDY: <a rel="nofollow" target="blank" href="https://bit.ly/thredUPfeb22_WENDY.">https://bit.ly/thredUPfeb22_WENDY.</a> Get your items sooner by shopping secondhand. (Offer expires 4/30/22. Applies to US &amp; Canada customers only. See site for full terms). This video is sponsored by thredUP!<br /><br />➭ LINKS *some links may give me a small commission that supports my channel<br />- Shop the Fashionary sketch tools: <a rel="nofollow" target="blank" href="http://bit.ly/shopfashionary">http://bit.ly/shopfashionary</a> (use WENDY_10 for 10% off)<br />- Shop all Lutterloh kits: <a rel="nofollow" target="blank" href="https://bit.ly/lutterlohwithwendy">https://bit.ly/lutterlohwithwendy</a> (use Wendy10 for 10% off)<br />- When I organized all my fabric: <a rel="nofollow" target="blank" href="https://youtu.be/aBrDeFpgH00">https://youtu.be/aBrDeFpgH00</a><br />- When I made a Regency-inspired dress: <a rel="nofollow" target="blank" href="https://youtu.be/5kHqEVXixao">https://youtu.be/5kHqEVXixao</a><br />- When I made a Cecilie Bahnsen-inspired dress from the diamond fabric: <a rel="nofollow" target="blank" href="https://youtu.be/WTtd7SHz90s">https://youtu.be/WTtd7SHz90s</a><br />- When I made a cold shoulder top from the eyelet cotton: <a rel="nofollow" target="blank" href="https://youtu.be/BaIO3FRKI_0">https://youtu.be/BaIO3FRKI_0</a><br />- When I made a matching set from the sheer floral fabric: <a rel="nofollow" target="blank" href="https://youtu.be/KtrQk0Dj-yw">https://youtu.be/KtrQk0Dj-yw</a><br /><br />✰ Shop my supplies/merch - <a rel="nofollow" target="blank" href="http://bit.ly/shopwendy">http://bit.ly/shopwendy</a><br />✰ Catch up on my podcast - <a rel="nofollow" target="blank" href="https://bit.ly/fortunecookiewithwendy">https://bit.ly/fortunecookiewithwendy</a><br />✰ Join my mailing list - <a rel="nofollow" target="blank" href="http://bit.ly/withwendymail">http://bit.ly/withwendymail</a><br />✰ Support my channel - <a rel="nofollow" target="blank" href="https://bit.ly/supportwithwendy">https://bit.ly/supportwithwendy</a><br /><br />More photos on Instagram @withwendy<br />Tag your projects #madewithwendy<br /><br />assisted by:<br />Julia Tu<br /><br />music by: MUSICBED<br />Elevate your videos with record-label quality music from Musicbed: <a rel="nofollow" target="blank" href="http://share.mscbd.fm/withwendy">http://share.mscbd.fm/withwendy</a><br /><br />Hi! I'm Wendy and I am on a sewing journey via DIY videos that teach you how to sew your own clothes. Subscribe if you'd like to get inspiration and learn the tips and tricks I discover. Thanks for watching! #madewithwendy{% endraw %}
