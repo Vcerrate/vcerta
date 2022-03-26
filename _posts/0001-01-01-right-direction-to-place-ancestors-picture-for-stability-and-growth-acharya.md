@@ -1,0 +1,15 @@
+---
+title: "Right Direction to Place Ancestors Picture for Stability and Growth | Acharya namrata surana"
+image: "https:\/\/i.ytimg.com\/vi\/6-fl9zbT4tE\/hqdefault.jpg"
+vid_id: "6-fl9zbT4tE"
+categories: "Education"
+tags: ["MahaVastu","Vastu","Vastu Tips"]
+date: "2022-03-26T20:59:38+03:00"
+vid_date: "2022-03-26T11:10:03Z"
+duration: "PT1M36S"
+viewcount: "415"
+likeCount: "27"
+dislikeCount: ""
+channel: "Learn MahaVastu"
+---
+{% raw %}Placing Ancestors picture in right direction increases stability in life. According to MahaVastu always place ancestors picture in Southwest Direction. For more details connect me on given link.<br /><br />Acharya Namrata Surana’s profile: <br /><a rel="nofollow" target="blank" href="https://www.mvtrainer.net/listing/namrata-surana/">https://www.mvtrainer.net/listing/namrata-surana/</a><br /><br /><a rel="nofollow" target="blank" href="https://www.astrocrat.net/listing/namrata-surana/">https://www.astrocrat.net/listing/namrata-surana/</a><br /><br />Follow Acharya Namrata Surana on Facebook:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/MVtrainerNamrataSurana/">https://www.facebook.com/MVtrainerNamrataSurana/</a><br /><br />Instagram:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/invites/contact/?i=1g5tdewzlgg1e&amp;utm_content=1wx1ugt">https://www.instagram.com/invites/contact/?i=1g5tdewzlgg1e&amp;utm_content=1wx1ugt</a><br /><br />Google:<br /><a rel="nofollow" target="blank" href="https://g.page/namrata-surana-mahavastu-acharya?is">https://g.page/namrata-surana-mahavastu-acharya?is</a><br /><br />Book a Free consultancy session for MahaVastu Yogdaan at:<br /><a rel="nofollow" target="blank" href="https://mvtrainer.net/free-yogdaan">https://mvtrainer.net/free-yogdaan</a><br /><br /><br />#MahaVastu #Vastu #VastuTips<br />-----------------<br />For more such educational and informative videos, subscribe to our channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/MahaVastuYogdaanMission?sub_confirmation=1">https://www.youtube.com/c/MahaVastuYogdaanMission?sub_confirmation=1</a> <br /><br />Following the framework for self-excellence in Shrimad Bhagavad Gita, MahaVastu helps you to live with more happiness, health, wealth, and excellence. <br />MahaVastu extends a helping hand to all, free from any discrimination based on country, ethnicity, caste, religion, class, status or gender.<br />Dedicated intuitive Acharyas specially trained by Dr. Khushdeep Bansal provide free advice as part of our collective Yogdaan Initiative every week for 4 hours to visitors on a first come first serve basis. This intuitive advice helps you eradicate pain.<br />For Yogdaan please visit: <a rel="nofollow" target="blank" href="https://mvtrainer.net/free-yogdaan/">https://mvtrainer.net/free-yogdaan/</a><br /><br />MahaVastu facilitates learning Vedic architecture (Vastu Shastra) through short duration courses supported by intuitive MahaVastu Acharyas at grassroots level.<br />To know more about the courses please visit: <a rel="nofollow" target="blank" href="https://mahavastu.com/">https://mahavastu.com/</a>{% endraw %}
