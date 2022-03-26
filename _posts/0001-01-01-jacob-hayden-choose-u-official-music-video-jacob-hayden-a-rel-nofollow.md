@@ -1,0 +1,15 @@
+---
+title: "Jacob Hayden - Choose U | Official Music Video"
+image: "https:\/\/i.ytimg.com\/vi\/RTdYtzv-wwI\/hqdefault.jpg"
+vid_id: "RTdYtzv-wwI"
+categories: "People-Blogs"
+tags: ["Jacob","Hayden","Choose"]
+date: "2022-03-26T23:14:27+03:00"
+vid_date: "2022-03-11T20:50:07Z"
+duration: "PT4M7S"
+viewcount: "9226"
+likeCount: "832"
+dislikeCount: ""
+channel: "Ruberto Inc."
+---
+{% raw %}Jacob Hayden: <a rel="nofollow" target="blank" href="https://linktr.ee/JacobHayden">https://linktr.ee/JacobHayden</a> <br />Tik Tok: @singingrat<br />Instagram: @thejacobhayden<br /><br />**LYRICS: “Choose U” - Jacob Hayden**<br /><br />VERSE 1<br /><br />I don’t want to lose you.<br /><br />I can’t seem to wanna face the truth.<br /><br />Too much I cannot handle to lose you.<br /><br />But that look in your eyes makes me want to.<br /><br />Choose you.<br /><br />PRE-CHORUS<br /><br />Sitting on the porch and I asked you to hold my hand.<br /><br />You’re so nervous and you don’t want to take the chance. <br /><br />It felt different when you came and you asked to dance<br /><br />Looking at the stars in the back of your Cadillac <br /><br />I can’t help it but I look when I get the chance<br /><br />Your eyes different every time I get in a trance<br />  <br />CHORUS<br /><br />I know somehow I’ll let you down<br /><br />And I’ll make mistakes.<br /><br />And I’ll give you the crown.<br /><br />I’ll hold you close.<br /><br />Never let you go.<br /><br />I want you the most.<br /><br />I choose you <br /><br />VERSE 2 <br /> <br />Just know I can’t lose you.<br /><br />All these faces I can’t find you.<br /><br />But it feels like I can't even find myself <br /><br />There’s something about you.<br /><br />When I’m looking right at you <br /><br />Cause you find a way to give me deja vu.<br /><br />PRE-CHORUS 2<br /><br />Sitting on the porch and you left me to reminisce <br /><br />Can’t help it take me back to the day we kissed.<br /><br />Overthinking ‘bout the chances that I had missed.                <br /><br />CHORUS<br /><br />Was it meant to be?<br /><br />If you’re next to me <br /><br />I'd give you the key <br /><br />To my heart, we’ll see<br /><br />Can you hold me close?<br /><br />Never let me go.<br /><br />I want you the most.<br /><br />I choose you<br /><br />BRIDGE <br /><br />I wanna say I miss you <br /><br />My pride’s always the issue <br /><br />I really think I need therapy after this<br /><br />I always want to call you <br /><br />Tell you how I loved you <br /><br />I can’t find the words to say <br /><br />That you’re the only one.<br /><br />CHORUS<br /><br />I know somehow I’ll let you down<br /><br />And I’ll make mistakes.<br /><br />And I’ll give you the crown.<br /><br />I’ll hold you close.<br /><br />Never let you go.<br /><br />I want you the most.<br /><br />I choose you <br /><br />**MUSIC FADES OUT**<br /><br />Thank you again for the amazing opportunity to collaborate with you!<br />(In depth credits coming soon…){% endraw %}
