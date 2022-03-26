@@ -1,0 +1,15 @@
+---
+title: "The most insulated farm shop we’ve ever seen | Top Shops® | Successful Farming"
+image: "https:\/\/i.ytimg.com\/vi\/M5A5wRt2cTk\/hqdefault.jpg"
+vid_id: "M5A5wRt2cTk"
+categories: "Science-Technology"
+tags: ["Successful farming","Successful farming magazine","Agriculture.com"]
+date: "2022-03-26T13:14:47+03:00"
+vid_date: "2021-02-15T13:00:14Z"
+duration: "PT8M11S"
+viewcount: "106099"
+likeCount: "1424"
+dislikeCount: ""
+channel: "Successful Farming"
+---
+{% raw %}Dave Mowitz travels to Manchester, Iowa, to tour Kevin Glanz’s farm shop of his dreams. A strategic thinker, Kevin put a lot of thought into the type of structure that would best fit his operation and pocketbook. To help Kevin save money, he insulated the shop from top to bottom to save on energy costs. <br /><br />From Successful Farming (ep. 1401), originally aired January 29, 2021.<br /><br />Subscribe to Successful Farming ►► <a rel="nofollow" target="blank" href="https://www.youtube.com/successfulfarming">https://www.youtube.com/successfulfarming</a> <br /><br /> <br /><br />Watch Top Shops® to tour some of the best farm shops from around the country. Dave Mowitz, machinery and technology executive editor, features innovative shop floors, offices, hoists, oil-change areas, lubrication centers, storage, heating, lighting, and break rooms. Get ideas for your existing shop or for planning your dream shop.<br /><br /><br /> Join Dave Mowitz, machinery and technology executive editor, as he tours farm shops of every shape and size:<br /><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLfmcXlkwVLVWPdGbiJMiCM3jdJF304pTq">https://www.youtube.com/playlist?list=PLfmcXlkwVLVWPdGbiJMiCM3jdJF304pTq</a><br /><br /> <br /><br />What’s used farm equipment selling for? Take in an auction with Dave Mowitz and find out:<br /><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLfmcXlkwVLVWVWMKXRkcciZjHaLir_3zG">https://www.youtube.com/playlist?list=PLfmcXlkwVLVWVWMKXRkcciZjHaLir_3zG</a><br /><br /> <br /><br />Don’t miss an episode of the Successful Farming TV Show! Watch the latest episodes here:<br /><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL4D2769271876C66D">https://www.youtube.com/playlist?list=PL4D2769271876C66D</a><br /><br /> <br /><br />CONNECT WITH<br /><br />Web: <a rel="nofollow" target="blank" href="https://www.agriculture.com/">https://www.agriculture.com/</a><br /><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/SuccessfulFarm">https://twitter.com/SuccessfulFarm</a><br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/SuccessfulFarmingUSA">https://www.facebook.com/SuccessfulFarmingUSA</a><br /><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/successful_farming/">https://www.instagram.com/successful_farming/</a><br /><br /> <br /><br />ABOUT SUCCESSFUL FARMING<br /><br />Successful Farming is dedicated to making farmers successful. Get the news and information that can help you make money, save time, and grow your farming business.{% endraw %}
