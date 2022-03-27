@@ -1,0 +1,15 @@
+---
+title: "Volkswagen Golf 7 - Research & Development"
+image: "https:\/\/i.ytimg.com\/vi\/TKk9kNlph14\/hqdefault.jpg"
+vid_id: "TKk9kNlph14"
+categories: "Autos-Vehicles"
+tags: ["new","youcar","cars"]
+date: "2022-03-27T03:41:26+03:00"
+vid_date: "2014-08-25T12:47:56Z"
+duration: "PT3M1S"
+viewcount: "16104"
+likeCount: "231"
+dislikeCount: ""
+channel: "YOUCAR"
+---
+{% raw %}Indeed, the latest Golf 7 is up to 220 pounds lighter than the outgoing car, thanks to careful focus on weight savings in all aspects of the car's construction, from the electrical architecture through to the engines and the body-in-white. The air conditioning unit is, for example, six pounds lighter than the old car's; the seats have shed 15 pounds; and the body-in-white is 51 pounds lighter. One major reason for the bodyshell's weight loss is the extensive use of high- and ultra-high strength steels. The share of the high-strength steels overall has gone from 66 percent in the previous Golf to 80 percent in the new one. Of this, the share of ultra-high-strength steel has gone from six to 28 percent.<br /><br />One benefit of lowering the Golf's weight is better fuel economy: the European-market 1.4 TSI that uses a 140-horsepower, turbocharged, 1.4-liter engine fitted with cylinder de-activation gets a European Cycle combined fuel consumption figure of 49 mpg, while the base 105-horsepower TDI Clean Diesel engine delivers 62 mpg on the EC combined cycle.<br /><br />The Golf mk7 is 2.2 inches longer than the old car, with an overall length of 167.5 inches. Similarly, the wheelbase has grown by 2.3 inches to 103.8 inches. Since the front wheels are now located 1.7 inches further forward, the proportions are sportier, the crash structure is improved, and the interior package further optimized. The new car is 0.8 inches lower and 0.5 inches wider than the old car.<br /><br />The Golf mk7 is more spacious, with a passenger compartment that is 0.6 inches longer than before, giving 0.6 inches more rear kneeroom. Shoulder room is improved by 1.2 inches in both the back and front of the car. Cargo capacity has also been enhanced, while the load area is more accessible. <br /><br />A key feature of the interior is a new infotainment system, which incorporates a five-inch touchscreen, even on entry-level European models. At the top end, the Golf features a navigation system which has a large, eight-inch touchscreen.<br /><br />► SUBSCRIBE NOW: <a rel="nofollow" target="blank" href="http://urlz.fr/lEd">http://urlz.fr/lEd</a><br />► WEBSITE: <a rel="nofollow" target="blank" href="http://www.youcarnews.com">http://www.youcarnews.com</a><br /><br />► FACEBOOK: <a rel="nofollow" target="blank" href="http://www.facebook.com/youcarpress">http://www.facebook.com/youcarpress</a><br />► TWITTER: <a rel="nofollow" target="blank" href="http://www.twitter.com/youcartv">http://www.twitter.com/youcartv</a><br />► GOOGLE+: <a rel="nofollow" target="blank" href="http://plus.google.com/+YouCarPress">http://plus.google.com/+YouCarPress</a>{% endraw %}
