@@ -1,0 +1,15 @@
+---
+title: "TRAPPED Underground in a LUXURY Coffin!!"
+image: "https:\/\/i.ytimg.com\/vi\/_62dLhLXQmY\/hqdefault.jpg"
+vid_id: "_62dLhLXQmY"
+categories: "Comedy"
+tags: ["team edge","team edge challenge","teamedge"]
+date: "2022-03-27T07:56:26+03:00"
+vid_date: "2022-03-26T16:00:13Z"
+duration: "PT15M24S"
+viewcount: "291053"
+likeCount: "14420"
+dislikeCount: ""
+channel: "Team Edge"
+---
+{% raw %}Hey guys! In this video, Bobby is buried in a luxury coffin while Marvin searches for him! Marvin only has a certain amount of time before Bobby is buried forever! Can Marvin find the tools to dig bobby up? But also, why would Bobby want to be dug up? He has a TV, energy drinks, and delicious food! Will Marvin find Bobby before the time runs out? Let us know down below! <br /><br />Team Edge Merchandise! ➡ <a rel="nofollow" target="blank" href="https://teamedge.store">https://teamedge.store</a><br /><br />🔽MORE LINKS BELOW 🔽<br />TE Instagram  ➡ <a rel="nofollow" target="blank" href="https://instagram.com/itsteamedge/">https://instagram.com/itsteamedge/</a><br />TE TikTok ➡ <a rel="nofollow" target="blank" href="https://www.tiktok.com/@teamedge?lang=en">https://www.tiktok.com/@teamedge?lang=en</a><br />TE Twitter ➡ <a rel="nofollow" target="blank" href="https://twitter.com/its_teamedge?lang=en">https://twitter.com/its_teamedge?lang=en</a><br /><br />J-Freds ➡ <a rel="nofollow" target="blank" href="https://www.instagram.com/itsjfred/?hl=en">https://www.instagram.com/itsjfred/?hl=en</a><br />Bryans ➡ <a rel="nofollow" target="blank" href="https://www.instagram.com/itsbryito/?hl=en">https://www.instagram.com/itsbryito/?hl=en</a><br />Bobby ➡ <a rel="nofollow" target="blank" href="https://www.instagram.com/presidentbobby/?hl=en">https://www.instagram.com/presidentbobby/?hl=en</a><br />Connor ➡ <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC2OXXgGejCNDbxAbUDUuMEQ">https://www.youtube.com/channel/UC2OXXgGejCNDbxAbUDUuMEQ</a><br />Josh ➡ <a rel="nofollow" target="blank" href="https://www.instagram.com/jugglinjosh/?hl=en">https://www.instagram.com/jugglinjosh/?hl=en</a><br />Keobi ➡ <a rel="nofollow" target="blank" href="https://www.instagram.com/keobi_/?hl=en">https://www.instagram.com/keobi_/?hl=en</a><br />Jordan ➡ <a rel="nofollow" target="blank" href="https://www.instagram.com/jdhubbs/?hl=en">https://www.instagram.com/jdhubbs/?hl=en</a><br />Marvin ➡ <a rel="nofollow" target="blank" href="https://www.instagram.com/marv.active/?hl=en">https://www.instagram.com/marv.active/?hl=en</a><br /><br />Welcome to Team Edge! <br />Heres 3 things we love!<br />-We love spending time with each other, creating crazy competitions, and having fun doing it! Thats all you'll see on this channel every Tuesday and Friday!<br />-We love Jesus and believe its our purpose here on earth to spread the good news that he has saved us from our sins. Because we love him its our mission to provide family friendly content that glorifies him!<br />-We love you. We hope you'll be part of Team Edge and join us for the ride!<br /><br />Buisness Inquiries: inquiries@teamedgegames.com{% endraw %}
