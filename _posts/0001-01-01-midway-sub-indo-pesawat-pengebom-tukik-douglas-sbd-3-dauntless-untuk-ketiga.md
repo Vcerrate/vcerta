@@ -1,0 +1,15 @@
+---
+title: "MIDWAY sub indo"
+image: "https:\/\/i.ytimg.com\/vi\/xI6uNeho4ko\/hqdefault.jpg"
+vid_id: "xI6uNeho4ko"
+categories: "People-Blogs"
+tags: ["MIDWAY"]
+date: "2022-03-27T14:41:25+03:00"
+vid_date: "2021-02-28T11:09:09Z"
+duration: "PT1H37M48S"
+viewcount: "678098"
+likeCount: "5736"
+dislikeCount: ""
+channel: "bioskop XXI"
+---
+{% raw %}Pesawat pengebom tukik Douglas SBD-3 Dauntless untuk ketiga kalinya sedang menyerang Kapal penjelajah Jepang Mikuma yang sedang terbakar.Tanggal4-7 Juni 1942LokasiDekat Atol Midway<br />28°12′N 177°21′WHasilKemenangan telak Amerika SerikatPihak terlibat￼<br />Amerika Serikat￼<br />Kekaisaran JepangTokoh dan pemimpinChester W. Nimitz<br />Frank J. Fletcher<br />Raymond A. SpruanceYamamoto Isoroku<br />Nobutake Kondō<br />Chūichi Nagumo<br />Tamon Yamaguchi †<br />Ryusaku Yanagimoto (†)Kekuatan3 kapal induk,<br />~25 kapal pendukung,<br />233 pesawat kapal induk,<br />127 pesawat dari pangkalan di darat4 kapal induk,<br />2 kapal tempur,<br />~15 kapal pendukung (kapal penjelajah ringan dan berat, kapal perusak),<br />248[1] pesawat kapal induk, 16 pesawat amfibi<br />Tidak ikut serta:<br />2 kapal induk ringan,<br />5 kapal tempur,<br />~41 kapal pendukungKorban1 kapal induk tenggelam,<br />1 kapal perusak tenggelam,<br />98 pesawat hancur[butuh rujukan],<br />307 tewas[2]4 kapal induk tenggelam,<br />1 kapal penjelajah tenggelam,<br />248 pesawat kapal induk hancur,<br />3.057 tewas<br />Serangan Jepang, seperti halnya serangan ke Pearl Harbor, dimaksudkan untuk melenyapkan Amerika Serikat sebagai kekuatan strategis di Pasifik, agar Jepang dapat bebas mendirikan Lingkungan Kemakmuran Bersama Asia Timur Raya. Pihak Jepang berharap kekalahan berikutnya akan mendemoralisasi Amerika Serikat hingga dapat dipaksa bernegosiasi mengakhiri Perang Pasifik dengan syarat-syarat yang menguntungkan Jepang.[7]<br />Rencana Jepang disusun untuk memancing kapal induk Amerika Serikat yang jumlahnya hanya sedikit hingga masuk ke dalam jebakan.[8] Jepang juga bermaksud menduduki Atol Midway sebagai bagian dari rencana menyeluruh memperluas garis luar pertahanan mereka sebagai respons dari Serangan Udara Doolittle. Operasi ini dianggap sebagai persiapan serangan Jepang selanjutnya ke Fiji dan Samoa. Rencana ini cacat akibat kesalahan asumsi Jepang tentang reaksi Amerika Serikat dan pengambilan keputusan yang kurang baik.[9]<br />Pemecah kode Amerika berhasil memecahkan sandi Jepang tentang tanggal dan lokasi serangan, dan memungkinkan Angkatan Laut Amerika Serikat menyusun rencana penyergapan tiba-tiba. Empat kapal induk dan sebuah kapal penjelajah berat Jepang tenggelam, sementara pihak Amerika Serikat kehilangan sebuah kapal induk dan sebuah kapal perusak. Kerugian besar berupa tenggelamnya empat kapal induk dan tewasnya penerbang dalam jumlah besar melemahkan kekuatan Angkatan Laut Kekaisaran Jepang.[10] Jepang tidak mampu lagi menyaingi kecepatan Amerika Serikat dalam membangun kapal-kapal perang dan melatih penerbang baru.<br />#midway <br />#midwaymovie{% endraw %}
