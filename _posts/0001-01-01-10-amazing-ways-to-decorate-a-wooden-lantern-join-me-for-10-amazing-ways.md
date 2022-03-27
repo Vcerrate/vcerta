@@ -1,0 +1,15 @@
+---
+title: "10+ Amazing Ways to Decorate a Wooden Lantern"
+image: "https:\/\/i.ytimg.com\/vi\/PO0GTAhpPS4\/hqdefault.jpg"
+vid_id: "PO0GTAhpPS4"
+categories: "Howto-Style"
+tags: ["10+ decorate lantern","Lantern Decorating","GRAND OPENING"]
+date: "2022-03-27T17:13:49+03:00"
+vid_date: "2022-03-25T18:52:05Z"
+duration: "PT21M50S"
+viewcount: "20864"
+likeCount: "2635"
+dislikeCount: ""
+channel: "Traditions By The Seasons"
+---
+{% raw %}Join me for 10+ amazing ways to decorate a wooden lantern in the kitchen or living room. I also share a Homegoods Grand Opening, Decor Haul, a few new Amazon Items, and a Homesense decor haul! Thanks for stopping by and have a great weekend, everyone! I will see you back here on Wednesday! Much Love ~ XOXO ❤️<br /><br />00:00 Homegoods Grand Opening<br />13:00 10+ Amazing Ways to Decorate a Lantern<br /><br />***CHECK OUT MY FULL AMAZON STORE*** (TONS OF ITEMS) <br /><a rel="nofollow" target="blank" href="https://www.amazon.com/shop/traditionsbytheseasons">https://www.amazon.com/shop/traditionsbytheseasons</a><br /><br />❤️ MY TANK TOP: <a rel="nofollow" target="blank" href="https://amzn.to/3wA7rEX">https://amzn.to/3wA7rEX</a><br />❤️ MY CARDIGAN: <a rel="nofollow" target="blank" href="https://amzn.to/3LdmMzt">https://amzn.to/3LdmMzt</a><br />❤️ MY JEANS: <a rel="nofollow" target="blank" href="https://amzn.to/3tFuo84">https://amzn.to/3tFuo84</a><br />❤️ BENE LIP TINT &amp; CHEEK STAIN: <a rel="nofollow" target="blank" href="https://amzn.to/3NkEGSF">https://amzn.to/3NkEGSF</a><br />❤️ FITNESS TRACKER: <a rel="nofollow" target="blank" href="https://amzn.to/3qRyqbJ">https://amzn.to/3qRyqbJ</a><br /><br />❤️ SHOP MY SPRING/EASTER STORE: <a rel="nofollow" target="blank" href="https://amzn.to/3idBIBg">https://amzn.to/3idBIBg</a><br />❤️ SHOP DECOR FINDS FOR THE HOME: <a rel="nofollow" target="blank" href="https://amzn.to/3wiCk0O">https://amzn.to/3wiCk0O</a><br />❤️ SHOP MY WV HOME: <a rel="nofollow" target="blank" href="https://amzn.to/3wpPQ2m">https://amzn.to/3wpPQ2m</a><br />❤️ SHOP FASHION TOPS FOR WOMEN: <a rel="nofollow" target="blank" href="https://amzn.to/3KUjz7R">https://amzn.to/3KUjz7R</a><br />❤️ SHOP DECORATIVE KITCHEN CUTTING BOARDS: <a rel="nofollow" target="blank" href="https://amzn.to/3IAg2K9">https://amzn.to/3IAg2K9</a><br />❤️ SHOP FARMHOUSE STYLE KITCHEN PRODUCTS &amp; DECOR: <a rel="nofollow" target="blank" href="https://amzn.to/3NfT3ro">https://amzn.to/3NfT3ro</a><br />❤️ SHOP FAUX PLANTS FOR THE HOME: <a rel="nofollow" target="blank" href="https://amzn.to/36mIkuV">https://amzn.to/36mIkuV</a><br />❤️ SHOP DECORATIVE HOME LANTERNS: <a rel="nofollow" target="blank" href="https://amzn.to/36mIkuV">https://amzn.to/36mIkuV</a><br /><br />All my great music can be found on Epidemic Sound!<br /><a rel="nofollow" target="blank" href="https://www.epidemicsound.com/referra...">https://www.epidemicsound.com/referra...</a><br /><br />--------------------------------------------------------------------------------------------<br />As an Amazon Associate, I earn from qualifying purchases.{% endraw %}
