@@ -1,0 +1,15 @@
+---
+title: "Noomi Rapace's English Is Basically an Impression of Jimmy Fallon"
+image: "https:\/\/i.ytimg.com\/vi\/uHrxGx_MXKI\/hqdefault.jpg"
+vid_id: "uHrxGx_MXKI"
+categories: "Comedy"
+tags: ["The Tonight Show","Jimmy Fallon","Noomi Rapace"]
+date: "2022-03-27T09:28:08+03:00"
+vid_date: "2019-11-07T11:00:08Z"
+duration: "PT6M34S"
+viewcount: "566261"
+likeCount: "5220"
+dislikeCount: ""
+channel: "The Tonight Show Starring Jimmy Fallon"
+---
+{% raw %}Noomi Rapace reveals how Jimmy basically taught her to speak English before turning the interview into a full-blown wig party.<br /><br />Subscribe NOW to The Tonight Show Starring Jimmy Fallon: <a rel="nofollow" target="blank" href="http://bit.ly/1nwT1aN">http://bit.ly/1nwT1aN</a><br /> <br />Watch The Tonight Show Starring Jimmy Fallon Weeknights 11:35/10:35c<br /> <br />Get more The Tonight Show Starring Jimmy Fallon: <a rel="nofollow" target="blank" href="https://www.nbc.com/the-tonight-show">https://www.nbc.com/the-tonight-show</a><br /> <br />JIMMY FALLON ON SOCIAL<br />Follow Jimmy: <a rel="nofollow" target="blank" href="http://Twitter.com/JimmyFallon">http://Twitter.com/JimmyFallon</a><br />Like Jimmy: <a rel="nofollow" target="blank" href="https://Facebook.com/JimmyFallon">https://Facebook.com/JimmyFallon</a><br />Follow Jimmy: <a rel="nofollow" target="blank" href="https://www.instagram.com/jimmyfallon/">https://www.instagram.com/jimmyfallon/</a><br /> <br />THE TONIGHT SHOW ON SOCIAL<br />Follow The Tonight Show: <a rel="nofollow" target="blank" href="http://Twitter.com/FallonTonight">http://Twitter.com/FallonTonight</a><br />Like The Tonight Show: <a rel="nofollow" target="blank" href="https://Facebook.com/FallonTonight">https://Facebook.com/FallonTonight</a><br />Follow The Tonight Show: <a rel="nofollow" target="blank" href="https://www.instagram.com/fallontonight/">https://www.instagram.com/fallontonight/</a><br />Tonight Show Tumblr: <a rel="nofollow" target="blank" href="http://fallontonight.tumblr.com">http://fallontonight.tumblr.com</a><br /> <br />The Tonight Show Starring Jimmy Fallon features hilarious highlights from the show, including comedy sketches, music parodies, celebrity interviews, ridiculous games, and, of course, Jimmy's Thank You Notes and hashtags! You'll also find behind the scenes videos and other great web exclusives.<br /> <br />GET MORE NBC<br />NBC YouTube: <a rel="nofollow" target="blank" href="http://bit.ly/1dM1qBH">http://bit.ly/1dM1qBH</a><br />Like NBC: <a rel="nofollow" target="blank" href="http://Facebook.com/NBC">http://Facebook.com/NBC</a><br />Follow NBC: <a rel="nofollow" target="blank" href="http://Twitter.com/NBC">http://Twitter.com/NBC</a><br />NBC Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/nbc">http://instagram.com/nbc</a><br />NBC Tumblr: <a rel="nofollow" target="blank" href="http://nbctv.tumblr.com/">http://nbctv.tumblr.com/</a><br /> <br />The Tonight Show Starring Jimmy Fallon<br /><a rel="nofollow" target="blank" href="http://www.youtube.com/fallontonight">http://www.youtube.com/fallontonight</a><br /><br />#FallonTonight<br />#NoomiRapace<br />#JimmyFallon{% endraw %}
