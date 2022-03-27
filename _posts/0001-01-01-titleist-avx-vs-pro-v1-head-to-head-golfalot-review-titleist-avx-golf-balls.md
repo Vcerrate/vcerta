@@ -1,0 +1,15 @@
+---
+title: "Titleist AVX vs Pro V1 HEAD TO HEAD | Golfalot Review"
+image: "https:\/\/i.ytimg.com\/vi\/vW04ET8TkhY\/hqdefault.jpg"
+vid_id: "vW04ET8TkhY"
+categories: "Sports"
+tags: ["golfalot","review","golf review"]
+date: "2022-03-27T09:53:54+03:00"
+vid_date: "2022-03-24T17:06:43Z"
+duration: "PT13M29S"
+viewcount: "5247"
+likeCount: "181"
+dislikeCount: ""
+channel: "Golfalot"
+---
+{% raw %}Titleist AVX Golf Balls Review<br /><br />Which balls do you use? Have you tried AVX before? Let us know in the comments...<br /><br />This video review was shot at Prestbury Golf Club, England. <br /><br />#TitleistAVX #GolfalotReview #Subscribe<br />----------------------------------------------------------------------------------<br />· SUBSCRIBE TO GOLFALOT FOR FREE NOW: <br /><br />- <a rel="nofollow" target="blank" href="http://bit.ly/GolfalotYTSUBSCRIBE">http://bit.ly/GolfalotYTSUBSCRIBE</a><br />----------------------------------------------------------------------------------<br />· FOLLOW Golfalot on social media: <br /><br />- Facebook: <a rel="nofollow" target="blank" href="http://bit.ly/GolfalotFBLIKE">http://bit.ly/GolfalotFBLIKE</a> <br />- Twitter: <a rel="nofollow" target="blank" href="http://bit.ly/GolfalotTwitterFOLLOW">http://bit.ly/GolfalotTwitterFOLLOW</a> <br />- Instagram: <a rel="nofollow" target="blank" href="http://bit.ly/GolfalotInstaFOLLOW">http://bit.ly/GolfalotInstaFOLLOW</a><br />-----------------------------------------------------------------------------------<br />Hello and welcome to our channel - Golfalot, the No.1 golf equipment news and reviews site and home for those who like to Golfalot!<br /><br />For over a decade, Golfalot has brought you in-depth, impartial and honest news and reviews on all things in the world of golf equipment. This channel is all about helping YOU, the golfer, to make better decisions when it comes to buying either new or used golf equipment. We want you to buy the right equipment for your game and therefore improve in doing so.<br /><br />We specialise in full, on-course and indoor golf club reviews of all the latest golf equipment from the biggest brands that you need to know about, and also the ones you don’t… We also pride ourselves on being independent and therefore giving you 100% honesty in each and every one of our reviews.<br /><br />Each video review you see on our channel will also be accompanied by a full written review on our website, Golfalot.com.<br /><br />If you like the videos on our channel, please make sure you hit the SUBSCRIBE button and also click the notification bell so that you are notified first when we release a new video.<br />-----------------------------------------------------------------------------------<br />Before you go, don’t forget to:<br /><br />· Hit the LIKE button if you enjoyed the video<br /><br />· Make sure you leave a COMMENT if you have any questions for our reviewers<br /><br />· SUBSCRIBE TO GOLFALOT FOR FREE NOW: <br />- <a rel="nofollow" target="blank" href="http://bit.ly/GolfalotYTSUBSCRIBE">http://bit.ly/GolfalotYTSUBSCRIBE</a><br /><br />Thanks for watching the Golfalot Titleist AVX Golf Ball review{% endraw %}
