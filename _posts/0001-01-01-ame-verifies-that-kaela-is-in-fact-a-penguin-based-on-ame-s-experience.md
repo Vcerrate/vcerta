@@ -1,0 +1,15 @@
+---
+title: "Ame verifies that Kaela is, in fact, a Penguin"
+image: "https:\/\/i.ytimg.com\/vi\/lvQS2XVWsQk\/hqdefault.jpg"
+vid_id: "lvQS2XVWsQk"
+categories: "Entertainment"
+tags: ["ame","amelia","amelia watson"]
+date: "2022-03-27T20:01:45+03:00"
+vid_date: "2022-03-26T20:30:22Z"
+duration: "PT45S"
+viewcount: "9561"
+likeCount: "644"
+dislikeCount: ""
+channel: "ShiroClips Ch."
+---
+{% raw %}Based on Ame's experience as a detective and animal expert<br /><br /><br />For the full vtuber experience watch them when they are live !<br /><br /><br />＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝<br />Sources:<br />【AME】1hr Unpacking Stream~<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=AFDKegTb6Js">https://www.youtube.com/watch?v=AFDKegTb6Js</a><br /><br /><br />＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝<br />HoloLive English Girls' Channels here:<br /><br />Ninomae Ina'nis ch: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCMwGHR0BTZuLsmjY_NT5Pwg">https://www.youtube.com/channel/UCMwGHR0BTZuLsmjY_NT5Pwg</a><br />Amelia Watson Ch.: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCyl1z3jo3XHR1riLFKG5UAg">https://www.youtube.com/channel/UCyl1z3jo3XHR1riLFKG5UAg</a><br />Gawr Gura Ch.: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCoSrY_IQQVpmIRZ9Xf-y93g">https://www.youtube.com/channel/UCoSrY_IQQVpmIRZ9Xf-y93g</a><br />Mori Calliope Ch.: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCL_qhgtOy0dy1Agp8vkySQg">https://www.youtube.com/channel/UCL_qhgtOy0dy1Agp8vkySQg</a><br />Takanashi Kiara Ch.: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCHsx4Hqa-1ORjQTh9TYDhww">https://www.youtube.com/channel/UCHsx4Hqa-1ORjQTh9TYDhww</a><br />IRyS Ch.: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC8rcEBzJSleTkf_-agPM20g">https://www.youtube.com/channel/UC8rcEBzJSleTkf_-agPM20g</a><br />Tsukumo Sana Ch.: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCsUj0dszADCGbF3gNrQEuSQ">https://www.youtube.com/channel/UCsUj0dszADCGbF3gNrQEuSQ</a><br />Hakos Baelz Ch.: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCgmPnx-EEeOrZSg5Tiw7ZRQ">https://www.youtube.com/channel/UCgmPnx-EEeOrZSg5Tiw7ZRQ</a><br />Ceres Fauna Ch.: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCO_aKKYxn4tvrqPjcTzZ6EQ">https://www.youtube.com/channel/UCO_aKKYxn4tvrqPjcTzZ6EQ</a><br />Ouro Kronii Ch.: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCmbs8T6MWqUHP1tIQvSgKrg">https://www.youtube.com/channel/UCmbs8T6MWqUHP1tIQvSgKrg</a><br />Nanashi Mumei Ch.: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC3n5uGu18FoCy23ggWWp8tA">https://www.youtube.com/channel/UC3n5uGu18FoCy23ggWWp8tA</a><br /><br />＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝<br />Here's my twitter if you wanna follow<br /><a rel="nofollow" target="blank" href="https://twitter.com/ShiroClips">https://twitter.com/ShiroClips</a><br /><br /><br />＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝＝<br />#AmeliaWatson #HoloLiveEN  #HoloLive #hololivemyth{% endraw %}
