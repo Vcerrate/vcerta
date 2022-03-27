@@ -1,0 +1,15 @@
+---
+title: "Why The World Relies On ASML For Machines That Print Chips"
+image: "https:\/\/i.ytimg.com\/vi\/iSVHp6CAyQ8\/hqdefault.jpg"
+vid_id: "iSVHp6CAyQ8"
+categories: "News-Politics"
+tags: ["cnbc","television","news"]
+date: "2022-03-28T00:59:50+03:00"
+vid_date: "2022-03-23T16:05:50Z"
+duration: "PT18M40S"
+viewcount: "351904"
+likeCount: "7604"
+dislikeCount: ""
+channel: "CNBC"
+---
+{% raw %}In a Dutch factory, there’s a revolutionary chipmaking machine the whole world has come to rely on. It takes months to assemble, and only one company in the world knows how: Advanced Semiconductor Materials Lithography. <br /><br />CNBC got an exclusive tour inside ASML’s cleanrooms to see how these $200 million EUV systems print minuscule designs on advanced microchips using exploding molten tin, the flattest surface in the world, and light so narrow it’s absorbed by air. <br /><br />Once ASML is done building and testing an EUV lithography machine, it’s so big that it needs to be disassembled and loaded on 20 trucks or three 747s for shipment. Only five customers can afford EUV machines, the biggest being TSMC, Samsung and Intel - and ASML export controls keep ASML from sending any to China. <br /><br />Here’s a rare, inside look at how nearly 800 suppliers come together to create the technology required to print every advanced chip powering the digital world, from data centers to iPhones.<br /><br />Chapters:<br /><br />00:00 -- Intro<br />1:58 -- Dutch company with U.S. roots<br />6:18 -- How lithography works<br />8:52 -- How EUV revolutionized chipmaking<br />11:24 -- Why there’s no competition<br />14:45 -- Geopolitical risks and what’s next (edited) <br /><br />» Subscribe to CNBC: <a rel="nofollow" target="blank" href="https://cnb.cx/SubscribeCNBC">https://cnb.cx/SubscribeCNBC</a><br />» Subscribe to CNBC TV: <a rel="nofollow" target="blank" href="https://cnb.cx/SubscribeCNBCtelevision">https://cnb.cx/SubscribeCNBCtelevision</a><br /><br />About CNBC: From 'Wall Street' to 'Main Street' to award winning original documentaries and Reality TV series, CNBC has you covered. Experience special sneak peeks of your favorite shows, exclusive video and more.<br /><br />Connect with CNBC News Online<br />Get the latest news: <a rel="nofollow" target="blank" href="https://www.cnbc.com/">https://www.cnbc.com/</a><br />Follow CNBC on LinkedIn: <a rel="nofollow" target="blank" href="https://cnb.cx/LinkedInCNBC">https://cnb.cx/LinkedInCNBC</a><br />Follow CNBC News on Facebook: <a rel="nofollow" target="blank" href="https://cnb.cx/LikeCNBC">https://cnb.cx/LikeCNBC</a><br />Follow CNBC News on Twitter: <a rel="nofollow" target="blank" href="https://cnb.cx/FollowCNBC">https://cnb.cx/FollowCNBC</a><br />Follow CNBC News on Instagram: <a rel="nofollow" target="blank" href="https://cnb.cx/InstagramCNBC">https://cnb.cx/InstagramCNBC</a><br />Subscribe to CNBC PRO: <a rel="nofollow" target="blank" href="https://cnb.cx/2NLi9AN">https://cnb.cx/2NLi9AN</a><br /><br />#CNBC<br /><br />Why The World Relies On ASML For Machines That Print Chips{% endraw %}
