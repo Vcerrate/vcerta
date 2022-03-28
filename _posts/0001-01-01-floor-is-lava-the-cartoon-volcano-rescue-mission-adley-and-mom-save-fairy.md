@@ -1,0 +1,15 @@
+---
+title: "FLOOR iS LAVA the CARTOON!!  Volcano rescue mission Adley and Mom save Fairy Eggs on pirate island!"
+image: "https:\/\/i.ytimg.com\/vi\/BTd4f2k2F8Y\/hqdefault.jpg"
+vid_id: "BTd4f2k2F8Y"
+categories: "People-Blogs"
+tags: ["Spacestation Animation","adley","shonduras"]
+date: "2022-03-28T03:32:26+03:00"
+vid_date: "2022-03-25T15:05:47Z"
+duration: "PT8M19S"
+viewcount: "247578"
+likeCount: "1881"
+dislikeCount: ""
+channel: "Spacestation Animation"
+---
+{% raw %}Spacestation Animation presents THE FLOOR is LAVA!!<br /><br />JOIN THE FAM  -- <a rel="nofollow" target="blank" href="https://www.youtube.com/c/Spacestatio...">https://www.youtube.com/c/Spacestatio...</a><br /><br />It's another beautiful day in fairy forest, the Pirates haven't bothered the fairies in a long time. The pixie flowers in fairy forest have been growing really big all year and it's about time for them to hatch! Fairy Adley and Fairy Mom had to build a nest for the pixie eggs to lay in once they pick them. So Adley and Mom flew around fairy forest collecting all of the grass, twigs, and flowers they could find to build the babies the BEST little pixie house! Then they picked the eggs off of the pixie bush and put them in their nest, while they went out to collect more flowers! Little did the fairies know, while they were building the pixie nests... the pirates were planning to steal the new baby pixie eggs. When Adley and Mom got back from picking flowers, the pixies were GONE!! They flew over to the pirates ship to find the eggs, but on their way there they were TRAPPED! Pirate Niko and Pirate Dad were hiding in a treasure chest and jumped out to capture those no good.. glitter smelling.. fairies! They put Fairy Adley and Mom in pirate jail! Then Pirate Niko pushed the LAVA BUTTON to cover fairy island in lava so that they could NEVER escape! But, those clumsy pirates left the keys IN JAiL with the fairies! When Adley and Mom found the keys they quickly broke out, but they didn't know how to get rid of the lava! Then they saw 2 water guns! They sprayed the lava with tons of water to get rid of it all, then we were off to find their pixies! When they found the eggs they were ABOUT to HATCH! On the way back to fairy forest the pirates tried to the eggs from the fairies again, but then decided,  that they should work together to help the pixies hatch safely! Those little pixies were adorable after they hatched, AND they have already started to fly!<br /><br />As you watch this episode, keep an eye out for your Quarter Machine NFT's!<br /><br />Made with:<br />Adobe Creative Cloud<br />Maya<br />UNREAL Engine<br />Blender<br />ZBrush<br />and LOTS of love ❤️<br /><br />For a sneak peak of our next episode be sure to join Shaun Mcbride and his Family on the A for Adley  animation video: <a rel="nofollow" target="blank" href="https://youtu.be/bRBNMDzsgjI">https://youtu.be/bRBNMDzsgjI</a><br /><br />The Video this Animation was based off of - <a rel="nofollow" target="blank" href="https://youtu.be/b5Wn2C-OaS4">https://youtu.be/b5Wn2C-OaS4</a>{% endraw %}
