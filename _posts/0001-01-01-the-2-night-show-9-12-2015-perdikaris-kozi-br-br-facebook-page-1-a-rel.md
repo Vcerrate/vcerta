@@ -1,0 +1,15 @@
+---
+title: "Ο Τζίμης Πανούσης (Όλα τα λεφτά) στο The 2 night show {Ολη η Συνέντευξη}(9\/12\/2015)"
+image: "https:\/\/i.ytimg.com\/vi\/AO7vON6cSvo\/hqdefault.jpg"
+vid_id: "AO7vON6cSvo"
+categories: "Music"
+tags: ["TZIMIS PANOUSIS-DIMITRIS STAROVAS-NEOELLINAS","ΤΖΙΜΗΣ ΠΑΝΟΥΣΗΣ-ΔΗΜΗΤΡΗΣ ΣΤΑΡΟΒΑΣ-ΝΕΟΕΛΛΗΝΑΣ","NEOELLINAS 2015"]
+date: "2022-03-28T17:39:49+03:00"
+vid_date: "2015-12-10T10:11:26Z"
+duration: "PT38M57S"
+viewcount: "1732565"
+likeCount: "9543"
+dislikeCount: ""
+channel: "Perdikaris Kozi"
+---
+{% raw %}Επικοινωνία-Ενημέρωση με τον Perdikaris Kozi<br /><br />▶ Facebook Page 1 : <a rel="nofollow" target="blank" href="https://www.facebook.com/perdikaris.kozi.3">https://www.facebook.com/perdikaris.kozi.3</a><br />▶ Facebook Page 2 : <a rel="nofollow" target="blank" href="https://www.facebook.com/Perdikaris.Kozi.Deutero">https://www.facebook.com/Perdikaris.Kozi.Deutero</a><br />▶ Facebook Like : <a rel="nofollow" target="blank" href="https://www.facebook.com/perdikariskozi">https://www.facebook.com/perdikariskozi</a><br />▶ Facebook Group : <a rel="nofollow" target="blank" href="https://www.facebook.com/groups/519606651459206/">https://www.facebook.com/groups/519606651459206/</a><br />▶ Εγγραφή στο κανάλι μας : <a rel="nofollow" target="blank" href="https://www.youtube.com/user/PERDIKARISKOZI?sub_confirmation=1">https://www.youtube.com/user/PERDIKARISKOZI?sub_confirmation=1</a><br />▶ Google : <a rel="nofollow" target="blank" href="https://plus.google.com/u/0/114850773580513770569/posts">https://plus.google.com/u/0/114850773580513770569/posts</a><br /><br />Ο Τζίμης Πανούσης (Όλα τα λεφτά) στο The 2 night show {Ολη η Συνέντευξη}(9/12/2015) <br /><br />Ο Τζίμης Πανούσης (Όλα τα λεφτά) στο The 2 night show (9/12/2015)<br /><br />Ο Τζίμης Πανούσης (Όλα τα λεφτά) στο The 2 night show {Ολόκληρη Συνέντευξη}(9/12/2015) <br /><br />Από την εκπομπή του ANT1 'The 2 night show' με τον Γρηγόρη Αρναούτογλου που προβλήθηκε στις 9/12/2015<br /><br />Καλεσμένος Ο Τζίμης Πανούσης<br /><br />ΤΖΙΜΗΣ ΠΑΝΟΥΣΗΣ-THE 2 NIGHT SHOW 9/12/2015<br />TZIMIS PANOUSIS-THE 2 NIGHT SHOW 9/12/2015<br /><br />♫ 1 : <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=zkpp6aXNl5M">https://www.youtube.com/watch?v=zkpp6aXNl5M</a><br /><br /> ♫ 2 : <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=mRwpmtv9wTo">https://www.youtube.com/watch?v=mRwpmtv9wTo</a><br /><br />♫ 3 : <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=j0kKzRbfqAQ">https://www.youtube.com/watch?v=j0kKzRbfqAQ</a><br /><br />♫ 4  : <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=2WL7aX41EcA">https://www.youtube.com/watch?v=2WL7aX41EcA</a><br /><br />♫ 5 : <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ElVWbKDjre8">https://www.youtube.com/watch?v=ElVWbKDjre8</a><br /><br />♫ 6 : <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=dkpBRnhZWvM">https://www.youtube.com/watch?v=dkpBRnhZWvM</a><br /><br />Τα πνευματικά δικαιώματα ανήκουν εξ ολοκλήρου στους δημιουργούς.{% endraw %}
