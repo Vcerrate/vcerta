@@ -1,0 +1,15 @@
+---
+title: "How to Take BACKPACKING GEAR on a PLANE! (this is important) | Miranda in the Wild"
+image: "https:\/\/i.ytimg.com\/vi\/5CnhgPrW8Lw\/hqdefault.jpg"
+vid_id: "5CnhgPrW8Lw"
+categories: "Travel-Events"
+tags: ["taking backpack on plane","traveling with a backpack","checking a backpack on plane"]
+date: "2022-03-28T21:36:47+03:00"
+vid_date: "2022-03-27T15:00:02Z"
+duration: "PT12M30S"
+viewcount: "13227"
+likeCount: "1022"
+dislikeCount: ""
+channel: "Miranda in the Wild!!"
+---
+{% raw %}Packing your backpacking gear for plane travel is easy with a few simple tricks! Nobody wants a broken buckle on your backpack from baggage handlers throwing your backpack around. Plus conveyer belts have been known to snag or even cut a strap or two. In this video I give my tips on how to protect your backpack so that it makes it to your destination intact, plus more tips on what backpacking gear can and can NOT be brought on an airplane. Some backpacking gear MUST be checked, other gear has to be carried on, and some backpacking gear can't be brought on a plane PERIOD. I'll cover it all in this video. How to safely pack your backpacking gear for air travel!! Enjoy!<br /><br />Why you should check your backpacking gear for plane travel: 00:43<br />How to check your backpacking gear on a plane safely: 1:53<br />What backpacking gear you can't bring on a plane: 7:09<br />How to bring backpacking food on a plane: 8:14<br />More tips for bringing your backpacking gear on an airplane (head lamp &amp; trekking poles): 9:34<br /><br />REI Pack Duffel: <a rel="nofollow" target="blank" href="https://www.rei.com/product/118870/rei-co-op-pack-duffel-bag">https://www.rei.com/product/118870/rei-co-op-pack-duffel-bag</a><br />Shop All Pack Duffels: <a rel="nofollow" target="blank" href="https://www.rei.com/c/pack-duffel-bags">https://www.rei.com/c/pack-duffel-bags</a><br />Shop All My Gear: <a rel="nofollow" target="blank" href="https://www.rei.com/mirandas-gear">https://www.rei.com/mirandas-gear</a><br />Become an REI Member: <a rel="nofollow" target="blank" href="https://www.rei.com/membership">https://www.rei.com/membership</a><br /><br />Miranda in the Wild is an REI Co-op Studios production!<br />Producer: Rainer Golden<br />Producer: Miranda Webster<br />Camera: Jonathan Houser<br />Editors: Kyle Roof and Chelsea Newton<br /><br />Follow Miranda on IG @MirandaGoesOutside: <a rel="nofollow" target="blank" href="https://www.instagram.com/mirandagoesoutside">https://www.instagram.com/mirandagoesoutside</a><br />Subscribe to the Miranda in the Wild Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCGEDbg1EKT7HCqbT7OAsLKA">https://www.youtube.com/channel/UCGEDbg1EKT7HCqbT7OAsLKA</a><br />Subscribe to the REI Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/rei​​​">https://www.youtube.com/c/rei​​​</a><br /><br />Like, Subscribe, Comment, and tune in weekly for more Miranda in the Wild!<br /><br />#backpacking #travel #wanderlust #naturelovers #optoutside #rei #mirandainthewild{% endraw %}
