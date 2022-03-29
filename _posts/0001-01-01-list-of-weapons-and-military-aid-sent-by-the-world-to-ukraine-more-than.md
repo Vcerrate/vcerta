@@ -1,0 +1,15 @@
+---
+title: "List Of Weapons And Military Aid Sent By The World To Ukraine"
+image: "https:\/\/i.ytimg.com\/vi\/ivoKOPyGR5o\/hqdefault.jpg"
+vid_id: "ivoKOPyGR5o"
+categories: "Entertainment"
+tags: ["List Of Weapons And Military Aid Sent By The World To Ukraine","list of weapons sent to ukraine","list of weapons sent by usa to help ukraine"]
+date: "2022-03-29T04:16:48+03:00"
+vid_date: "2022-03-24T13:26:24Z"
+duration: "PT9M2S"
+viewcount: "45534"
+likeCount: "927"
+dislikeCount: ""
+channel: "The Buzz"
+---
+{% raw %}More than 25 nations have joined in purchasing and delivering weapons to support Ukraine’s war effort. The U.S. has sent billions of dollars in missiles, ammunition, and other items to the front. The EU signed off on a €500 million ($551 million USD) package — a first for the 27-country European bloc — to help arm Ukraine. And both Finland and Germany have rewritten long-standing policies that barred exporting weapons into war zones. At the same time, there are tens of thousands of troops being activated and deployed by NATO countries in Eastern Europe.<br />Using a resource guide retrieved from the Forum on the Arms Trade that mostly relies on official government statements and reports in the media — and backfilled with our own independent research — POLITICO has worked to track and compile weapons and materials that have been announced or directed to Ukraine by various countries since January.<br />This non-exhaustive list focuses on lethal weapons and some non-lethal material. It does not count humanitarian and developmental aid that has been sent to Ukraine in the same period. Arms trade research organizations have noted the timeline and official receipt of equipment is hard to confirm due to security concerns. In some cases, such as with France and Turkey, an official tally has not been made public.<br /><br />Let us know in case we miss out on the credits.<br />————————————<br />Check out other videos from our channel:<br />RUSSIAN MILITARY VEHICLES LOST IN UKRAINE WAR:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=mhbSp_-w8CA">https://www.youtube.com/watch?v=mhbSp_-w8CA</a><br /><br />————————————<br />FAIR-USE COPYRIGHT DISCLAIMER<br /> * Copyright Disclaimer under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for criticism, commenting, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational, or personal use tips the balance in favor of fair use. <br />The Buzz does not own the rights to these videos and pictures. They have, in accordance with fair use, been repurposed with the intent of educating and inspiring others. However, if any content owners would like their images removed, please contact us by email at-thebuzz938@gmail.com.<br />————————————<br /><br />Sources: <a rel="nofollow" target="blank" href="https://www.politico.com/news/2022/03/22/ukraine-weapons-military-aid-00019104">https://www.politico.com/news/2022/03/22/ukraine-weapons-military-aid-00019104</a>{% endraw %}
