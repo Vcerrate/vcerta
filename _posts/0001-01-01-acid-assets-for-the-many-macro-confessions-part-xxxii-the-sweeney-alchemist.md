@@ -1,0 +1,15 @@
+---
+title: "ACID ASSETS FOR THE MANY"
+image: "https:\/\/i.ytimg.com\/vi\/1pVOLF_1lpY\/hqdefault.jpg"
+vid_id: "1pVOLF_1lpY"
+categories: "People-Blogs"
+tags: ["Hugh Hendry","Eclectica","hedge fund"]
+date: "2022-03-29T13:48:38+03:00"
+vid_date: "2022-03-25T23:44:31Z"
+duration: "PT1H23M16S"
+viewcount: "3307"
+likeCount: "181"
+dislikeCount: ""
+channel: "Hugh Hendry Official"
+---
+{% raw %}Macro Confessions Part XXXII, The Sweeney Alchemist (@writes_sweeney) is worried that the Acid Capitalist (@hendry_hugh), has been detained in Kyiv en route back to his Blessed isle. Recent images reveal a stark concrete bunker. Just where is he this week? He calls upon the aid and inspirational insight of the political economist @MkBlyt, The Tangerine Bishop of Dundee. It's an unforgettable, Scottish ménage-à-trois that will have you reaching for the closed caption service sooner rather than later.<br /><br />Men in finance have a tendency to talk to themselves, to be swallowed up in a grey, prohibitive universe to the exclusion of the rest of us. Not here...the bunker gets the spray can graffiti treatment, bass guitars are played loud and badly by the Acid Cap and with a swinging rhythm by The Bishop.<br /><br />What wanna hedgie can resist the exploration of money by those in the know. The contracts governing the external economic relationships of sovereign nations are revealed for all to see. Myths are exploded. Gold, Bretton Woods and the Eurodollar system are assessed and judged. The boys can see a fourth turning point emerging in this mysterious chess game between continents. But what will replace our dying monetary order? The question is pursued with vigour.<br /><br />Take red pills, get angry, get even...a market based system that seemed set to reset asset values to zero was effectively rescued by a put option, previous generations called it a cross of gold. A system of winners and losers. Where asset values have to be maintained to support the debt, a support system paid for by the serfdom of the working classes.<br /><br />Either divide our monolithic world into smaller pieces that aren't too big to fail or award asset values to the debtors, to those unlucky enough to be unable to afford assets. Rather than have the Fed accumulate $7 ton of useless laundromat tokens via QE, lets distribute economic tokens to the 99%. Thatcher did it with the public assets. All privatised. The public housing stock, returned to the home seekers. Awarding assets to the majority sparked the moribund economies of the 1970s back into life, could it work again?? The Bishop has a proposal...#GOLD #HEDGE FUNDS #DOLLAR #TRADING<br /><br />00:02:57 A SCOTTISH MENAGE À TROIS<br />00:07:40 BAD BASS - PUMPED UP KICKS<br />00:20:00 TRADE TRIBALISM 2 TRIBES GO TO WAR<br />00:27:29 ONLY 5 PEOPLE UNDERSTAND MONEY<br />00:39:10 GERMANY'S FAUSTIAN BARGAIN<br />00:47:30 THE 4TH MONETARY TURNING<br />00:53:36 A POLITICS BEREFT OF POWER<br />01:04:00 A CLASS SPECIFIC PUT OPTION<br />01:14:28 A BLINDING IDEOLOGY<br />01:16:24 CAN WE DO IT BETTER?<br />01:21:05 THE BISHOP PLAYS FUNKY GUITAR{% endraw %}
