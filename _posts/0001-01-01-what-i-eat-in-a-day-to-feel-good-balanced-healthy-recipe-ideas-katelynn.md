@@ -1,0 +1,15 @@
+---
+title: "WHAT I EAT IN A DAY TO FEEL GOOD (balanced + healthy recipe ideas) | Katelynn Nolan"
+image: "https:\/\/i.ytimg.com\/vi\/YiGj-8A2XDU\/hqdefault.jpg"
+vid_id: "YiGj-8A2XDU"
+categories: "People-Blogs"
+tags: ["health","healthjourney","healthandfitness"]
+date: "2022-03-29T05:03:59+03:00"
+vid_date: "2022-03-27T15:28:23Z"
+duration: "PT14M38S"
+viewcount: "7820"
+likeCount: "462"
+dislikeCount: ""
+channel: "Katelynn Nolan"
+---
+{% raw %}Morning!! Go to <a rel="nofollow" target="blank" href="https://go.magik.ly/ml/1gjbm/">https://go.magik.ly/ml/1gjbm/</a> &amp; use code RTRKATELYNN FOR 40% OFF 2 MONTHS OF AN 8 or 16 MONTH PLAN! Thank you Rent The Runway for sponsoring today's video! #RTRAmbassador @Rent the Runway  #ThanksItsRTR #MagicLinks @magiclinks<br />Links to my RTR picks: <br /><br />Staud Moon bag <a rel="nofollow" target="blank" href="https://go.magik.ly/ml/1gf0m">https://go.magik.ly/ml/1gf0m</a><br />Sunglasses <a rel="nofollow" target="blank" href="https://go.magik.ly/ml/1gf0o">https://go.magik.ly/ml/1gf0o</a><br />Levi's Shorts <a rel="nofollow" target="blank" href="https://go.magik.ly/ml/1gf0q">https://go.magik.ly/ml/1gf0q</a><br />Anine Bing Bra top <a rel="nofollow" target="blank" href="https://go.magik.ly/ml/1gemc">https://go.magik.ly/ml/1gemc</a><br /><br />Chili Recipe <a rel="nofollow" target="blank" href="https://www.instagram.com/p/B9VnV9wl2fA/?utm_source=ig_web_copy_link">https://www.instagram.com/p/B9VnV9wl2fA/?utm_source=ig_web_copy_link</a><br />Soup Recipe <a rel="nofollow" target="blank" href="https://www.instagram.com/reel/CaxqU9KA6KO/?utm_source=ig_web_copy_link">https://www.instagram.com/reel/CaxqU9KA6KO/?utm_source=ig_web_copy_link</a><br /><br />GO FOLLOW me on instagram! <a rel="nofollow" target="blank" href="https://instagram.com/katelynnnolann/">https://instagram.com/katelynnnolann/</a><br />SUBSCRIBE <a rel="nofollow" target="blank" href="https://youtube.com/c/katelynnnolan">https://youtube.com/c/katelynnnolan</a><br /><br />Instagram: @katelynnnolann <a rel="nofollow" target="blank" href="https://www.instagram.com/katelynnnolann/">https://www.instagram.com/katelynnnolann/</a><br />Foodie Instagram: @foodieegirll <a rel="nofollow" target="blank" href="https://www.instagram.com/foodieegirll/">https://www.instagram.com/foodieegirll/</a><br />TikTok: @katelynnnolann <a rel="nofollow" target="blank" href="https://www.tiktok.com/@katelynnnolann">https://www.tiktok.com/@katelynnnolann</a><br />Pinterest: @katelynnnolann - <a rel="nofollow" target="blank" href="https://www.pinterest.com/katelynnnolann/boards/">https://www.pinterest.com/katelynnnolann/boards/</a><br />Amazon Storefront: <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/influencer-aed7a57c?ref=cm_sw_em_r_inf_own_influencer-aed7a57c_dp_XZWu2o4GgRYn0">https://www.amazon.com/shop/influencer-aed7a57c?ref=cm_sw_em_r_inf_own_influencer-aed7a57c_dp_XZWu2o4GgRYn0</a> <br /><br />The links above are affiliate links, which means I do earn a commission if you chose to shop from them. Thank you! <br /><br />Business Inquires: <br />contact@tablerockmanagement.com{% endraw %}
