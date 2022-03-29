@@ -1,0 +1,15 @@
+---
+title: "Drew Learns How Planning Ahead is Vital to Staying Punctual"
+image: "https:\/\/i.ytimg.com\/vi\/nwtnu3pm2Rs\/hqdefault.jpg"
+vid_id: "nwtnu3pm2Rs"
+categories: "Entertainment"
+tags: ["Friends of the Show","drew barrymore","drew barrymore show"]
+date: "2022-03-30T01:41:51+03:00"
+vid_date: "2021-01-05T15:00:01Z"
+duration: "PT7M4S"
+viewcount: "3202"
+likeCount: "124"
+dislikeCount: ""
+channel: "The Drew Barrymore Show"
+---
+{% raw %}Time Management Expert Laura Vanderkam shares tips for keeping on schedule, like planning for meetings to run longer than expected and more.<br /><br />#DrewBarrymoreShow #LauraVanderkam<br /><br />Subscribe to The Drew Barrymore Show: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCWIj8e2_-uK1m886ADSYO6g?sub_confirmation=1">https://www.youtube.com/channel/UCWIj8e2_-uK1m886ADSYO6g?sub_confirmation=1</a><br /><br />Keep the party going with a visit to <a rel="nofollow" target="blank" href="https://thedrewbarrymoreshow.com">https://thedrewbarrymoreshow.com</a><br /><br />FOLLOW THE DREW BARRYMORE SHOW<br /><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/thedrewbarrymoreshow">https://www.instagram.com/thedrewbarrymoreshow</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/DrewBarrymoreTV">https://twitter.com/DrewBarrymoreTV</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/TheDrewBarrymoreShow">https://www.facebook.com/TheDrewBarrymoreShow</a><br />Pinterest: <a rel="nofollow" target="blank" href="https://www.pinterest.com/thedrewbarrymoreshow">https://www.pinterest.com/thedrewbarrymoreshow</a><br />Snapchat: <a rel="nofollow" target="blank" href="https://www.snapchat.com/add/drewbarrymoretv">https://www.snapchat.com/add/drewbarrymoretv</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@thedrewbarrymoreshow">https://www.tiktok.com/@thedrewbarrymoreshow</a><br /><br />FOLLOW DREW BARRYMORE<br /><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/drewbarrymoreshow">https://www.instagram.com/drewbarrymoreshow</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/DrewBarrymore">https://twitter.com/DrewBarrymore</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/DrewBarrymore">https://www.facebook.com/DrewBarrymore</a><br />Pinterest: <a rel="nofollow" target="blank" href="https://www.pinterest.com/drewbarrymoreshow">https://www.pinterest.com/drewbarrymoreshow</a><br /><br />The Drew Barrymore Show is daytime’s brightest destination for intelligent optimism and maximum fun, featuring everyone’s favorite actor, businessperson, mom and cultural icon, Drew Barrymore! From news to pop culture, human interest to comedy - you’ll discover it here with Drew along with the beauty and wisdom, as well as the heart and humor in life.<br /><br />Drew Learns How Planning Ahead is Vital to Staying Punctual<br /><a rel="nofollow" target="blank" href="http://www.youtube.com/thedrewbarrymoreshow">http://www.youtube.com/thedrewbarrymoreshow</a>{% endraw %}
