@@ -1,0 +1,15 @@
+---
+title: "PM Wants to Go to Ang Duong Hospital to Examine Eyes and Ears"
+image: "https:\/\/i.ytimg.com\/vi\/CbvPjcd9F9U\/hqdefault.jpg"
+vid_id: "CbvPjcd9F9U"
+categories: "Entertainment"
+tags: ["eac","eac news","news nbc"]
+date: "2022-03-29T08:24:37+03:00"
+vid_date: "2022-03-28T06:20:52Z"
+duration: "PT1M54S"
+viewcount: "55"
+likeCount: "2"
+dislikeCount: ""
+channel: "EAC News"
+---
+{% raw %}#EACNews #EACNewsខេមរភាសា #Breakingnews #HotNews #SamdechHunSen #CambodianPrimeMinister #Cambodia #HunSen #ហ៊ុនសែន<br /><br />PM Wants to Go to Ang Duong Hospital to Examine Eyes and Ears<br /><br />PHNOM PENH: Prime Minister Hun Sen has announced that he may choose Ang Duong Hospital to regularly check his eye and ear problems from during the war.<br /><br />Speaking at the inauguration ceremony of the Cambodia-Korea Friendship ENT (Ear, Nose and Throat) Building of Ang Duong Hospital on the morning of Monday, 28 March, Prime Minister Hun Sen recalled the history of his eye accident and the ear problems he has from the sound of gunfire during the Khmer Rouge, which he has lived with for more than 40 years now. He stated that in the future, he may come to Ang Duong Hospital in person for regular check-ups.<br /><br />The Cambodia-Korea Friendship ENT Building began construction in March 2020 and was completed two years later on 20 March 2022. The Republic of Korea not only assisted in the construction of this building, but also provided technical and scientific assistance to the hospital.<br /><br />While speaking at the ceremony, the Prime Minister asked the Korean side to transfer the technology that Korea has to the Cambodian medical team, while also urging the Cambodian medical team to take in the knowledge that the Korean medical team provided as much as possible.<br /><br />................................................................................................................<br />The official EAC YouTube Channel. EAC is the premier destination for in-depth analysis of daily and weekly roundups, insightful political commentary, and informed perspectives. <br /><br />Cambodia's only English-language news channel, featuring breaking news, business, as well as documentaries, features, and much more that bring you a deeper look at Cambodian issues and insight in an instant.<br /><br />Become EAC Subscriber and hit the bell to be the first to know our latest updates video channel. <br /><br />► Subscribe for more content (IT'S FREE):<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/eartcambodia">https://www.facebook.com/eartcambodia</a><br />Telegram: <a rel="nofollow" target="blank" href="https://t.me/eaclatest">https://t.me/eaclatest</a><br />Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/eac_news_kh">http://www.twitter.com/eac_news_kh</a><br />Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/eac_news">http://www.instagram.com/eac_news</a><br />Youtube: <a rel="nofollow" target="blank" href="https://www.youtube.com/EArtsCambodia">https://www.youtube.com/EArtsCambodia</a>{% endraw %}
