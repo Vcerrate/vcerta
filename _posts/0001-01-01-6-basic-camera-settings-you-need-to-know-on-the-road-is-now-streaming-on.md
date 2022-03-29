@@ -1,0 +1,15 @@
+---
+title: "6 Basic Camera Settings You Need To Know"
+image: "https:\/\/i.ytimg.com\/vi\/N7TORI5rb-c\/hqdefault.jpg"
+vid_id: "N7TORI5rb-c"
+categories: "Film-Animation"
+tags: ["In Depth Cine","Cinematography","Cinematographer"]
+date: "2022-03-30T02:29:03+03:00"
+vid_date: "2022-03-27T13:00:09Z"
+duration: "PT13M28S"
+viewcount: "16903"
+likeCount: "1323"
+dislikeCount: ""
+channel: "In Depth Cine"
+---
+{% raw %}ON THE ROAD is now streaming on MUBI in South Africa and many other countries.<br />Get a whole month of great cinema FREE: <a rel="nofollow" target="blank" href="https://mubi.com/indepthcine">https://mubi.com/indepthcine</a><br /><br />In this video I’ll break down 6 of the most important camera variables or settings that can be changed: EI, shutter angle, aperture, ND filters, white balance and frame rate.<br /><br />MERCH:<br />Official IDC Merch: <a rel="nofollow" target="blank" href="https://www.indepthcine.store/">https://www.indepthcine.store/</a><br /><br />SOCIALS:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/indepthcine/">https://www.instagram.com/indepthcine/</a><br />Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/indepthcine">https://www.patreon.com/indepthcine</a><br />IDC Website: <a rel="nofollow" target="blank" href="https://www.indepthcine.com/">https://www.indepthcine.com/</a><br />My Website: <a rel="nofollow" target="blank" href="https://www.graykotze.com/">https://www.graykotze.com/</a><br />Discord: <a rel="nofollow" target="blank" href="https://discord.gg/pxP8Yzc">https://discord.gg/pxP8Yzc</a><br /><br />GEAR:<br />YouTube Gear I Use: <a rel="nofollow" target="blank" href="https://kit.co/InDepthCine/youtube-gear">https://kit.co/InDepthCine/youtube-gear</a><br />Editing Software I Use: <a rel="nofollow" target="blank" href="http://bit.ly/2LZ60Lo">http://bit.ly/2LZ60Lo</a><br />Music I Use: <a rel="nofollow" target="blank" href="https://bit.ly/3E6o8c4">https://bit.ly/3E6o8c4</a> (CODE 'IDC10' for 10% off)<br />Stock Footage: <a rel="nofollow" target="blank" href="https://bit.ly/3jZHBC0">https://bit.ly/3jZHBC0</a><br />Cinematography Gear I Use: <a rel="nofollow" target="blank" href="https://kit.co/InDepthCine/cinematography-gear">https://kit.co/InDepthCine/cinematography-gear</a><br /><br />MUSIC: <a rel="nofollow" target="blank" href="https://bit.ly/3jZHBC0">https://bit.ly/3jZHBC0</a><br />Lavito - 'Young'<br />Joe Sunrise - 'Resonance'<br />Some Were At Sea - 'Compass'<br />Lavito - 'Vitus'<br />Port George - 'Linda'<br />Ottom - 'Hold On'<br /><br />0:00 Introduction<br />1:16 EI<br />3:01 Shutter Angle<br />4:25 Aperture<br />6:35 ND Filters<br />7:33 White Balance<br />9:21 Frame Rate<br />10:58 Conclusion<br /><br />DISCLAIMER: Some links in this description are affiliate links. If you purchase a product or service with these links I may receive a small commission without an additional charge to you.<br /><br />Thank you for supporting my channel so I can continue to provide you with free videos!{% endraw %}
