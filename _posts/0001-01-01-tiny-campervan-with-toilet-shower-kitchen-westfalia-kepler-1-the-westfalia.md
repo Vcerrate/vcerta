@@ -1,0 +1,15 @@
+---
+title: "Tiny campervan with toilet, shower + kitchen.  Westfalia Kepler 1"
+image: "https:\/\/i.ytimg.com\/vi\/t7faoCZIHo4\/hqdefault.jpg"
+vid_id: "t7faoCZIHo4"
+categories: "Autos-Vehicles"
+tags: ["tiny campervan","tiny campervan with toilet","ingenious tiny campervan"]
+date: "2022-03-30T02:35:10+03:00"
+vid_date: "2022-03-29T19:15:13Z"
+duration: "PT10M5S"
+viewcount: "1029"
+likeCount: "80"
+dislikeCount: ""
+channel: "Alan Heath"
+---
+{% raw %}The Westfalia Kepler 1 is a tiny campervan costing nearly EUR80k.  It may well be the 2022 version of the classic VW campervan although unlike the old ones this comes with a toilet and a shower - which is not bad for something which has the footprint of a car.  This tiny campervan is only 530cm long!<br /><br />Wheelbase  3.403 mm<br />Length  5.300 mm<br />Width  1.904 mm<br />Height  1.990 mm<br />Freshwater  50 l and 19 l Toilet<br />Wastewater  36 l<br />Gas bottle capacity  2,75 kg<br />Battery  100 Ah<br />Registered seats  4 optional 5 or 6<br />Berths  4<br />Bed in pop-up roof  1,90 x 1,20 m<br />Convertible bed  1,90 x 1,23 m<br />Left hand drive only.<br /><br />I live in a motorhome full time and travel around Europe in it.  I spend most of my time in Poland, Germany and Italy.  Vanlife is my life. <br /><br />In my YouTube channel, I present reviews of recreational vehicles.  Here you will find campervans and motorhomes from the cheapest camper vans to the most expensive luxury liners, from various companies including Hobby, Hymer, Carthago, Westfalia, Wingamm, La Strada, Frankia, Wavecamper, Maurer, Dreamer, Itineo, Rapido, Clever Vans, Pössl, Bürstner, Niesmann Bischoff, Action Mobil, Reisemobil Manufaktur, Robeta, Trigano, Challenger, EuraMobil, Karmann Mobil, Laika, Forster, Mobilvetta Design, Affinity, Globe Traveller, Benimar, Roller Team, Adria, Bocklet, Woelcke,Tourne, Megamobil, VW, Mercedes, CS, Renault, Ford, Fiat, Carado, Sunlight, Baileys, Chausson, Balcamp, Knaus, Weinsberg, Murvi, Bliss, Mitsubishi, Woelcke, Reisemobile Bürow, Holzmobil, Giotti Line, Florium, Fleurette, Ahorn, Westfalia, Space Camper, Orange Work, Concorde, Womondo, Protec, Auto Sleeper, Dethleffs, Ilusion, Gehocab, Malibu, Pilote, Wild Ax, Vantage, Bresler, Tom's Fahrzeugtechnik, Morelo, Swift, Carado and others.<br /><br />I do this by regularly attending trade events such as CMT Stuttgart, Abenteuer und Allrad, Caravan Salon Dusseldorf, Warsaw Caravan and Camping Show and sometimes others.<br /><br />I cover equipment, including 12v electrical equipment and talk a lot about lithium batteries.<br /><br />I also show some of the places I have visited in Europe in my own motorhome, as well as the places you can stay at!  I try to give as much coverage as I can to official campsites and free places which I use for overnighting.  Therefore you can find here the aire or stellplatz that you are possibly looking for.<br /><br />Please consider supporting me on Patreon : <a rel="nofollow" target="blank" href="https://www.patreon.com/alanheath">https://www.patreon.com/alanheath</a>{% endraw %}
