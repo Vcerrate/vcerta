@@ -1,0 +1,15 @@
+---
+title: "The I-35W Bridge Failure | A Short Documentary | Fascinating Horror"
+image: "https:\/\/i.ytimg.com\/vi\/QJIR8mecD4w\/hqdefault.jpg"
+vid_id: "QJIR8mecD4w"
+categories: "Education"
+tags: ["ASMR","ASMR Horror","Horror"]
+date: "2022-03-30T22:10:22+03:00"
+vid_date: "2022-03-29T09:15:00Z"
+duration: "PT10M59S"
+viewcount: "192870"
+likeCount: "12573"
+dislikeCount: ""
+channel: "Fascinating Horror"
+---
+{% raw %}On the 1st of August, 2007, the I-35 West Mississippi River Bridge, one of the busiest bridges in Minneapolis, collapsed. The bridge had been in use for 40 years, and during this time regular inspections had frequently raised concerns about its structural integrity. The collapse would, however, eventually be traced to a design flaw that none of these inspections had ever noted, and which had been in place for decades before the failure of the bridge.<br /><br />00:00 - Intro<br />00:43 - Background<br />02:59 - The I-35W Bridge Failure<br />07:07 - The Aftermath<br /><br />I tell the true stories behind some of history's greatest disasters... but without sensationalism or disturbing imagery. Fascinating Horror is all about in-depth research, respectful storytelling, and learning what we can from the mistakes of the past. You might be surprised to discover just how much of today's world is shaped by long-forgotten disasters from decades gone by.<br /><br />Music: &quot;Glass Pond&quot; by Public Memory | &quot;The Plan's Working&quot; by Cooper Cannell<br /><br />► Like, comment and subscribe to keep up with my latest videos<br />► Know of an incident I should cover? Get in touch: hello@fascinatinghorror.co.uk<br />► You can follow me on Twitter too: <a rel="nofollow" target="blank" href="https://twitter.com/TrueHorrorTales">https://twitter.com/TrueHorrorTales</a><br />► And if you really love what I do, you can support me on Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/fascinatinghorror">https://www.patreon.com/fascinatinghorror</a><br /><br />​​​​​​​#Documentary​​​​ #History​​​​​​​​​ #TrueStories​<br /><br />Sources:<br /><br />&quot;Collapse of I-35W Highway Bridge&quot; by the National Transportation Safety Board, published August 2007. Link: <a rel="nofollow" target="blank" href="https://www.ntsb.gov/investigations/AccidentReports/Reports/HAR0803.pdf.">https://www.ntsb.gov/investigations/AccidentReports/Reports/HAR0803.pdf.</a><br /><br />&quot;I-35W Bridge Collapse and Response&quot; by the US Fire Administration, published August 2007. Link: <a rel="nofollow" target="blank" href="https://www.usfa.fema.gov/downloads/pdf/publications/tr_166.pdf.">https://www.usfa.fema.gov/downloads/pdf/publications/tr_166.pdf.</a><br /><br />&quot;10 Years After Bridge Collapse, America Is Still Crumbling&quot; by David Schaper, published by NPR, August 2017. Link: <a rel="nofollow" target="blank" href="https://www.npr.org/2017/08/01/540669701/10-years-after-bridge-collapse-america-is-still-crumbling.">https://www.npr.org/2017/08/01/540669701/10-years-after-bridge-collapse-america-is-still-crumbling.</a>{% endraw %}
