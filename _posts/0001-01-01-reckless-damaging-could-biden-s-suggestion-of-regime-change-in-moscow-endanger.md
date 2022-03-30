@@ -1,0 +1,15 @@
+---
+title: "\"Reckless & Damaging\": Could Biden's Suggestion of Regime Change in Moscow Endanger Peace Talks?"
+image: "https:\/\/i.ytimg.com\/vi\/irgUJYMyxuw\/hqdefault.jpg"
+vid_id: "irgUJYMyxuw"
+categories: "News-Politics"
+tags: ["Amy Goodman","Breaking News","Democracy Now"]
+date: "2022-03-30T05:09:59+03:00"
+vid_date: "2022-03-28T14:32:48Z"
+duration: "PT19M26S"
+viewcount: "41482"
+likeCount: "896"
+dislikeCount: ""
+channel: "Democracy Now!"
+---
+{% raw %}Ukrainian President Volodymyr Zelensky said he is open to Ukraine becoming a neutral country but said such a decision could only be made by a nationwide referendum after Russian troops withdraw. This comes as the White House quickly tried to walk back President Biden's remarks made during a speech on Saturday in Poland during which he appeared to endorse regime change in Moscow. We get responses from Democratic Congressmember Ro Khanna and Quincy Institute President Andrew Bacevich. &quot;The responsibility to negotiate with the Russians, to come to a settlement that is agreeable to Ukrainians, that belongs to President Zelensky,&quot; says Bacevich, who called Biden's comments &quot;reckless and damaging.&quot; Khanna adds that while &quot;the American president does have a leadership role&quot; in resolving the crisis, Biden's remarks were not representative of U.S. policy, saying the president &quot;was speaking from the heart.&quot; <br /><br />#DemocracyNow<br /><br /><br /><br />Democracy Now! is an independent global news hour that airs on nearly 1,400 TV and radio stations Monday through Friday. Watch our livestream 8-9AM ET: <a rel="nofollow" target="blank" href="https://democracynow.org">https://democracynow.org</a><br /><br /><br /><br />Please consider supporting independent media by making a donation to Democracy Now! today: <a rel="nofollow" target="blank" href="https://democracynow.org/donate">https://democracynow.org/donate</a><br /><br /><br /><br />FOLLOW DEMOCRACY NOW! ONLINE:<br /><br />YouTube: <a rel="nofollow" target="blank" href="http://youtube.com/democracynow">http://youtube.com/democracynow</a> <br /><br />Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/democracynow">http://facebook.com/democracynow</a> <br /><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/democracynow">https://twitter.com/democracynow</a><br /><br />Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/democracynow">http://instagram.com/democracynow</a><br /><br />SoundCloud: <a rel="nofollow" target="blank" href="http://soundcloud.com/democracynow">http://soundcloud.com/democracynow</a> <br /><br />iTunes: <a rel="nofollow" target="blank" href="https://itunes.apple.com/podcast/democracy-now!-audio/id73802554">https://itunes.apple.com/podcast/democracy-now!-audio/id73802554</a> <br /><br />Daily Email Digest: <a rel="nofollow" target="blank" href="https://democracynow.org/subscribe">https://democracynow.org/subscribe</a>{% endraw %}
