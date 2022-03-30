@@ -1,0 +1,15 @@
+---
+title: "THE GREATEST MAG! (Football Fusion 2 ROBLOX)"
+image: "https:\/\/i.ytimg.com\/vi\/URuMePqtrLw\/hqdefault.jpg"
+vid_id: "URuMePqtrLw"
+categories: "Gaming"
+tags: ["roblox","flamingo","daily denis"]
+date: "2022-03-30T19:36:39+03:00"
+vid_date: "2022-03-29T22:00:11Z"
+duration: "PT9M37S"
+viewcount: "1098"
+likeCount: "47"
+dislikeCount: ""
+channel: "SaucySmith"
+---
+{% raw %}➤Twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/corruptspark">https://www.twitch.tv/corruptspark</a><br />➤Discord Server: <a rel="nofollow" target="blank" href="https://discord.gg/hzSzcZJaRk">https://discord.gg/hzSzcZJaRk</a><br />➤Roblox Group: <a rel="nofollow" target="blank" href="https://www.roblox.com/groups/10286422/SaucySmiths-Crew#!/about">https://www.roblox.com/groups/10286422/SaucySmiths-Crew#!/about</a><br /><br />Play Football Fusion 2: <a rel="nofollow" target="blank" href="https://www.roblox.com/games/8204899140/Football-Fusion-2">https://www.roblox.com/games/8204899140/Football-Fusion-2</a><br /><br />Thank you for watching, SUBSCRIBE If you're new! ❤️ <br />LEAVE A 👍 IF YOU ENJOYED!<br /><br />Music:<br /><a rel="nofollow" target="blank" href="https://youtu.be/eSm4_GDmtlw">https://youtu.be/eSm4_GDmtlw</a><br /><a rel="nofollow" target="blank" href="https://incompetech.com/music/royalty-free/music.html">https://incompetech.com/music/royalty-free/music.html</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCOmy8wuTpC95lefU5d1dt2Q">https://www.youtube.com/channel/UCOmy8wuTpC95lefU5d1dt2Q</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/CHUKImusic">https://www.youtube.com/user/CHUKImusic</a><br /><br />I don't take any rights over any of this music provided nor do I intend to infringe on a copyrighted claim<br /><br />What is ROBLOX? ROBLOX is an online virtual playground and workshop, where kids of all ages can safely interact, create, have fun, and learn. It’s unique in that practically everything on ROBLOX is designed and constructed by members of the community. Each player starts by choosing an avatar and giving it an identity. They can then explore ROBLOX — interacting with others by chatting, playing games, or collaborating on creative projects. Each player is also given their own piece of undeveloped real estate along with a virtual toolbox with which to design and build anything — be it a navigable skyscraper, a working helicopter, a giant pinball machine, a multiplayer “Capture the Flag” game or some other, yet­to­be­dreamed-up creation. There is no cost for this first plot of virtual land. By participating and by building cool stuff, ROBLOX members can earn specialty badges as well as ROBLOX dollars (“ROBUX”). In turn, they can shop the online catalog to purchase avatar clothing and accessories as well as premium building materials, interactive components, and working mechanisms.<br /><br />#FootballFusion #Roblox #SaucySmith #TheDimer #DimerDillon #Football #FF #JuicyJohn #DomDimez #Number1YankeeFan #DimeMeQ #MMG{% endraw %}
