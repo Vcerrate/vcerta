@@ -1,0 +1,15 @@
+---
+title: "ELDEN RING - General Radahn Lore & Story Explained"
+image: "https:\/\/i.ytimg.com\/vi\/W5c1sdJcTEk\/hqdefault.jpg"
+vid_id: "W5c1sdJcTEk"
+categories: "Gaming"
+tags: ["radahn","radahn lore","radahn elden ring lore"]
+date: "2022-03-30T08:13:38+03:00"
+vid_date: "2022-03-27T19:18:56Z"
+duration: "PT12M41S"
+viewcount: "12601"
+likeCount: "711"
+dislikeCount: ""
+channel: "Dan Allen Gaming"
+---
+{% raw %}In this video, I explore the lore and story of Starscourge Radahn. Starscourge Radahn is a Boss in Elden Ring. Starscourge Radahn is a massive and destructive creature located in Caelid, General Radahn is cursed ever to wander. Eaten from the inside, by Malenia's scarlet rot, his Wits are long gone. Now he gathers the corpses of former friends and foes alike, gorging on them, like a dog.<br /><br />Closer Look Clips thanks to BonfireVN: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/shinymous">https://www.youtube.com/c/shinymous</a><br />Some Boss Fights Clips thanks to: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/Shirrako">https://www.youtube.com/c/Shirrako</a><br />Thumbnail Art by: <a rel="nofollow" target="blank" href="https://www.facebook.com/JPEREZART">https://www.facebook.com/JPEREZART</a><br /><br />🔴 SUBSCRIBE: <a rel="nofollow" target="blank" href="https://www.youtube.com/DanAllenGaming">https://www.youtube.com/DanAllenGaming</a> <br /><br />💪 BECOME A MEMBER: <a rel="nofollow" target="blank" href="https://www.youtube.com/DanAllenGaming/join">https://www.youtube.com/DanAllenGaming/join</a><br /><br />👉 JOIN THE DISCORD: <a rel="nofollow" target="blank" href="https://discord.gg/Xe7RvZz8GP">https://discord.gg/Xe7RvZz8GP</a><br /><br />🔥 MY OTHER CHANNELS:<br />🎥 DanAllenGaming Two: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/DanAllenGamingTwo">https://www.youtube.com/c/DanAllenGamingTwo</a><br />🎥 More DanAllenGaming: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/MoreDanAllenGaming">https://www.youtube.com/c/MoreDanAllenGaming</a><br />🎥 DanAllenGaming Clips: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/DanAllenGamingClips">https://www.youtube.com/c/DanAllenGamingClips</a><br /><br />▶️ GET CONNECTED:<br />📷 Instagram | <a rel="nofollow" target="blank" href="https://www.instagram.com/DanAllenGaming">https://www.instagram.com/DanAllenGaming</a><br />🐦Twitter: <a rel="nofollow" target="blank" href="https://www.twitter.com/DanAllenGaming">https://www.twitter.com/DanAllenGaming</a><br />📘 Facebook | <a rel="nofollow" target="blank" href="https://www.facebook.com/DanAllenGaming">https://www.facebook.com/DanAllenGaming</a><br />📱 TikTok | <a rel="nofollow" target="blank" href="https://www.tiktok.com/@danallengaming">https://www.tiktok.com/@danallengaming</a><br /><br />THANKS FOR WATCHING LEGENDS!<br />-----------------------------------------------------------------------------------------------------------<br />#EldenRing{% endraw %}
