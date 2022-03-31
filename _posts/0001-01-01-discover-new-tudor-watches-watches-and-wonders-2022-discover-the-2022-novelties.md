@@ -1,0 +1,15 @@
+---
+title: "Discover new TUDOR watches - Watches and Wonders 2022"
+image: "https:\/\/i.ytimg.com\/vi\/eW-S4mBqDEo\/hqdefault.jpg"
+vid_id: "eW-S4mBqDEo"
+categories: "Howto-Style"
+tags: ["TUDOR","Tudorwatch","watch"]
+date: "2022-03-31T09:00:22+03:00"
+vid_date: "2022-03-30T06:29:34Z"
+duration: "PT3M4S"
+viewcount: "15593"
+likeCount: "273"
+dislikeCount: ""
+channel: "TudorWatch"
+---
+{% raw %}Discover the 2022 novelties:<br />TUDOR Black Bay Pro: <a rel="nofollow" target="blank" href="https://www.tudorwatch.com/watch-family/black-bay-pro?social_cid=org_social_yt">https://www.tudorwatch.com/watch-family/black-bay-pro?social_cid=org_social_yt</a><br />TUDOR Black Bay GMT S&amp;G: <a rel="nofollow" target="blank" href="https://www.tudorwatch.com/watch-family/black-bay-gmt?social_cid=org_social_yt">https://www.tudorwatch.com/watch-family/black-bay-gmt?social_cid=org_social_yt</a><br />TUDOR Black Black Bay Chrono S&amp;G: <a rel="nofollow" target="blank" href="https://www.tudorwatch.com/watch-family/black-bay-chrono?social_cid=org_social_yt">https://www.tudorwatch.com/watch-family/black-bay-chrono?social_cid=org_social_yt</a><br />TUDOR Royal: <a rel="nofollow" target="blank" href="https://www.tudorwatch.com/watch-family/tudor-royal?social_cid=org_social_yt">https://www.tudorwatch.com/watch-family/tudor-royal?social_cid=org_social_yt</a><br />TUDOR Black Bay 31, 36, 39, 41 S&amp;G: <a rel="nofollow" target="blank" href="https://www.tudorwatch.com/watch-family/black-bay-31-36-39-41-steel-and-gold?social_cid=org_social_yt">https://www.tudorwatch.com/watch-family/black-bay-31-36-39-41-steel-and-gold?social_cid=org_social_yt</a><br /><br />Discover the new TUDOR watches on : <a rel="nofollow" target="blank" href="https://tudor.watch/new-watches-2022-yt">https://tudor.watch/new-watches-2022-yt</a><br /><br />TUDOR is a Swiss watchmaking brand that offers mechanical watches with sophisticated style, proven reliability and an unparalleled relationship between quality and price.The origins of TUDOR date back to 1926, when “The Tudor” was first registered as a brand on behalf of Hans Wilsdorf, founder of Rolex. In 1946, he founded the Montres Tudor SA company to produce watches that respect the traditional Rolex philosophy of quality at a more accessible price point. Throughout their history, TUDOR watches have been chosen by the boldest adventurers on land, underwater and on ice, all over the world.<br /><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/tudorwatch/">https://www.instagram.com/tudorwatch/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/tudorwatch/​">https://www.facebook.com/tudorwatch/​</a><br />Pinterest: <a rel="nofollow" target="blank" href="https://www.pinterest.com/tudorwatch/">https://www.pinterest.com/tudorwatch/</a><br />LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/company/tudor-watch">https://www.linkedin.com/company/tudor-watch</a>{% endraw %}
