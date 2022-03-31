@@ -1,0 +1,15 @@
+---
+title: "Ray | Every Great Musical Performance—\"Hit the Road Jack,\" \"Mess Around,\" \"What'd I Say\" and more!"
+image: "https:\/\/i.ytimg.com\/vi\/kWxPsUVBvII\/hqdefault.jpg"
+vid_id: "kWxPsUVBvII"
+categories: "Entertainment"
+tags: ["universal","universal movies","universal studios"]
+date: "2022-03-31T12:49:27+03:00"
+vid_date: "2020-01-18T16:00:06Z"
+duration: "PT10M13S"
+viewcount: "5264800"
+likeCount: "68913"
+dislikeCount: ""
+channel: "Universal Pictures"
+---
+{% raw %}In his Academy Award winning performance, Jamie Foxx captured the legendary stage presence and musical power of Ray Charles. Here is a mashup of every musical moment from Ray, including many of Ray Charles's most iconic hits. #RayCharles #JamieFoxx #Oscars<br /><br />Buy/Rent Ray:<br />Amazon: <a rel="nofollow" target="blank" href="https://www.amazon.com/Ray-Jamie-Foxx/dp/B001NMLMAQ/">https://www.amazon.com/Ray-Jamie-Foxx/dp/B001NMLMAQ/</a><br />iTunes: <a rel="nofollow" target="blank" href="https://itunes.apple.com/us/movie/ray/id293106677">https://itunes.apple.com/us/movie/ray/id293106677</a><br />YouTube Movies: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=DS1BZNKbgMw">https://www.youtube.com/watch?v=DS1BZNKbgMw</a><br />Google Play: <a rel="nofollow" target="blank" href="https://play.google.com/store/movies/details/Ray?id=DS1BZNKbgMw&amp;hl=en_US">https://play.google.com/store/movies/details/Ray?id=DS1BZNKbgMw&amp;hl=en_US</a><br />Fandango Now: <a rel="nofollow" target="blank" href="https://www.fandangonow.com/details/movie/ray-2004/1MV00acb86838acbbb02121d910bf4bd4a3">https://www.fandangonow.com/details/movie/ray-2004/1MV00acb86838acbbb02121d910bf4bd4a3</a><br />VUDU: <a rel="nofollow" target="blank" href="https://www.vudu.com/content/movies/details/Ray/5854">https://www.vudu.com/content/movies/details/Ray/5854</a><br />Universal Pictures Home Entertainment: <a rel="nofollow" target="blank" href="https://www.uphe.com/movies/ray">https://www.uphe.com/movies/ray</a><br /><br />Synopsis:<br />Jamie Foxx stars as the one-of-a-kind innovator of soul who beat impossible odds to become a music legend. Ray is the triumphant and remarkable story of one of America's true musical geniuses, Ray Charles. From his humble beginnings in the South through his meteoric rise to the top of American music charts, Ray's inspirational journey is a tale of hope, redemption and the power of the human spirit. &quot;Ray is Electrifying&quot; hails Peter Travers of Rolling Stone. Witness the incredible true story of a musician who fought harder and went further than anyone could imagine.<br /><br />© 2004 Universal Studios. All Rights Reserved.<br />Cast: Jamie Foxx, Regina King, Kerry Washington, Clifton Powell, Harry Lennix, Bokeem Woodbine, Aunjanue Ellis, Sharon Warren, C.J. Sanders, Curtis Armstrong, Richard Schiff, Larenz Tate, Terrence Howard, David Krumholtz<br />Produced By: Taylor Hackford, Stuart Benjamin, Howard Baldwin, Karen Elise Baldwin<br />Directed By: Taylor Hackford{% endraw %}
