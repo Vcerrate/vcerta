@@ -1,0 +1,15 @@
+---
+title: "Clinton Kane - CHICKEN TENDIES (Lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/6FVFZ5VN9dQ\/hqdefault.jpg"
+vid_id: "6FVFZ5VN9dQ"
+categories: "Music"
+tags: ["chicken tendies","lyrics chicken tendies","chicken tendies lyrics"]
+date: "2022-04-01T13:26:17+03:00"
+vid_date: "2021-02-19T18:59:33Z"
+duration: "PT3M18S"
+viewcount: "61848"
+likeCount: "995"
+dislikeCount: ""
+channel: "Alternate"
+---
+{% raw %}✘ Clinton Kane - CHICKEN TENDIES (Lyrics) TikTok<br />I hope he treats you better than I ever could<br />👍 Leave some love with a like!<br />🔔 Click the bell to stay updated.<br /><br />✘ Stream/DL:<br /><a rel="nofollow" target="blank" href="http://ClintonKane.lnk.to/ChickenTendies​">http://ClintonKane.lnk.to/ChickenTendies​</a> <br /><br />✘ Follow :<br />Instagram - <a rel="nofollow" target="blank" href="https://www.instagram.com/clintonkane​">https://www.instagram.com/clintonkane​</a><br />Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/ClintonKaneOfficial">https://www.facebook.com/ClintonKaneOfficial</a><br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/clintonkane​">https://twitter.com/clintonkane​</a><br />TikTok - <a rel="nofollow" target="blank" href="https://www.tiktok.com/@clintonkane">https://www.tiktok.com/@clintonkane</a><br /><br />🎤 Lyrics:<br />I saw someone who looks just like you<br />In the back seat, with her hand out the sunroof<br />I swear it was the dress that I gave you<br />And I wonder, is your favorite color still blue?<br /> <br />You're full of love and wild and free<br />Chasing every dream and possibility<br />You're more than I could ever be...<br /> <br />I hope he treats you better than I ever could<br />Cuz you deserve the world times two, and our simple Sunday afternoons<br />I hope he's home for you, even though I had to lose you<br />You define who fills your heart, even if I'm not the one you choose<br /> <br />Wooaaaah, Wooaaahh<br /> <br />I thought I caught a glimpse of me and you<br />In our kitchen, where I cooked your favorite food<br />And if I'm being honest, I was a fool<br />So say the word, and I'll come running back to you<br /> <br />You're full of love and wild and free<br />Chasing every dream and possibility<br />You're more than I could ever be...<br /> <br />I hope he treats you better than I ever could<br />Cuz you deserve the world times two, and our simple Sunday afternoons<br />I hope he's home for you, even though I had to lose you<br />For you to find who fills your heart, even if I'm not the one you choose<br /> <br />Ooohhhhh, Ooohhhhh<br />Ooohhhhh, Ooohhhhh<br /> <br />I hope he treats you better than I ever could<br />Cuz you deserve the world times two, and our simple Sunday afternoons<br />I hope he's home for you, even though I had to lose you<br />For you to find who fills your heart, even if I'm not the one you choose<br /> <br />Wooaaaah, Wooaaahh<br />Wooaaaah, Wooaaahh<br /> <br />and I hope he's home for you<br />and our Sunday afternoons<br /><br />tags:<br />#clintonkane #chickentendies #lyrics{% endraw %}
