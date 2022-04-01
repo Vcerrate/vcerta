@@ -1,0 +1,15 @@
+---
+title: "The Dark Side of Minimalist Design: Updating Dieter Rams’ Ten Principles"
+image: "https:\/\/i.ytimg.com\/vi\/cMDGwj1QlSU\/hqdefault.jpg"
+vid_id: "cMDGwj1QlSU"
+categories: "Education"
+tags: ["industrial design","product design","dieter rams"]
+date: "2022-04-02T01:18:13+03:00"
+vid_date: "2022-03-19T15:00:18Z"
+duration: "PT18M3S"
+viewcount: "119871"
+likeCount: "5637"
+dislikeCount: ""
+channel: "Design Theory"
+---
+{% raw %}Dieter Rams is one of the most influential industrial designers to ever live. Even if you don’t know who he is, you probably use products that were inspired by his thinking everyday. He wrote the Ten Principles for Good Design, and they’re basically like the design bible. Designers must never question them. So that’s exactly what we’re going to do now.<br /><br />Learn the process to create beautiful industrial design. Become an expert in design language, visual storytelling, and land your dream industrial design job. Enroll in my online industrial design course, Form Fundamentals. <a rel="nofollow" target="blank" href="https://bit.ly/335vsqO">https://bit.ly/335vsqO</a> .<br /><br />Join my mailing list to get notified of special announcements: <a rel="nofollow" target="blank" href="https://www.studioello.com/mail">https://www.studioello.com/mail</a><br />Join my discord channel and talk to me: <a rel="nofollow" target="blank" href="https://discord.gg/hFw55nh">https://discord.gg/hFw55nh</a><br />Follow me on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/mauriellodesign">https://www.instagram.com/mauriellodesign</a><br />Follow me on LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/in/mauriellojohn">https://www.linkedin.com/in/mauriellojohn</a><br />Check out my Behance: <a rel="nofollow" target="blank" href="https://www.behance.net/mauriellodesign">https://www.behance.net/mauriellodesign</a><br /><br />Want to learn more about my work? Check out my portfolio: <a rel="nofollow" target="blank" href="https://www.studioello.com">https://www.studioello.com</a><br />Want to work with me on a design project? Contact me here: <a rel="nofollow" target="blank" href="https://www.studioello.com/about-1">https://www.studioello.com/about-1</a><br /><br />0:00 Intro<br />1:00 Do These Principles Work?<br />1:43 Good Design is Honest??<br />5:07 Good Design Is As Little Design As Possible??<br />7:39 The Dark Side of Minimalism<br />8:31 Good Design is Environmentally Friendly<br />8:49 Good Design is Thorough??<br />10:47 Good Design is Long Lasting??<br />12:44 Good Design is Unobtrusive??<br />14:15 Good Design is Understandable<br />14:48 Good Design is Useful??<br />16:10 Good Design is Innovative??<br />16:51 Vitsoe and Dieter Rams<br />17:27 The Only Principles You Need<br /><br />All content written and edited by John Mauriello. John Mauriello has been working professionally as an industrial designer since 2010. He is an Adjunct Professor of industrial design at California College of the Arts.<br /><br />Product Design Industrial Design Ten Principles for Good Design Minimalism Minimalist Dieter Rams{% endraw %}
