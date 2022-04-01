@@ -1,0 +1,15 @@
+---
+title: "How to quit Smoking ? (10 Tips in Hindi)"
+image: "https:\/\/i.ytimg.com\/vi\/WaK290b9bc0\/hqdefault.jpg"
+vid_id: "WaK290b9bc0"
+categories: "Howto-Style"
+tags: ["quit smoking tips","quit smoking tips in hindi","how to quit smoking"]
+date: "2022-04-01T06:15:38+03:00"
+vid_date: "2015-07-16T13:10:47Z"
+duration: "PT11M13S"
+viewcount: "1708741"
+likeCount: "56805"
+dislikeCount: ""
+channel: "Him-eesh Madaan"
+---
+{% raw %}Watch this video to know interesting and practical tips to quit smoking. This video will help you to get rid from smoking addiction and lead a better lifestyle. These 10 tips in hindi to quit smoking will enable you to take your responsibility and march towards De-addiction. If you are looking for quit smoking tips in hindi, you have landed at the right youtube video for leaving habit of smoking. In this video on how to quit smoking in Hindi, I have given 10 tips which will help you to get rid of smoking habit. This stop smoking video starts with small introduction about the smoking habit followed by the fact behind nicotine addiction. How cigarettes lead to adding nicotine to brain which leads to release of endorphins like dopamine. Dopamine makes us feel relaxed and we start smoking frequently and finally in turns into a smoking addiction. Now let us focus on the ten tips which have been discussed in this video on how to leave smoking. First tip of this stop smoking motivation video is to set a target date by which you will be a non smoker. Second tip of this quit smoking video in hindi is to take support of your friends in leaving this bad habit. Third tip in this personality improvement video is to challenge yourself to face the craving with super strong determination for few days and gradually you will be able to control your craving. Fourth tip amongst quit smoking tips in hindi is to make a suitable environment by clearing your room off ash trays, cigarette packs etc. Fifth tip in this stop smoking video is to deal with hand to mouth motion by keeping healthy options like dry fruits or water bottle with you, Mind power plays a vital role here. Sixth tip in this no smoking hindi video is to avoid any trigger moments which can lead you to resume your smoking habit. Seventh tip in this video on how to stop smoking is to form new relationships with things like gym, salads, fruits, walking or with old friends. Eight tip in this inspirational no smoking video is to stop making excuses in life. And ninth tip in this no smoking movie is to focus on the benefits. Last tip in this video on how to quit smoking in hindi is to not to give up. I hope this video will benefit you and people around you. If you liked it, do share it with others as well so that we can create a positive change in the world. Keep visiting my channel for more such motivational and inspirational videos, personality development videos, life changing positive thinking videos etc. Till then, stay blessed, stay inspired..!<br /><br />love,<br />Himeesh Madaan<br />Motivational Speaker in India{% endraw %}
