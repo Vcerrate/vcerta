@@ -1,0 +1,15 @@
+---
+title: "Wanting To Leave The Planet. A Powerful Message"
+image: "https:\/\/i.ytimg.com\/vi\/vlI3HjeEYHA\/hqdefault.jpg"
+vid_id: "vlI3HjeEYHA"
+categories: "Entertainment"
+tags: ["#lorieladd #Consciousness #Awakening"]
+date: "2022-04-02T05:35:08+03:00"
+vid_date: "2022-04-01T17:01:31Z"
+duration: "PT15M5S"
+viewcount: "9697"
+likeCount: "1352"
+dislikeCount: ""
+channel: "Lorie Ladd"
+---
+{% raw %}I wanted to share this powerful message from my most recent Q&amp;A in my Patreon Community. <br /><br />I felt the need to share it as it gave a different perspective for anyone really feeling they don't want to be here any longer. <br /><br />If you would like to join our community the link is below. We would love to have you!<br /><br />Join Our ONLINE COMMUNITY on Patreon. LINK BELOW <br />➡ <a rel="nofollow" target="blank" href="https://www.patreon.com/lorieladd">https://www.patreon.com/lorieladd</a><br /><br />Join RESET 2022: A Quantum Course In Navigating 2022<br />➡ <a rel="nofollow" target="blank" href="https://lorie-ladd-77ef.mykajabi.com/reset-2022">https://lorie-ladd-77ef.mykajabi.com/reset-2022</a><br /><br />Masterclass: SOVEREIGNTY | $29 <br />➡ <a rel="nofollow" target="blank" href="https://lorie-ladd-77ef.mykajabi.com/sovereignty-masterclass">https://lorie-ladd-77ef.mykajabi.com/sovereignty-masterclass</a><br /><br />Masterclass: Embody Your HigherSelf | $29<br />➡ <a rel="nofollow" target="blank" href="https://www.lorieladd.com/webinars-masterclasses">https://www.lorieladd.com/webinars-masterclasses</a><br /><br />Guided Meditation With  Mary Magdelene | $11<br />➡ <a rel="nofollow" target="blank" href="https://www.lorieladd.com/guided-meditations">https://www.lorieladd.com/guided-meditations</a><br /><br />Masterclass: Embody Abundance | $39 <br />➡ <a rel="nofollow" target="blank" href="https://www.lorieladd.com/webinars-masterclasses">https://www.lorieladd.com/webinars-masterclasses</a><br /><br />Introduction to Channeling | 4 Hour Webinar | $39 <br />➡ <a rel="nofollow" target="blank" href="https://www.lorieladd.com/webinars-masterclasses">https://www.lorieladd.com/webinars-masterclasses</a><br /><br />Masterclass: Learn to Astral Travel | $11 <br />➡ <a rel="nofollow" target="blank" href="https://www.lorieladd.com/webinars-masterclasses">https://www.lorieladd.com/webinars-masterclasses</a><br /><br />Donations: <br />➡ <a rel="nofollow" target="blank" href="https://www.paypal.com/cgi-bin/webscr...">https://www.paypal.com/cgi-bin/webscr...</a><br /><br />Instagram: @lorie_ladd  <a rel="nofollow" target="blank" href="https://www.instagram.com/lorie_ladd/">https://www.instagram.com/lorie_ladd/</a><br />Facebook- <a rel="nofollow" target="blank" href="https://www.facebook.com/lorie.ladd">https://www.facebook.com/lorie.ladd</a><br />Patreon -<a rel="nofollow" target="blank" href="https://www.patreon.com/lorieladd">https://www.patreon.com/lorieladd</a><br />Website - <a rel="nofollow" target="blank" href="http://lorieladd.com">http://lorieladd.com</a><br /><br />#lorieladd #Consciousness #awakening{% endraw %}
