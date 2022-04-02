@@ -1,0 +1,15 @@
+---
+title: "Stop - 1 Prill 2022 (Emisioni i plotë)"
+image: "https:\/\/i.ytimg.com\/vi\/SfVuBpjj3Hw\/hqdefault.jpg"
+vid_id: "SfVuBpjj3Hw"
+categories: "News-Politics"
+tags: ["albania","denonco","emision satirik"]
+date: "2022-04-02T20:36:13+03:00"
+vid_date: "2022-04-01T18:55:05Z"
+duration: "PT29M12S"
+viewcount: "13278"
+likeCount: "60"
+dislikeCount: ""
+channel: "RTV KLAN"
+---
+{% raw %}Intervistat/ buke, gaz e pras, cfare duam me shume nga jeta?!<br /><br />Nesër është dita e parë e muajit të Ramazanit, ndaj “Stop” uron të gjithë besimtarët myslimanë për këtë sakrificë të përvitshme. Rritja e cmimeve për të gjitha produktet është bërë shumë e ndjeshme javët e fundit, ndaj ne u jemi drejtuar qytetarëve me sloganin “bukë, gaz e pras, cfarë mund të duam më shumë. Përgjigjet e të intervistuarve janë plot humor.<br /><br />#stoptvklan #stop1prill #intervistat #Ramazani #voxpop #SaimirKodra #GentianZenelaj<br /> <br />Fier/ Arrestohet nga policia, pas lirimit nuk i japin telefonat e sekuestruar.<br /><br />Saimir Sali tregon, se është arrestuar në vitin 2019 për lëndë narkotike dhe është liruar në 27 shkurt 2022. Në momentin e arrestimit i janë sekuestruar dy telefonë. Në vendimin e gjykatës dhe urdhrin e prokurorisë thuhet, se sendet i kthehen të pandehurit. Ka shkuar me dhjetra herë në prokurori dhe e drejtojnë në Drejtorinë Vendore të policisë në Fier. Saimiri nuk po mundet dot t’i gjejë telefonat, ndaj kërkon ndihmën e Stop-it. <br /><br />#stoptvklan #stop1prill #denoncimi #PoliciFier #sendetpersonale #denimi #SaimirKodra #GentianZenelaj<br /> <br />Apeli/ 9 vjecari nga Gjakova rrezikon jeten, duhet nderhyrje e specializuar.<br /><br />Jeta e Trojanit 9 vjeç nga Gjakova është në rrezik. Babai i tij tregon, se është në luftë me kohën, për ta mbajtur të birin në jetë.Infeksioni sepsta i ka prekur çdo organ të brendshëm. Çdo moment, që kalon është shumë shumë i cmuar për jetën e vogëlushit.Për t'ia dalë Trojani ka nevojë për ndihmën e të gjithëve, pasi për ndërhyrjen e tij nevojitet një shumë prej 20.000 eurosh. <br /><br />#stoptvklan #stop1prill #apeli #humanizem #fundjavendryshe #Gjakova #SaimirKodra #GentianZenelaj<br /><br />Stop Tv Klan | Një format satiro-investigativ nga Saimir Kodra &amp; Gentian Zenelaj.<br /><br />SUBSCRIBE to “RTV KLAN” on YouTube for more videos!<br /><br />Për më shumë informacione vizitoni faqen tonë web <a rel="nofollow" target="blank" href="https://tvklan.al/">https://tvklan.al/</a><br />Videot e fundit nga Tv Klan i gjeni në faqen <a rel="nofollow" target="blank" href="https://tvklan.al/video/">https://tvklan.al/video/</a><br />Follow Tvklan on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/tvklan/">https://www.facebook.com/tvklan/</a><br />Follow Tvklan on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/rtvklan/">https://www.instagram.com/rtvklan/</a><br />Programet e Tv Klan mund t’i ndiqni edhe në faqen <a rel="nofollow" target="blank" href="https://tvklan.al/programe/">https://tvklan.al/programe/</a>{% endraw %}
