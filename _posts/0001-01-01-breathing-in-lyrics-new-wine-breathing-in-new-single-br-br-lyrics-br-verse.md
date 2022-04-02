@@ -1,0 +1,15 @@
+---
+title: "Breathing In - Lyrics | New Wine"
+image: "https:\/\/i.ytimg.com\/vi\/NPdZNirdN5c\/hqdefault.jpg"
+vid_id: "NPdZNirdN5c"
+categories: "Music"
+tags: ["Guillermo Maldonado","King Jesus Ministry","El Rey Jesus"]
+date: "2022-04-02T03:51:09+03:00"
+vid_date: "2022-02-11T05:00:16Z"
+duration: "PT7M14S"
+viewcount: "21462"
+likeCount: "743"
+dislikeCount: ""
+channel: "New Wine"
+---
+{% raw %}Breathing In - New Single <br /><br />Lyrics: <br />VERSE <br />You planted a garden <br />With the intention <br />Of spending eternity with me <br />Now I can’t imagine serving a sentence of a life apart from you <br /><br />PRE-CHORUS 1 <br />Im desperate to feel it <br />The nearness, to walk with you in the cool of day<br />Would You bring me close <br /><br />CHORUS <br />In Your arms I can rest <br />Here in Your presence, <br />I can breathe again <br /><br />VERSE 2 <br />When you spoke to Moses <br />Up on that mountain <br />Your glory would shine upon his face <br />It lasted a moment <br />It became a promise <br />Your abiding presence would never fade <br /><br />PRE-CHORUS 2 <br />I’m desperate to see it <br />The mystery, past the clouds that surround <br />Your throne <br />Would you bring me close <br /><br />CHORUS<br />In Your arms I can rest <br />Here in Your presence, <br />I can breathe again <br /><br />BRIDGE<br />I’m breathing I’m breathing in <br />I’m breathing I’m breathing in <br />Your peace all around me <br />Your presence inside me <br />-----------------------------------------------------<br />General Credits<br />Executive Producer: Ronald Maldonado<br />Music Producers: Manny Vargas, Lubbi Daniel Colina<br />Post-Production and Audio Editing: Lubbi Daniel Colina, Manny Vargas, Jorge Fajardo, James Orjuela<br />Sound Design: Jorge Fajardo, Manny Vargas, Lubbi Daniel Colina<br />Cover Design: Alvaro Flores<br /> <br />Engineers<br />Recording Engineers: Pablo Sciola, Lubbi Daniel Colina<br />Mixing Engineer: Andre Aquino<br />Mastering Engineer: Andre Aquino<br /> <br />NEW WINE BAND<br />Vocalists: Luisa Rodriguez, Arlene Then, Marilen Valdes, James Orjuela<br /> Keys: Manny Vargas<br />Percussion: Christian Velasquez<br />Bass: Alfredo Sacerio<br />Electric Guitar: Jorge Fajardo<br />Acoustic Guitars: Jorge Fajardo<br />--------------------------------------------------------<br />Follow us on Social Media / Síguenos en las Redes Sociales <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/newwinemusic/">https://www.instagram.com/newwinemusic/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/officialnewwinemusic">https://www.facebook.com/officialnewwinemusic</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/officialnewwine">https://twitter.com/officialnewwine</a><br />Tik Tok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@newwinemusic?lang=en">https://www.tiktok.com/@newwinemusic?lang=en</a><br /><br />#NewWine #BreathingIn{% endraw %}
