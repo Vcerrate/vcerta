@@ -1,0 +1,15 @@
+---
+title: "How do fish swim so quickly?"
+image: "https:\/\/i.ytimg.com\/vi\/wYDh5d9pfu8\/hqdefault.jpg"
+vid_id: "wYDh5d9pfu8"
+categories: "Science-Technology"
+tags: ["numberphile"]
+date: "2022-04-03T22:50:08+03:00"
+vid_date: "2022-03-30T14:59:19Z"
+duration: "PT17M25S"
+viewcount: "223281"
+likeCount: "12350"
+dislikeCount: ""
+channel: "Numberphile"
+---
+{% raw %}Featuring Tadashi Tokieda... Get 60% off your first box from MEL Science at <a rel="nofollow" target="blank" href="https://melscience.com/sBEz/">https://melscience.com/sBEz/</a> and use code NUMBERPHILE60 (episode sponsor)<br />More links &amp; stuff in full description below ↓↓↓<br /><br />Tadashi Tokieda is a professor of mathematics at Stanford University, specialising in applied mathematics.<br /><br />More videos with Tadashi: <a rel="nofollow" target="blank" href="http://bit.ly/tadashi_vids">http://bit.ly/tadashi_vids</a><br /><br />Numberphile is supported by the Mathematical Sciences Research Institute (MSRI): <a rel="nofollow" target="blank" href="http://bit.ly/MSRINumberphile">http://bit.ly/MSRINumberphile</a><br /><br />We are also supported by Science Sandbox, a Simons Foundation initiative dedicated to engaging everyone with the process of science. <a rel="nofollow" target="blank" href="https://www.simonsfoundation.org/outreach/science-sandbox/">https://www.simonsfoundation.org/outreach/science-sandbox/</a><br /><br />And support from The Akamai Foundation - dedicated to encouraging the next generation of technology innovators and equitable access to STEM education - <a rel="nofollow" target="blank" href="https://www.akamai.com/company/corporate-responsibility/akamai-foundation">https://www.akamai.com/company/corporate-responsibility/akamai-foundation</a><br /><br />NUMBERPHILE<br />Website: <a rel="nofollow" target="blank" href="http://www.numberphile.com/">http://www.numberphile.com/</a><br />Numberphile on Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/numberphile">http://www.facebook.com/numberphile</a><br />Numberphile tweets: <a rel="nofollow" target="blank" href="https://twitter.com/numberphile">https://twitter.com/numberphile</a><br />Subscribe: <a rel="nofollow" target="blank" href="http://bit.ly/Numberphile_Sub">http://bit.ly/Numberphile_Sub</a><br /><br />Videos by Brady Haran<br /><br />Patreon: <a rel="nofollow" target="blank" href="http://www.patreon.com/numberphile">http://www.patreon.com/numberphile</a><br /><br />Numberphile T-Shirts and Merch: <a rel="nofollow" target="blank" href="https://teespring.com/stores/numberphile">https://teespring.com/stores/numberphile</a><br /><br />Brady's videos subreddit: <a rel="nofollow" target="blank" href="http://www.reddit.com/r/BradyHaran/">http://www.reddit.com/r/BradyHaran/</a><br /><br />Brady's latest videos across all channels: <a rel="nofollow" target="blank" href="http://www.bradyharanblog.com/">http://www.bradyharanblog.com/</a><br /><br />Sign up for (occasional) emails: <a rel="nofollow" target="blank" href="http://eepurl.com/YdjL9">http://eepurl.com/YdjL9</a>{% endraw %}
