@@ -1,0 +1,15 @@
+---
+title: "ഫിലോകാലിയ ധ്യാന അനുഭവങ്ങൾ, കോട്ടയത്ത്‌ നിന്നും."
+image: "https:\/\/i.ytimg.com\/vi\/z6NUJxkE4fo\/hqdefault.jpg"
+vid_id: "z6NUJxkE4fo"
+categories: "Nonprofits-Activism"
+tags: ["ഫിലോകാലിയ","ധ്യാന","അനുഭവങ്ങൾ,"]
+date: "2022-04-04T09:16:57+03:00"
+vid_date: "2022-04-03T17:24:40Z"
+duration: "PT11M11S"
+viewcount: "7438"
+likeCount: "280"
+dislikeCount: ""
+channel: "Philokalia Official"
+---
+{% raw %}Philokalia Retreat last Day at Kottayam.<br />Next retreat May 5 to 8. (Malayalam)<br />May 18 to 21  ( English Retreat )<br />ധ്യാനത്തിന് Book ചെയ്യാൻ -  8590056274   /8281998967<br />8281499768   ( Call 9am to 5 pm)<br /><br />Good news for those who are not married on time and looking for a good life partner. The Philokalia Foundation has launched a free matrimonial website. Anyone can register anywhere in the world and find the best and most suitable partner.<br />Pls find link.<br /><br /><a rel="nofollow" target="blank" href="https://matrimony.philokalia.in/">https://matrimony.philokalia.in/</a><br /><br />+918281499767<br /><br />+918281499769<br /><br />#freeambulance #ambulancekerala #ambulancetsr #philokaliaambulance<br />#emergency #emergencyambulance #freeambulanceservice #nocostambulance<br />#ambulancenearyou #medicalministry<br />#freehomes #homeless #philokaliahomes #philokalia #nesthomes #philokaliafreehomes<br />#homesfortheneedy #helpwithhomes #keralahome #homeministry #freehome #homeforhomeless #homephilokalia #philokaliahome #needahome #philokaliahouse #philokaliastay #philokalianest #philokaliakoodu  #struggleforhome #applyforhome<br />#freestay<br />#freemedicine #philokaliamedicine #freemedicinekerala #medicine #freetreatment<br />#freemedicalsupport #medicineforfree #medicinebyphilokalia #callformedicine<br />#philokaliafree #philokaliamedical<br />#freeeducation #philokaliaeducation #philokaliafreeeducation #freeeducationtochildren #educatingchildren<br />#loanfreeeducation #supportachild #helpachild #educateachild #girlempowerments #womenempowerment #supportawomen #freestudies #freestudiesphilokalia #freestudy #applyforeducationalsupport #philokaliafundededucation #philokaliaeducati<br />#aid #aidforhomeless #aidforpoor #helpforpoor #helpforhomeless #helpforfinancialsupport #helptheneedy<br />#philokaliaaid #philokaliasupport #philokaliahelping #needasupport #philokaliafinancialsupport #giveforpoor #needyandpoor #needy #poor<br />#freehomes #homeless #philokaliahomes #philokalia #nesthomes #philokaliafreehomes<br />#homesfortheneedy #helpwithhomes #keralahome #homeministry #freehome #homeforhomeless #homephilokalia #philokaliahome #needahome #philokaliahouse #philokaliastay #philokalianest #philokaliakoodu  #struggleforhome #applyforhome<br />#freestay #philokaliaspeaker #motivations #philokaliamotivationalspeaker #mariojoseph #gigimario #motivationalspeaker #religioustalk #philokaliaseminar #spiritualcouncelling #freespeech #freecounciling #pingforahelp #philokaliaretreat #philokaliacounciling #spiritualretreat<br />#philokaliainenglish #latestfrommariojoseph #mariojosephfrompotta #mariojosephfromdivine #divineretreatcentre{% endraw %}
