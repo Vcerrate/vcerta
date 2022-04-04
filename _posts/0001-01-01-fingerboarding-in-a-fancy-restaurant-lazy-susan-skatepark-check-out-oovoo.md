@@ -1,0 +1,15 @@
+---
+title: "Fingerboarding in a Fancy Restaurant | Lazy Susan Skatepark"
+image: "https:\/\/i.ytimg.com\/vi\/o2w9A2XDBSg\/hqdefault.jpg"
+vid_id: "o2w9A2XDBSg"
+categories: "Entertainment"
+tags: ["skateboarding","fingerboarding","kuma films"]
+date: "2022-04-04T12:54:29+03:00"
+vid_date: "2016-03-09T00:54:29Z"
+duration: "PT3M1S"
+viewcount: "543937"
+likeCount: "6740"
+dislikeCount: ""
+channel: "Kuma Films"
+---
+{% raw %}Check out ooVoo’s Epic Robot Prank in Tokyo &amp; New York <a rel="nofollow" target="blank" href="http://bit.ly/21W37eR">http://bit.ly/21W37eR</a><br />The dinner table makes a great little skatepark.<br />Subscribe! <a rel="nofollow" target="blank" href="http://bit.ly/1tLVDYk">http://bit.ly/1tLVDYk</a> <br />Click to share on Facebook <a rel="nofollow" target="blank" href="http://on.fb.me/1RQQslf">http://on.fb.me/1RQQslf</a><br /><a rel="nofollow" target="blank" href="http://www.kumafilms.com/">http://www.kumafilms.com/</a><br /><br />Facebook→ <a rel="nofollow" target="blank" href="https://www.facebook.com/KumaFilms">https://www.facebook.com/KumaFilms</a><br />Instagram→ <a rel="nofollow" target="blank" href="http://instagram.com/KumaFilms">http://instagram.com/KumaFilms</a> @KumaFilms<br />Twitter→ <a rel="nofollow" target="blank" href="https://twitter.com/kumakumafilms">https://twitter.com/kumakumafilms</a> @kumakumafilms<br />Soundcloud→ <a rel="nofollow" target="blank" href="https://soundcloud.com/kuma-films">https://soundcloud.com/kuma-films</a><br />Contact us at kumakumafilms@live.com<br /><br />Location: Taipei, Taiwan<br /><br />Featuring: KARAT TEAM<br />Website: <a rel="nofollow" target="blank" href="http://www.karatfingerboarding.com">http://www.karatfingerboarding.com</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/karatfingerb...">https://www.facebook.com/karatfingerb...</a><br /><br />Fingerboarders<br />Clark Lin, Chi Wei Wu, Benjamin Huang, Lorenzo Hsu, Ding Wei, Chenfu Jian, 李哲睿, 李睿睿, 曾柏諺.<br /><br />Music: AudioTreats - Solitaire<br />Free Download: <a rel="nofollow" target="blank" href="http://bit.ly/1nwKUBy">http://bit.ly/1nwKUBy</a><br />Soundcloud: <a rel="nofollow" target="blank" href="http://bit.ly/1M6RGnU">http://bit.ly/1M6RGnU</a><br />Bandcamp: <a rel="nofollow" target="blank" href="http://audiotreats.bandcamp.com/">http://audiotreats.bandcamp.com/</a><br />Facebook: <a rel="nofollow" target="blank" href="http://on.fb.me/1p8eUoC">http://on.fb.me/1p8eUoC</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/audiotreats/">https://www.instagram.com/audiotreats/</a><br /><br />Equipment:<br />Canon C100 Mk II<br />Canon 5D Mk III<br />Canon 16-35mm f2.8, <br />Canon 24-70mm f2.8<br />Canon 70-200mm f1.4<br />Canon 50mm f1.4<br />Tokina 11-20mm f2.8<br />GoPro Hero 4<br />Glidecam HD2000<br />Edelkrone Slider Plus (large)<br />Manfrotto 561BHDV-1 Fluid Video Monopod<br />Manfrotto 055XPROB tripod<br />B+W Polarizing filter<br />Shure VP83F video mic<br /><br />#sponsored @sponsored<br />fingerboarding, skateboarding{% endraw %}
