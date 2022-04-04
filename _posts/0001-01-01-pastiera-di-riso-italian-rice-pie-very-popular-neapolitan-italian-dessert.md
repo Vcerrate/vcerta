@@ -1,0 +1,15 @@
+---
+title: "Pastiera di Riso - Italian Rice Pie- Very Popular Neapolitan Italian dessert recipe for Easter."
+image: "https:\/\/i.ytimg.com\/vi\/ybTh0odWV6U\/hqdefault.jpg"
+vid_id: "ybTh0odWV6U"
+categories: "Howto-Style"
+tags: ["pastiera","pastiera napoletana","italian cake"]
+date: "2022-04-05T00:43:59+03:00"
+vid_date: "2022-03-12T18:28:28Z"
+duration: "PT17M24S"
+viewcount: "2246"
+likeCount: "120"
+dislikeCount: ""
+channel: "Alessandras Food is Love"
+---
+{% raw %}Here is my recipe and direction to make Pastiera di Riso at home. A wonderful dessert for Easter.<br /><br />To print the recipe, click the link here: <a rel="nofollow" target="blank" href="https://alessandrasfoodislove.com/pastiera-di-riso-italian-rice-pie/">https://alessandrasfoodislove.com/pastiera-di-riso-italian-rice-pie/</a><br /><br />Cooking rice:<br />1 1/2 cups rice Arborio/medium grain rice (300 grams)<br />2 cups milk (480 ml)<br />1 cup water (240 ml)<br />2 tablespoons butter (30 grams) <br />1/2 tsp salt <br />Peel of a lemon <br />1 cinnamon stick <br />3/4 cup sugar (150 grams)<br /><br />Pie Crust/Pasta Frolla:<br />2 1/2 cups flour (325 grams)<br />1/2 cup sugar (100 grams) <br />2 large eggs <br />1 stick butter (4 ounces)(112 grams) <br />1/4 tsp salt <br />Zest of an orange <br /><br />Assembly of Pie:<br />1 lb whole milk ricotta<br />3/4 cup sugar  (150 grams)<br />4 large eggs <br />Zest of an orange <br />1 shot glass/1 ounce Strega liqueur or any fruity liqueur <br />2 tablespoons chopped citron (optional) <br />2 tsp millefiori essence water or 1 vial of millefiori oil<br /><br />Directions:-<br /><br />Cooking the rice:<br />Rinse the rice a few times until water runs clear. <br />In a medium pan add milk, water, cinnamon stick, butter, lemon peel and bring to a boil. <br />Add the rice and lower heat.<br />Cover and stir occasionally so it doesn’t stick.<br />Let it cook until the liquid is all absorbed. <br />Add the sugar and mix. <br />Remove cinnamon stick and peel. Set aside until completely cool. <br /><br /><br />Pie Dough/Pasta Frolla:<br />In a large bowl add flour, sugar and salt. <br />Whisk to incorporate air and mix the ingredients well.  <br />Add the melted butter, eggs and orange zest. <br />Using your hand mix to create a dough ball. <br />Move to a work surface and work gently for a minute. <br />Wrap in plastic wrap and refrigerate for 45 minutes to an hour. <br /><br /><br />Assembly of Pie:<br />In a large bowl cream ricotta and sugar using a handheld mixer.  <br />Add eggs and continue mixing.  <br />Add zest of orange, citron, Strega liqueur and millefiori, mix well. <br />Add the cooked rice and mix well.  <br />Roll the pie dough to about 1/8 of an inch thick. <br />Cover a 10 inch springform pan. Trim the borders.  <br />Fill with rice mixture.  <br />Roll out the dough trimming to make strips for the top of the pie. <br />Bake at 350 degrees Fahrenheit (180 Celsius) for 1 1/2 hours until golden on top. <br />Let it cool, dust with confectioners sugar and enjoy! <br /><br />The rice pie can also be made without the crust and that would make it totally gluten free.{% endraw %}
