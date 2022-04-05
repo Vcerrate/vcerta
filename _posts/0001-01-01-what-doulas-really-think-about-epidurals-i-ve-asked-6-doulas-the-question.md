@@ -1,0 +1,15 @@
+---
+title: "What Doulas Really Think About Epidurals"
+image: "https:\/\/i.ytimg.com\/vi\/Lu5eee7KJJI\/hqdefault.jpg"
+vid_id: "Lu5eee7KJJI"
+categories: "Education"
+tags: ["What doulas think about epidurals","doulas and epidurals","epidurals"]
+date: "2022-04-05T17:14:36+03:00"
+vid_date: "2022-04-05T13:30:04Z"
+duration: "PT9M50S"
+viewcount: "23"
+likeCount: "5"
+dislikeCount: ""
+channel: "Alice Turner"
+---
+{% raw %}I've asked 6 doulas the question &quot;what do you really think about epidurals&quot; and shared their answers. There is a misconception by some that doulas do not support the use of epidurals. <br /><br />// MEET THE DOULAS ✅<br />o Beth Hardy <a rel="nofollow" target="blank" href="http://HeartTonesBirth.com">http://HeartTonesBirth.com</a><br />o Kelsey Ogenia <a rel="nofollow" target="blank" href="http://dcbirthdoulas.com">http://dcbirthdoulas.com</a><br />o Joyce Dykema <a rel="nofollow" target="blank" href="http://doulajoyce.com">http://doulajoyce.com</a><br />o Victoria Wilson <a rel="nofollow" target="blank" href="http://motherwelldoula.com">http://motherwelldoula.com</a><br />o Robin Douthit  <a rel="nofollow" target="blank" href="http://www.flourishingbirth.com">http://www.flourishingbirth.com</a><br />o Tanya Cawthrone <a rel="nofollow" target="blank" href="http://birthwellbirthright.com">http://birthwellbirthright.com</a><br /><br />#childbirth #birth #pregnancy #lamaze #childbirthclass #doula<br /><br />// PREPARE FOR BIRTH WITH ME ✅<br />o No cameras required for our class!<br />o Watch on demand and fit into your schedule OR join a live 14 day class. <br />o Don’t worry about adjusting your camera, I’m the only one with video on.<br />o Learn about the birth process and build a solid set of tools for labor<br />o <a rel="nofollow" target="blank" href="http://www.BirthToolBox.com/youtube">http://www.BirthToolBox.com/youtube</a><br /><br />// CONTACT <br />o alice@birthtoolbox.com<br /><br />// SAY HELLO ON SOCIAL <br />o Instagram <a rel="nofollow" target="blank" href="https://www.instagram.com/birthtoolbox">https://www.instagram.com/birthtoolbox</a> <br />o LinkedIn <a rel="nofollow" target="blank" href="https://www.linkedin.com/in/alice-turner-67313837/">https://www.linkedin.com/in/alice-turner-67313837/</a> <br />o Facebook <a rel="nofollow" target="blank" href="https://www.facebook.com/SupportingHer/">https://www.facebook.com/SupportingHer/</a> <br /><br />If you are pregnant and expecting a baby or work with people who are expecting a baby, then you are in the right place. I'm Alice Turner, doula and Lamaze Certified Childbirth Educator and I work with people from pregnancy through the early newborn time. My mission is to help people have a positive birth experience.<br /><br />**note some of these links are affiliate links. If you purchase a product through the link I may receive a small percentage, but there will be no additional cost to you. Thank you for supporting his channel and allowing us to keep publishing free educational content{% endraw %}
