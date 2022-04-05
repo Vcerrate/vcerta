@@ -1,0 +1,15 @@
+---
+title: "Putin's grandson kidnapped !"
+image: "https:\/\/i.ytimg.com\/vi\/cYrZTLKMiW0\/hqdefault.jpg"
+vid_id: "cYrZTLKMiW0"
+categories: "News-Politics"
+tags: ["russian losses","zelensky","irpin ukraine"]
+date: "2022-04-05T05:10:18+03:00"
+vid_date: "2022-04-04T11:05:34Z"
+duration: "PT3M31S"
+viewcount: "380478"
+likeCount: "4629"
+dislikeCount: ""
+channel: "Breaking News USA"
+---
+{% raw %}Socialite wife of Russian oligarch: 'Putin's ex-son-in-law kidnapped our baby'<br />Zhanna Volkova, the wife of 39-year-old Kirill Shamalov, former son-in-law of Russian President Vladimir Putin, claimed that Shamalov did not allow him to meet with his child and abducted him to Russia. Shamalov's five-year marriage to Putin's daughter, Katerina Tikhonova, ended when his affair with Volkova was revealed.<br /><br />Every day, a new one is added to the allegations about the Russian oligarchs, which the USA and the EU imposed sanctions after Russia's invasion of Ukraine.<br /><br />As Russia enters the first month of its occupation of Ukraine, a controversial claim has been made about the 39-year-old businessman, lawyer and petrochemical boss Kirill Shamalov, the former son-in-law of Russian President Vladimir Putin.<br /><br />Known as Russia's youngest billionaire, Shamalov was married to Putin's daughter Katerina Tikhonova for five years from 2013 to 2018, making him the former son-in-law of Russia's most powerful man.<br /><br />CONTINUED TO BENEFIT FROM PUTIN'S WEALTH<br /><br />Shamalov later married Zhanna Volkova, but continued to benefit from Putin's wealth…<br /><br />Zhanna Volkova claimed that her husband, Putin's former son-in-law, stole their newborn daughter and hid them in Moscow. Volkova also claimed that top Russian names helped her.<br /><br />Zhanna Volkova, one of the well-known names in Russia, who is married to the country's 'youngest billionaire' Kirill Shamalov, said that she was prevented from meeting the baby who was born in October.<br /><br />'HOLDS MY CHILD TO SEE'<br /><br />Volkova claimed that her estranged husband prevented her from seeing her child and that Russia's leading figures were intervening.<br /><br />In the last stages of Volkova's pregnancy, her relationship with Shamalov broke down and she moved to London. Volkova was stranded in the country at that time, with the outbreak of the Covid-19 pandemic. Then she went to Moscow to meet with Shamalov. Stating that they met in a secret place outside the city, Volkova said, “I waited for him there for 3 days. She later came home and said she had a new boyfriend but didn't want a divorce. He wanted to hurt me.” she said.<br /><br />Volkova, 44, said that Shamalov's lawyers demanded that she sign the right to see the baby, but she refused. It turned out that Shamalov went to Dubai to celebrate his birthday with the daughter of a powerful name from the Russian Federal Security Service.<br /><br />Volkova now lives in London with her twin sister and son from a previous marriage. She is in the process of divorcing Shamalov and the two have a prenuptial agreement worth £45m.{% endraw %}
