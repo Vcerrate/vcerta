@@ -1,0 +1,15 @@
+---
+title: "What's happening in Ukraine is horrifying"
+image: "https:\/\/i.ytimg.com\/vi\/sAqzq-78vJ4\/hqdefault.jpg"
+vid_id: "sAqzq-78vJ4"
+categories: "Music"
+tags: ["russia","ukraine","putin"]
+date: "2022-04-05T22:41:43+03:00"
+vid_date: "2022-02-25T19:26:10Z"
+duration: "PT6M26S"
+viewcount: "151327"
+likeCount: "14567"
+dislikeCount: ""
+channel: "Nik Nocturnal"
+---
+{% raw %}My thoughts on the current Russia Ukraine war and it's impact on the community<br />Subscribe: <a rel="nofollow" target="blank" href="http://bit.ly/2nrb7a5">http://bit.ly/2nrb7a5</a> | Let’s hang on Twitch: <a rel="nofollow" target="blank" href="https://twitch.tv/niknocturnal">https://twitch.tv/niknocturnal</a><br />Watch my NEWEST videos: <a rel="nofollow" target="blank" href="https://bit.ly/3DNGzmf">https://bit.ly/3DNGzmf</a> | Merch👕: <a rel="nofollow" target="blank" href="https://corekid.ca/">https://corekid.ca/</a><br />Join the Nik Nocturnal Discord community: <a rel="nofollow" target="blank" href="https://discord.gg/niknocturnal">https://discord.gg/niknocturnal</a><br />My Official Spotify Playlist: <a rel="nofollow" target="blank" href="https://open.spotify.com/playlist/4m2FtiQKqtkzLIVOGtZPDY">https://open.spotify.com/playlist/4m2FtiQKqtkzLIVOGtZPDY</a><br /><br />Follow Me On My Socials 📱<br />• Twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/niknocturnal">https://www.twitch.tv/niknocturnal</a><br />• Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/nik.nocturnal/">https://www.instagram.com/nik.nocturnal/</a><br />• Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/NikNocturnal">https://www.facebook.com/NikNocturnal</a><br />• Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/1Gc5ZiJhqjQQcfvMTSCa3q">https://open.spotify.com/artist/1Gc5ZiJhqjQQcfvMTSCa3q</a><br /><br />Gear I Use 🎸<br />• <a rel="nofollow" target="blank" href="https://www.amazon.ca/shop/niknocturnal">https://www.amazon.ca/shop/niknocturnal</a><br /><br />Additional Gear/Plugins<br />• Djinnbass <a rel="nofollow" target="blank" href="http://bit.ly/3bk9WPx">http://bit.ly/3bk9WPx</a><br />• Eurobass <a rel="nofollow" target="blank" href="http://bit.ly/3dq8NIO">http://bit.ly/3dq8NIO</a><br />• Flatline <a rel="nofollow" target="blank" href="http://bit.ly/3ueL7gL">http://bit.ly/3ueL7gL</a><br />• Adobe Premier <a rel="nofollow" target="blank" href="https://amzn.to/377HaQm">https://amzn.to/377HaQm</a><br />• AXE FX 2 <a rel="nofollow" target="blank" href="https://amzn.to/2V2eG8p">https://amzn.to/2V2eG8p</a><br />• Music Man JP6 <a rel="nofollow" target="blank" href="https://amzn.to/3zS6k20">https://amzn.to/3zS6k20</a><br />• Music Man JP7 <a rel="nofollow" target="blank" href="https://amzn.to/3f9PFim">https://amzn.to/3f9PFim</a><br />• Music Man Majesty <a rel="nofollow" target="blank" href="https://amzn.to/3zKQJB8">https://amzn.to/3zKQJB8</a><br />• Aristides 080R <br /><br />———————————————————<br />#Ukraine #Russia #NikNocturnal{% endraw %}
