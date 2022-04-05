@@ -1,0 +1,15 @@
+---
+title: "Theodore - 'Towards?' (Live at Hermoupolis Town Hall)"
+image: "https:\/\/i.ytimg.com\/vi\/fuLO7fdnFvk\/hqdefault.jpg"
+vid_id: "fuLO7fdnFvk"
+categories: "Music"
+tags: ["thedore","theodore music","theodore official"]
+date: "2022-04-05T23:39:53+03:00"
+vid_date: "2018-02-28T15:43:53Z"
+duration: "PT5M45S"
+viewcount: "128215"
+likeCount: "541"
+dislikeCount: ""
+channel: "Theodore"
+---
+{% raw %}Theodore's 'Towards? (for what is to come)' is the first single from his new album coming out in 2018. <br />Single out March 2nd 2018<br /><br />Theodore is a Greek multi-instrumentalist, composer and performer. He fuses classical composition with electronic elements, to create beautifully atmospheric and often cinematic songs. He uniquely combines this together with his influences, from Pink Floyd and Radiohead to a schooling in piano and traditional Greek folk music. In the fall of 2017, Theodore performed at Live at Heart in Örebro, Reeperbahn Festival in Hamburg and completed a tour in Spain, Germany, France and the UK. His future plans include shows at Eurosonic Noorderslag in January, SXSW in March, 2018, and the release of his next album on United We Fly.<br /><br />A production by United We Fly<br /><br />Performed, recorded and filmed at the Hermoupolis City Hall, Syros Island, during the closing ceremony of AnimaSyros 10 International Animation + Agora<br /><br />Music Credits<br />Music and lyrics  by Theodore<br /><br />Theodore - vocals, kaoss pads<br />Melentini - synthesizers<br />Vasilis Dokakis - guitar<br />Alessandro Giovanetto - guitar<br />Nikolas Papachronopoulos - bass guitar<br />Ashley Hallinan - drums<br /><br />Sound Design: Vagelis Moschos <br />Sound recorded and mixed by Vagelis Moschos<br />Mastered at United We Fly Studio by Vaggelis Chasiotis<br />Stage managers: Vagelis Chasiotis and Thanos Fidetzis<br /><br />Lights and Installation Credits<br />Lighting Technician: Melina Zervaki<br />Lights installation design: Sofia Pappa and Despina Vilioti<br />Installation construction and set up: Stylianos Bouchayar and Thimios Nikozisis <br /><br />Video Credits<br />Directed &amp; Edited by Iason Arvanitakis<br />Camera Operators: Vaggelis Lainas, Giorgos Danopoulos, Sofia Georgovassili, Dora Kalakidou, Iason Arvanitakis<br /><br />Produced by United We Fly:<br />Design &amp; Management: Maria Mertzani, Nadia Pappa<br />Team: Aliki Evaggelinou, Alexandra Alexandridou, Rea Anastasopoulou, Afroditi Koufagela, Kostas Grountas<br /><br />(C) 2017 United We Fly<br />Official Website: <a rel="nofollow" target="blank" href="http://www.unitedwefly.com/">http://www.unitedwefly.com/</a> <br />Facebook Page: <a rel="nofollow" target="blank" href="https://www.facebook.com/unitedwecanfly/">https://www.facebook.com/unitedwecanfly/</a> <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/united.we.fly/">https://www.instagram.com/united.we.fly/</a><br />Vimeo: <a rel="nofollow" target="blank" href="https://vimeo.com/user77199621">https://vimeo.com/user77199621</a>{% endraw %}
