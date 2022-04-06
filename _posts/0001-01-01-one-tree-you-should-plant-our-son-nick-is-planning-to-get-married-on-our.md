@@ -1,0 +1,15 @@
+---
+title: "One Tree You Should Plant 🌳"
+image: "https:\/\/i.ytimg.com\/vi\/Ntd9XDGE54w\/hqdefault.jpg"
+vid_id: "Ntd9XDGE54w"
+categories: "People-Blogs"
+tags: ["michigan","homestead","farming"]
+date: "2022-04-07T01:22:38+03:00"
+vid_date: "2022-04-06T20:43:02Z"
+duration: "PT8M29S"
+viewcount: "2740"
+likeCount: "485"
+dislikeCount: ""
+channel: "That 1870's Homestead"
+---
+{% raw %}Our son Nick is planning to get married on our Homestead in the fall of 2023.  They want to have it our in our back pasture, where all the wildflowers grow.  In preparation we're going to plant some Australian Willow trees in a half-circle to try to make a natural arch for them to get married under.  These can grow up to 10 feet per year in the right conditions, so hopefully by then the deer don't eat them all and we can have a wonderful natural looking backdrop for them ♥  The cutting we're planting came from <a rel="nofollow" target="blank" href="https://www.etsy.com/shop/CZGrain">https://www.etsy.com/shop/CZGrain</a> &amp; @CZ Grain on YouTube.<br />---------------<br />👕 Shop Our Merch:  <a rel="nofollow" target="blank" href="https://www.bonfire.com/store/1870smerch/">https://www.bonfire.com/store/1870smerch/</a><br />🌻 HOSS Garden Tools &amp; Seeds: <a rel="nofollow" target="blank" href="https://shrsl.com/33ehp">https://shrsl.com/33ehp</a> (Promo Code SHOP1870 for free seeds!)<br />🌺 GREENSTALK Vertical Planter:  <a rel="nofollow" target="blank" href="https://lddy.no/kpa6">https://lddy.no/kpa6</a> (Promo Code SHOP1870 for $10 off!)<br />🥫 FORJARS Lids:  <a rel="nofollow" target="blank" href="https://forjars.shop">https://forjars.shop</a> (Promo Code SHOP1870 to get 10% off your order!)<br />🔦 OLIGHT Flashlights:  <a rel="nofollow" target="blank" href="https://bit.ly/3z6daku">https://bit.ly/3z6daku</a> (Promo Code SHOP1870 for 10% off!)<br />🍃 HARVEST Right Freeze Dryers:  <a rel="nofollow" target="blank" href="https://affiliates.harvestright.com/1182.html">https://affiliates.harvestright.com/1182.html</a><br />🛒 AMAZON Our Favorite Products:  <a rel="nofollow" target="blank" href="https://amzn.to/3ihSgZP">https://amzn.to/3ihSgZP</a><br />---------------<br />Mailing Address:<br /><br />That 1870's Homestead<br />P.O. Box 179<br />Newport, MI 48166<br />---------------<br />✅ Connect with Us 🐐<br />Facebook:  <a rel="nofollow" target="blank" href="https://www.facebook.com/1870sHomestead/">https://www.facebook.com/1870sHomestead/</a><br />Instagram:  <a rel="nofollow" target="blank" href="https://www.instagram.com/that_1870s_homestead/">https://www.instagram.com/that_1870s_homestead/</a><br />Pinterest:  <a rel="nofollow" target="blank" href="https://www.pinterest.com/that1870s/">https://www.pinterest.com/that1870s/</a><br />EMAIL:  that1870shomestead@gmail.com<br />---------------<br />Please note that some of the links above are affiliate links - at no additional cost to you.  We will earn a commission if you decide to make a purchase, after clicking through the links.  ♥ Todd &amp; Rachel<br />---------------{% endraw %}
