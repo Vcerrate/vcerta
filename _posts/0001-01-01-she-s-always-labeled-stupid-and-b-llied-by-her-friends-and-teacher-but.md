@@ -1,0 +1,15 @@
+---
+title: "She's Always Labeled Stupid and Búllied by Her Friends and Teacher, but In the End They Regret It"
+image: "https:\/\/i.ytimg.com\/vi\/Gq0rcPbJe6w\/hqdefault.jpg"
+vid_id: "Gq0rcPbJe6w"
+categories: "Entertainment"
+tags: ["movie review","movie summary","movies under 10 minutes"]
+date: "2022-04-07T16:11:14+03:00"
+vid_date: "2022-03-21T14:00:12Z"
+duration: "PT12M56S"
+viewcount: "58129"
+likeCount: "1700"
+dislikeCount: ""
+channel: "Storyflix Movie Recap"
+---
+{% raw %}She's Always Labeled Stupid and Búllied by Her Friends and Teacher, but In the End They Regret It<br /><br />Although she is a 2nd year senior high school student, she is on par academically with 4th grade elementary school students. She frequently transfers between school because she is unable to make friends, and was once suspended for being caught with cigarettes. To prepare her for her university entrance examination, her mother decides to send her to Seiho Cram School. However, when the school director, Yoshitaka Tsubota, hears about Sayaka's academic problem, he makes it his personal achievement to help her enter the university of her choice, Keio University, a prestigious university that is considered one of the most difficult to enter in Japan. After her father labels her an &quot;air-head&quot;, Sayaka became determined to study hard to prove her father wrong. Over the course of the summer holidays of her second year through to the exams at the end of her third year in senior high school, Sayaka studies extremely hard. She even removes her blond hair dye and cuts her hair to show her resolve. Her results progressively improves and her academic deviation value increases tremendously from 30 to 70 in this short span of time.<br /><br />Movie: Flying Colors<br />Year of Release: 2015<br />Production companies: Asahi Shimbun<br />Watch the full movie here: <a rel="nofollow" target="blank" href="https://www.amazon.com/Flying-Colors-Blu-ray-Kasumi-Arimura/dp/B01FDXNQZ4">https://www.amazon.com/Flying-Colors-Blu-ray-Kasumi-Arimura/dp/B01FDXNQZ4</a><br /><br />Thank you for watching. <br /><br />sci fi movies, romance movie review, sci fi review, sci fi summary, storyflix, movie review, movie summary, movies under 10 minutes, science fiction movie, movie trailer, full movie, daniel, trailer, daniel cc, daniel cc movie review, Netflix, story recapped, movie recapped, story, recapped, story recapped channel, movie recap, story recap, movie recaps, horror movie review, true scary stories, horror stories, mr. nightmare, creepypasta, creepy stories, true horror stories, horror, scary, stories told, movie review, Daniel, daniel CC, science fiction, trailer, Daniel CC movie review, daniel cc movie channel, movie explain channel, movie recap and explain, daniel movie, movie review, movie trailer, story recapped, story recapped movie review, story recapped channel, movie explained, movie recap, story recap, movie recaps, ending explained, storyflix, movie storyline, suspense movies, netflix movies, daniel cc, movie review channel, daniel cc movie, daniel cc review, story recapped glass, recap king, recap queen, master recap{% endraw %}
