@@ -1,0 +1,15 @@
+---
+title: "Catalans Try To Guess The Language | Easy Catalan 39"
+image: "https:\/\/i.ytimg.com\/vi\/ij29odPviss\/hqdefault.jpg"
+vid_id: "ij29odPviss"
+categories: "Education"
+tags: ["easy languages","catalan","catalan language"]
+date: "2022-04-08T02:52:21+03:00"
+vid_date: "2022-04-05T17:00:17Z"
+duration: "PT14M59S"
+viewcount: "1120"
+likeCount: "90"
+dislikeCount: ""
+channel: "Easy Catalan"
+---
+{% raw %}Thank you to our sponsor italki! Get $10 in italki credits after taking your first 1-on-1 lesson when you sign up here: <a rel="nofollow" target="blank" href="http://go.italki.com/easycatalan">http://go.italki.com/easycatalan</a><br /><br />BECOME A MEMBER OF EASY CATALAN: <a rel="nofollow" target="blank" href="https://www.patreon.com/easycatalan​">https://www.patreon.com/easycatalan​</a><br />PODCAST: <a rel="nofollow" target="blank" href="https://www.easycatalan.fm">https://www.easycatalan.fm</a> and <a rel="nofollow" target="blank" href="https://youtube.com/easycatalanpodcast">https://youtube.com/easycatalanpodcast</a><br />SUBSCRIBE TO EASY CATALAN: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/easycatalan">https://www.youtube.com/channel/easycatalan</a><br />TELEGRAM: <a rel="nofollow" target="blank" href="https://t.me/easycatalan">https://t.me/easycatalan</a><br />FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/EasyCatalan/​">https://www.facebook.com/EasyCatalan/​</a><br />INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/easycatalanvideos">https://www.instagram.com/easycatalanvideos</a><br />TWITTER: <a rel="nofollow" target="blank" href="https://twitter.com/EasyCatalan​">https://twitter.com/EasyCatalan​</a><br />BECOME A CO-PRODUCER: <a rel="nofollow" target="blank" href="https://bit.ly/2kyB9nM​">https://bit.ly/2kyB9nM​</a><br />---<br />ALL EASY CATALAN STREET INTERVIEWS: <a rel="nofollow" target="blank" href="http://bit.ly/EasyCatalanPlaylist​">http://bit.ly/EasyCatalanPlaylist​</a><br />ALL SUPER EASY CATALAN VIDEOS FOR BEGINNERS: <a rel="nofollow" target="blank" href="http://bit.ly/SuperEasyCatalanPlaylist">http://bit.ly/SuperEasyCatalanPlaylist</a><br />---<br />Podreu encertar les llengües misterioses? Avui us portem un joc molt divertit. Demanem a la gent del carrer si són capaços d’encertar les llengües que es parlen a les gravacions que hem preparat. A veure si vosaltres sou capaços d’encertar-les abans que donem la solució!<br />--- <br />Nota: Si els entrevistats fan errors, els corregim en els subtítols entre parèntesis. Si els entrevistats diuen paraules en una altra llengua apareixeran entre claudàtors o en cursiva. <br />Note: If the interviewees make mistakes, they will be corrected in the subtitles between brackets. If the interviewees say words in another language they will appear between square brackets. <br />---<br />Location: Barcelona<br />Host/interviewer: Andreu<br />Camera and editing: Harry and Joan<br />Subtitles: Sara, Joan, Reece and Andreu<br />#learncatalan #easycatalan #easylanguages{% endraw %}
