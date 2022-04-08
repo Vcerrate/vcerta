@@ -1,0 +1,15 @@
+---
+title: "Bowden Cable Marble Gate - Martin vs The Machine Week 5 Summary"
+image: "https:\/\/i.ytimg.com\/vi\/U7rsI37qFec\/hqdefault.jpg"
+vid_id: "U7rsI37qFec"
+categories: "Music"
+tags: ["wintergatan","marble machine x","Marble Machine"]
+date: "2022-04-08T14:02:56+03:00"
+vid_date: "2022-04-06T20:05:27Z"
+duration: "PT16M46S"
+viewcount: "88204"
+likeCount: "4562"
+dislikeCount: ""
+channel: "Wintergatan"
+---
+{% raw %}In this stream:<br />Bowden Cable Marble Gate - Martin vs The Machine Week 5 Summary<br /><br />Marble Machine 3 suggestions and documentation central: <br /><a rel="nofollow" target="blank" href="https://bit.ly/3iI9Wgz">https://bit.ly/3iI9Wgz</a><br /><br />———————————<br />As Carl Sagan put it in “Pale Blue Dot”, we are all living on a very small tiny dot in space.<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=-pvxKdvuwIw">https://www.youtube.com/watch?v=-pvxKdvuwIw</a> <br />With the Pale Blue Dot perspective, we could build a better future without war over arbitrary nation borders.<br /><br />Support Humanitarian aid in Ukraine Through Red Cross Ukraine<br />► <a rel="nofollow" target="blank" href="https://donate.redcrossredcrescent.org/ua/donate/~my-donation?_cv=1">https://donate.redcrossredcrescent.org/ua/donate/~my-donation?_cv=1</a><br />———————————<br />WEBSITE ► <a rel="nofollow" target="blank" href="https://wintergatan.net/">https://wintergatan.net/</a><br />MAIN YOUTUBE CHANNEL ► <a rel="nofollow" target="blank" href="https://www.youtube.com/c/Wintergatan">https://www.youtube.com/c/Wintergatan</a><br />———————————<br />MUSIC DOWNLOADS ► <a rel="nofollow" target="blank" href="https://wintergatan.bandcamp.com">https://wintergatan.bandcamp.com</a> <br />WINTERGATAN RECORDS ► <a rel="nofollow" target="blank" href="http://www.wintergatan.net/#/shop">http://www.wintergatan.net/#/shop</a><br />SPOTIFY ► <a rel="nofollow" target="blank" href="http://bit.ly/2oKxXWd">http://bit.ly/2oKxXWd</a> <br />ITUNES ► <a rel="nofollow" target="blank" href="http://apple.co/2ntWNsZ">http://apple.co/2ntWNsZ</a> <br />MERCH ► <a rel="nofollow" target="blank" href="https://teespring.com/stores/wintergatan">https://teespring.com/stores/wintergatan</a><br />DISCORD SERVER ► <a rel="nofollow" target="blank" href="https://www.discord.gg/wintergatan">https://www.discord.gg/wintergatan</a><br />————————————<br />Link to the doc: <a rel="nofollow" target="blank" href="https://docs.google.com/spreadsheets/d/1NG4HkSSPrxxpAuo-W9Y0gqtZiVHJG_Ig50gg6gKth74/edit#gid=0">https://docs.google.com/spreadsheets/d/1NG4HkSSPrxxpAuo-W9Y0gqtZiVHJG_Ig50gg6gKth74/edit#gid=0</a><br />————————————<br />Thank you to all the moderators!<br />————————————<br />Superchat Disclaimer: Superchats are enabled, if you want to support the live streams feel free to send us a super chat. However, we will strive to read and read out any interesting messages regardless of if they are super chats or not. We will not read out all super chats. Your super chat might go unrecognized if we are busy elsewhere during the stream. We thank everyone for the support regardless!{% endraw %}
