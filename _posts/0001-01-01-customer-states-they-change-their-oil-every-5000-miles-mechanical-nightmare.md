@@ -1,0 +1,15 @@
+---
+title: "Customer States They Change Their Oil Every 5000 Miles... | Mechanical Nightmare 34"
+image: "https:\/\/i.ytimg.com\/vi\/mdIfQD3Nn4Q\/hqdefault.jpg"
+vid_id: "mdIfQD3Nn4Q"
+categories: "Autos-Vehicles"
+tags: ["customer states","customer states mechanic","customer states compilation"]
+date: "2022-04-09T01:02:21+03:00"
+vid_date: "2022-04-07T18:00:09Z"
+duration: "PT4M4S"
+viewcount: "13281"
+likeCount: "579"
+dislikeCount: ""
+channel: "Mechanical Nightmare"
+---
+{% raw %}Customer states and mechanical fails in one digestible video for you to enjoy!<br /><br />In today's episode a customer drove 3 miles on a blown out wheel to the shop. Another customer's battery exploded and now the car overheats... and another customer stated they just hit a pothole.<br /><br />Send us your customer states and mechanical fails videos here:<br /><a rel="nofollow" target="blank" href="https://forms.gle/ybywj6a3SS4Vpvhv5">https://forms.gle/ybywj6a3SS4Vpvhv5</a><br />Or email:<br />mechanicalnightmarebiz@gmail.com<br /><br />Follow us on Instagram: <br /><a rel="nofollow" target="blank" href="https://www.instagram.com/mechanicalnightmareyt/">https://www.instagram.com/mechanicalnightmareyt/</a><br />Follow us on Facebook:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/MechanicalNightmareYT">https://www.facebook.com/MechanicalNightmareYT</a><br /><br />Send me an email if you want your clip removed, or I missed credit, or I have mistakenly used without your permission.<br />Creators Credits:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/LifeOfBenOfficial/">https://www.instagram.com/LifeOfBenOfficial/</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/mk5.ethan/">https://www.instagram.com/mk5.ethan/</a><br /><br />Video descriptions:<br />0:00 Intro<br />0:04 Customer stated Battery exploded and now car over heats...<br />0:23 Customer declined tire repair. It’s holding at 50 PSI<br />0:35 This customer wanted his spare tire put on driving on a bad tire for so long is insane<br />0:48 Knackered wheel bearing - <a rel="nofollow" target="blank" href="https://www.instagram.com/LifeOfBenOfficial/">https://www.instagram.com/LifeOfBenOfficial/</a><br />0:55 Customer says they hit a pothole<br />1:15 Auction/Used Lot Special with some terrible quality work<br />2:08 Timing chain broke. Mechanic tore down to inspect don't think they were telling the truth about 5000 mile intervals<br />2:18 Some nice milkshake of oil/coolant coming out of this car<br />2:34 Bearing must have gone for a walk<br />2:46 BMW doing the stanky leg. Got insanely lucky with how minor the repairs were<br />3:01 And they say blinker fluid isn't real<br />3:17 Good ol TSI came in RUNNING, intake cam phase at -56 degrees. (spec is +/- 5) - <a rel="nofollow" target="blank" href="https://www.instagram.com/mk5.ethan/">https://www.instagram.com/mk5.ethan/</a><br />3:28 VW beetle broke reverse doing burnouts still worked for a while eventually gave up and this is what the gear looked like after.<br />3:55 Outro<br /><br />#customerstates #mechanicfail #mechanical{% endraw %}
