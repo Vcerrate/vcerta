@@ -1,0 +1,15 @@
+---
+title: "Say You won't let go - James Arthur | Wedding Dance Online | First Dance Choreography"
+image: "https:\/\/i.ytimg.com\/vi\/jlHer3oebvQ\/hqdefault.jpg"
+vid_id: "jlHer3oebvQ"
+categories: "Education"
+tags: ["the best wedding dance","pierwszy taniec online","kurs tańca"]
+date: "2022-04-08T17:32:08+03:00"
+vid_date: "2021-04-29T18:00:16Z"
+duration: "PT3M41S"
+viewcount: "211543"
+likeCount: "5475"
+dislikeCount: ""
+channel: "Wedding Dance Online"
+---
+{% raw %}🔴 STEP-BY-STEP TUTORIAL: <a rel="nofollow" target="blank" href="https://online-weddingdance.com/product-eng-239-Say-You-Wont-Let-Go-James-Arthur-Dance-tutorial.html">https://online-weddingdance.com/product-eng-239-Say-You-Wont-Let-Go-James-Arthur-Dance-tutorial.html</a><br />---------------<br />Leave a comment and suggest a wedding song for our next video.<br />---------------<br />Dance routine to: Say you won't let go - James Arthur. A beautiful, romantic choreography based on Waltz. The choreography  consist of simple, effective and easy to learn steps and figures. Prefect for Wedding Dance. <br />---------------<br />Location: <a rel="nofollow" target="blank" href="http://palaclasotow.pl">http://palaclasotow.pl</a><br />🔵  Follow Us on Social Media:<br />▷ Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/onlineweddingdance/">https://www.facebook.com/onlineweddingdance/</a><br />▷ Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/weddingdanceonline/">https://www.instagram.com/weddingdanceonline/</a><br />---------------<br />Our Most Beautiful Choreographies: <br />A Dream is a Wish Your Heart Makes - Lily James : <a rel="nofollow" target="blank" href="https://youtu.be/qhTz5RfnIbw">https://youtu.be/qhTz5RfnIbw</a><br />When I fall in Love - Andrea Bocelli : <a rel="nofollow" target="blank" href="https://youtu.be/gqYWHvymvF4">https://youtu.be/gqYWHvymvF4</a><br />Everything I do, I do for you - Bryan Adams : <a rel="nofollow" target="blank" href="https://youtu.be/b_BggZ0EWvQ">https://youtu.be/b_BggZ0EWvQ</a><br />L.O.V.E - Nat King Cole : <a rel="nofollow" target="blank" href="https://youtu.be/D8kevNbEN5A">https://youtu.be/D8kevNbEN5A</a><br />Fire on Fire - Sam Smith : <a rel="nofollow" target="blank" href="https://youtu.be/ciZ3TJL3F_k">https://youtu.be/ciZ3TJL3F_k</a><br />Wyglądasz tak pięknie - Sobel : <a rel="nofollow" target="blank" href="https://youtu.be/WYfii_i_JzA">https://youtu.be/WYfii_i_JzA</a><br />A ti Korita Vu - Sanave - Angel of Wishes:  <a rel="nofollow" target="blank" href="https://youtu.be/pz5DANsTt_0">https://youtu.be/pz5DANsTt_0</a><br />Unchained - The Righteus Brothers: <a rel="nofollow" target="blank" href="https://youtu.be/T2U_RXmCAlM">https://youtu.be/T2U_RXmCAlM</a><br />Everything - Micheal Buble: <a rel="nofollow" target="blank" href="https://youtu.be/Nb5YGNYpLoU">https://youtu.be/Nb5YGNYpLoU</a><br />Tango Por una Cabeza - Carlos Gardel: <a rel="nofollow" target="blank" href="https://youtu.be/sM48r4XnCeY">https://youtu.be/sM48r4XnCeY</a>{% endraw %}
