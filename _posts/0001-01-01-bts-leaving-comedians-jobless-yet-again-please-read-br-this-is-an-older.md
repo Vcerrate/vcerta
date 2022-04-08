@@ -1,0 +1,15 @@
+---
+title: "bts leaving comedians jobless (yet again)"
+image: "https:\/\/i.ytimg.com\/vi\/Ci8xAS0horo\/hqdefault.jpg"
+vid_id: "Ci8xAS0horo"
+categories: "People-Blogs"
+tags: ["bts","funny","crack"]
+date: "2022-04-08T09:17:37+03:00"
+vid_date: "2022-03-04T19:00:06Z"
+duration: "PT8M3S"
+viewcount: "764449"
+likeCount: "34323"
+dislikeCount: ""
+channel: "KOOKIESTAETAS"
+---
+{% raw %}please read: <br />this is an older video that i've been storing for a while. with everything that's been going on in the world i've had a really hard time focusing on anything. nevertheless i believe despite all the bad going on, we can all use a small break from all the worry and heartbreak. i hope this gave you 8 minutes of laughter and love for our boys. <br />i hope you are in a safe place and that peace will be restored soon 🕊💜 <br /><br />we still dearly miss run bts... pls come back...<br /><br />videos used: <br />from RUN BTS: <br />- <a rel="nofollow" target="blank" href="https://weverse.io/bts/media/5921">https://weverse.io/bts/media/5921</a><br />- <a rel="nofollow" target="blank" href="https://weverse.io/bts/media/6001">https://weverse.io/bts/media/6001</a><br /><br />subtitle colors: <br />namjoon: blue<br />jin: pink<br />hobi: red<br />jungkook: purple<br />taehyung: green<br />jimin: yellow<br />suga: grey<br />white: kookiestaetas comments / misc.<br /><br />DISCLAIMER: I only own the EDITING of this video, that includes arrangement of the clips, placement of audio effects and background music as well as animation and altering of the original video, thus creating a distinctive alternation of the original videos. All falling under &quot;fair use&quot; by adding significant comedic and entertaining value. The videos themselves belong to their rightful owners. <br />DO NOT REPOST MY VIDEOS!<br /><br />(Copyright Disclaimer Under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, comment, news reporting, teaching, scholarship, and research. Fair use is a use permitted.)<br /><br />FAQs:<br />- What program/app do you use to edit? <br />I edit with Premiere Pro / After Effects / Photoshop<br />- When did you become an ARMY? <br />In September 2019 <br />- Who's your bias? <br />Taehyung <br /><br />📎 mail for business inquiries: kookiestaetas@outlook.com<br />📎 second channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCN9NRsmHbzmKPC8H-R6VSLg">https://www.youtube.com/channel/UCN9NRsmHbzmKPC8H-R6VSLg</a><br />📎 patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/KOOKIESTAETAS">https://www.patreon.com/KOOKIESTAETAS</a><br />📎 twitter: <a rel="nofollow" target="blank" href="https://twitter.com/kookiestaetas">https://twitter.com/kookiestaetas</a><br />📎 instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/kookiestaet...">https://www.instagram.com/kookiestaet...</a><br />📎 twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/kookiestaetasyt">https://www.twitch.tv/kookiestaetasyt</a><br /><br />#funny #crack #bts{% endraw %}
