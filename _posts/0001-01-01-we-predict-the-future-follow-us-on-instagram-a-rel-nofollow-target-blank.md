@@ -1,0 +1,15 @@
+---
+title: "WE PREDICT THE FUTURE"
+image: "https:\/\/i.ytimg.com\/vi\/BC31tpbdVXM\/hqdefault.jpg"
+vid_id: "BC31tpbdVXM"
+categories: "Comedy"
+tags: ["Sturniolo triplets","sturniolos from jubilee","sturniolos"]
+date: "2022-04-09T14:41:57+03:00"
+vid_date: "2022-03-18T21:30:04Z"
+duration: "PT23M46S"
+viewcount: "731840"
+likeCount: "41422"
+dislikeCount: ""
+channel: "Sturniolo Triplets"
+---
+{% raw %}Follow us on Instagram : <a rel="nofollow" target="blank" href="https://www.instagram.com/sturniolo.triplets">https://www.instagram.com/sturniolo.triplets</a> <br />Follow us on TikTok : <a rel="nofollow" target="blank" href="qhttps://www.tiktok.com/@sturniolo.triplets">qhttps://www.tiktok.com/@sturniolo.triplets</a><br />Follow us on Twitch : <a rel="nofollow" target="blank" href="https://www.twitch.tv/sturniolos">https://www.twitch.tv/sturniolos</a><br /><br /><br />Follow Chris on Instagram : <a rel="nofollow" target="blank" href="https://www.instagram.com/christophersturniolo">https://www.instagram.com/christophersturniolo</a><br />Follow Chris on TikTok : <a rel="nofollow" target="blank" href="https://www.tiktok.com/@chris.sturniolo">https://www.tiktok.com/@chris.sturniolo</a><br /><br /><br />Follow Nick on Instagram : <a rel="nofollow" target="blank" href="https://www.instagram.com/nicolassturniolo">https://www.instagram.com/nicolassturniolo</a> <br />Follow Nick on TikTok : <a rel="nofollow" target="blank" href="https://www.tiktok.com/@nicolassturniolo">https://www.tiktok.com/@nicolassturniolo</a><br /><br /><br />Follow Matt on Instagram <a rel="nofollow" target="blank" href="https://www.instagram.com/heyitsmatthew___">https://www.instagram.com/heyitsmatthew___</a><br />Follow Matt on TikTok : <a rel="nofollow" target="blank" href="https://www.tiktok.com/@mattsturniolo">https://www.tiktok.com/@mattsturniolo</a><br /><br /><br />Follow Yung Pleit on instagram <a rel="nofollow" target="blank" href="https://www.instagram.com/yungpleit">https://www.instagram.com/yungpleit</a><br />Follow Yung Pleit on Tiktok <a rel="nofollow" target="blank" href="https://www.tiktok.com/@yungpleit">https://www.tiktok.com/@yungpleit</a><br /><br /><br />Follow Madi on Instagram <a rel="nofollow" target="blank" href="https://www.instagram.com/madifilipowicz">https://www.instagram.com/madifilipowicz</a><br />Follow Madi on TikTok <a rel="nofollow" target="blank" href="https://www.tiktok.com/@madifilipowicz">https://www.tiktok.com/@madifilipowicz</a><br /><br /><br />Follow Alahna on instagram <a rel="nofollow" target="blank" href="https://instagram.com/alahna111">https://instagram.com/alahna111</a><br />Follow Alahna on tiktok <a rel="nofollow" target="blank" href="https://www.tiktok.com/@definitelynotalahna">https://www.tiktok.com/@definitelynotalahna</a><br /><br /><br /><br /><br /><br /><br />Twitch <a rel="nofollow" target="blank" href="https://www.twitch.tv/sturniolos">https://www.twitch.tv/sturniolos</a><br /><br /><br />Sturniolos Live youtube (Twitch streams) <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCufNiOm4agzDlWvwJoWPw2Q">https://www.youtube.com/channel/UCufNiOm4agzDlWvwJoWPw2Q</a>{% endraw %}
