@@ -1,0 +1,15 @@
+---
+title: "What You Desire, Desires You | You Are Not Separate From It | Wayne Dyer"
+image: "https:\/\/i.ytimg.com\/vi\/gDsOD_k54yg\/hqdefault.jpg"
+vid_id: "gDsOD_k54yg"
+categories: "Howto-Style"
+tags: ["what you desire desires you","what you want wants you","wayne dyer manifest your deepest desires"]
+date: "2022-04-09T15:51:36+03:00"
+vid_date: "2022-04-08T03:30:14Z"
+duration: "PT5M36S"
+viewcount: "3814"
+likeCount: "186"
+dislikeCount: ""
+channel: "Hellohappie Inspiration"
+---
+{% raw %}In this video, Wayne Dyer explains why What you desire, desires you. What you want, wants you. He speaks about how you are already connected and already at one with what you desire to have in your life through your connection to the One invisible force in the universe. You are not separate from that which you would like to attract in your life.<br /><br />🙏 See Wayne Dyer Playlist Here --- <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLLgIG1qO1-7ydmzXyoodubqn4nU2G3yO7">https://www.youtube.com/playlist?list=PLLgIG1qO1-7ydmzXyoodubqn4nU2G3yO7</a> <br /><br />➡➡➡ FREE Download: 10 Affirmations To Recite Daily And Start Your Day Happy, Peaceful &amp; Calm! <a rel="nofollow" target="blank" href="https://hellohappie.com/gift">https://hellohappie.com/gift</a><br /><br />💙For more Self-Empowerment resource, visit:<br /><a rel="nofollow" target="blank" href="https://hellohappie.com/blog">https://hellohappie.com/blog</a> (Self Development / Raising Vibration / Happiness Tips)<br /><br />➡➡➡ Check out these E-Books (All FREE On Kindle Unlimited!):<br /><br />Change Your Focus, Change Your Feelings (The 21 Happiness Perspectives)<br /><a rel="nofollow" target="blank" href="https://amzn.to/2XTgGAX">https://amzn.to/2XTgGAX</a> <br />100 Habits For Self-Love<br /><a rel="nofollow" target="blank" href="https://amzn.to/3msyZan">https://amzn.to/3msyZan</a>   <br />75 Things The Universe Wants To Tell You<br /><a rel="nofollow" target="blank" href="https://amzn.to/3zrbKkR">https://amzn.to/3zrbKkR</a> <br />101 Affirmations for Inner Peace &amp; Relaxation<br /><a rel="nofollow" target="blank" href="https://amzn.to/3knMJk7">https://amzn.to/3knMJk7</a> <br /><br />💙 Facebook Page <a rel="nofollow" target="blank" href="https://facebook.com/hellohappie">https://facebook.com/hellohappie</a>  <br />🙏 Buy Me A Coffee Page <a rel="nofollow" target="blank" href="https://buymeacoffee.com/hellohappie">https://buymeacoffee.com/hellohappie</a><br /><br />➡➡➡ Please feel free to Subscribe and hit the bell button so you'll get notified whenever new content is published. Thank you for the time! Blessings to you and namaste :)<br /><br />🙏 In accordance with fair use, this audio has been repurposed with the intent of educating and inspiring others. All copyrights go to their respective owners.<br /><br />💙 Background music by <a rel="nofollow" target="blank" href="https://www.bensound.com">https://www.bensound.com</a><br /><br />Some links above are affiliate links. Thank you for your support!<br /><br />#desire #thought #energy{% endraw %}
