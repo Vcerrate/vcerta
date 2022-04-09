@@ -1,0 +1,15 @@
+---
+title: "Turning a Thin Bradford Pear Bowl with Sam Angelo"
+image: "https:\/\/i.ytimg.com\/vi\/iTr-QtEOGSI\/hqdefault.jpg"
+vid_id: "iTr-QtEOGSI"
+categories: "Education"
+tags: ["woodturning","lathe","wyomingwoodturner"]
+date: "2022-04-09T03:27:38+03:00"
+vid_date: "2022-04-03T16:30:03Z"
+duration: "PT24M14S"
+viewcount: "3892"
+likeCount: "227"
+dislikeCount: ""
+channel: "WYOMINGWOODTURNER"
+---
+{% raw %}Sam turns a 7&quot; Bradford Pear bowl to a wall thickness of 3mm/1/8 inch.  Fun to watch......Please subscribe for a weekly YouTube, woodturning video....and share this video.<br /><br />See links to other related videos published by Sam Angelo in past years.  <br />Two more videos on turning &quot;thin&quot;.....<br />Natural Edge Holly Bowl <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=pQsz9mYbKa0&amp;t=1s">https://www.youtube.com/watch?v=pQsz9mYbKa0&amp;t=1s</a><br /><br />Natural Edge, Wet-turned test bowl<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=_27WsSs8hbw&amp;t=550s">https://www.youtube.com/watch?v=_27WsSs8hbw&amp;t=550s</a><br /><br />Chapter Time Codes  Click on the time to jump to your desired topic in the video   Enjoy....<br />00:00 Introduction<br />00:48 Explanation of today’s project<br />01:29 Establishing a tenon<br />02:52 Starting to profile the bottom of the bowl<br />04:32 Working on the rim and inside of the bowl<br />07:03 Turning decorative grooves with a point tool<br />10:12 Starting to turn this bowl thin<br />15:43 Final cuts on the bottom/establishing proper thickness<br />19:33 Looking at the thickness using a light<br />20:46 Reverse chucking to finish the foot<br />23:23 The completed bowl and conclusion<br /><br />Thanks for watching my videos- <br />Please find my work on the following sites <a rel="nofollow" target="blank" href="http://www.wyomingwoodturner.com">http://www.wyomingwoodturner.com</a> <br />ETSY <a rel="nofollow" target="blank" href="https://www.etsy.com/shop/wyomingwoodturnercom">https://www.etsy.com/shop/wyomingwoodturnercom</a> <br />Send me a comment or question via e-mail: @---- samandcheryle@gmail.com <br /><br />I am now an authorized Robust lathe dealer. Please contact me if you have any questions. As a bonus for purchasing a Robust lathe through my dealership, I will provide one full day (6 hours) of instruction in my shop in Billings, Mt.   <br /><br />Interested in a Robust Lathe-watch my videos below on these fine, American made machines.<br />The Robust American Beauty Lathe: A Closer L<a rel="nofollow" target="blank" href="ookhttps://www.youtube.com/watch?v=gNZMbKB7c4I&amp;t=341s">ookhttps://www.youtube.com/watch?v=gNZMbKB7c4I&amp;t=341s</a><br />For more information on the Robust Sweet 16 wood lathe, watch my video: Sweet 16 lathe tour <a rel="nofollow" target="blank" href="https://tinyurl.com/uylxh72">https://tinyurl.com/uylxh72</a> <br />Scout Lathe Tour…Video from Sam Angelo <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=njFVFimn7bI&amp;t=26s">https://www.youtube.com/watch?v=njFVFimn7bI&amp;t=26s</a>{% endraw %}
