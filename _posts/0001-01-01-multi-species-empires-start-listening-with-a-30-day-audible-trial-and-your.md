@@ -1,0 +1,15 @@
+---
+title: "Multi-Species Empires"
+image: "https:\/\/i.ytimg.com\/vi\/jdsZn41x9aY\/hqdefault.jpg"
+vid_id: "jdsZn41x9aY"
+categories: "Science-Technology"
+tags: ["science","fiction","alien"]
+date: "2022-04-11T01:11:01+03:00"
+vid_date: "2022-04-10T16:17:26Z"
+duration: "PT36M58S"
+viewcount: "14006"
+likeCount: "1591"
+dislikeCount: ""
+channel: "Isaac Arthur"
+---
+{% raw %}Start listening with a 30-day Audible trial and your first audiobook is free. Visit <a rel="nofollow" target="blank" href="http://www.audible.com/isaac">http://www.audible.com/isaac</a> or text &quot;isaac&quot; to 500-500.<br />Interstellar civilizations home to hundreds of peacefully cooperating alien species are a common theme in science fiction, but are such civilizations likely or would we instead see conquest and xenocide?<br /><br />Visit our Website: <a rel="nofollow" target="blank" href="http://www.isaacarthur.net">http://www.isaacarthur.net</a><br />Support us on Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/IsaacArthur">https://www.patreon.com/IsaacArthur</a><br />Support us on Subscribestar: <a rel="nofollow" target="blank" href="https://www.subscribestar.com/isaac-arthur">https://www.subscribestar.com/isaac-arthur</a><br />Facebook Group: <a rel="nofollow" target="blank" href="https://www.facebook.com/groups/1583992725237264/">https://www.facebook.com/groups/1583992725237264/</a><br />Reddit: <a rel="nofollow" target="blank" href="https://www.reddit.com/r/IsaacArthur/">https://www.reddit.com/r/IsaacArthur/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/Isaac_A_Arthur">https://twitter.com/Isaac_A_Arthur</a> on Twitter and RT our future content.<br />SFIA Discord Server: <a rel="nofollow" target="blank" href="https://discord.gg/53GAShE">https://discord.gg/53GAShE</a><br /><br />Listen or Download the audio of this episode from Soundcloud: Episode's Audio-only version: <a rel="nofollow" target="blank" href="https://soundcloud.com/isaac-arthur-148927746/multi-species-empires">https://soundcloud.com/isaac-arthur-148927746/multi-species-empires</a><br />Episode's Narration-only version: <a rel="nofollow" target="blank" href="https://soundcloud.com/isaac-arthur-148927746/covert-aliens-narration-only">https://soundcloud.com/isaac-arthur-148927746/covert-aliens-narration-only</a><br /><br />Credits:<br />Alien Civilizations: Multi-Species Empires<br />Science &amp; Futurism with Isaac Arthur<br />Episode 337a, April 10 2022<br />Written, Produced &amp; Narrated by Isaac Arthur<br /><br />Editors:<br />David McFarlane<br /><br />Cover Art:<br />Jakub Grygier <a rel="nofollow" target="blank" href="https://www.artstation.com/jakub_grygier">https://www.artstation.com/jakub_grygier</a><br /><br />Music by:<br />Martin Rezny, &quot;Lifelight&quot;<br />Denny Schneidemesser, &quot;Bridge Ambience&quot;<br />Stellardrone, &quot;A Moment of Stillness&quot;<br />Aerium, &quot;Fifth Star of Aldebaran&quot;<br />Miguel Johnson, &quot;Strange New World&quot;{% endraw %}
