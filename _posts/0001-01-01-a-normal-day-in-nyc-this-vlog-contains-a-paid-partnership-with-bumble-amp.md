@@ -1,0 +1,15 @@
+---
+title: "A Normal Day in NYC"
+image: "https:\/\/i.ytimg.com\/vi\/ge4Kp5vAb7M\/hqdefault.jpg"
+vid_id: "ge4Kp5vAb7M"
+categories: "People-Blogs"
+tags: ["brendan fallis","brendan fallis youtube","youtube brendan fallis"]
+date: "2022-04-11T15:15:29+03:00"
+vid_date: "2022-04-06T20:00:21Z"
+duration: "PT33M36S"
+viewcount: "45390"
+likeCount: "1900"
+dislikeCount: ""
+channel: "Brendan Fallis"
+---
+{% raw %}**This vlog contains a paid partnership with Bumble &amp; Bumble**<br /><br />3 Featured products here:<br /><br />Mask - <a rel="nofollow" target="blank" href="https://bit.ly/3DLkV2u">https://bit.ly/3DLkV2u</a><br />Go Big Treatment - <a rel="nofollow" target="blank" href="https://bit.ly/3KaQBk0">https://bit.ly/3KaQBk0</a><br />Dryspun - <a rel="nofollow" target="blank" href="https://bit.ly/3r3wcG0">https://bit.ly/3r3wcG0</a><br /><br />Home updates, P updates, food updates, workout updates, life updates!<br />All is moving along and forward we go.<br />Just another week in NY in our temp Jolie on Greenwich home and getting our office ready to be much better!  Stay tuned for that.<br />Also worked out with @kirastokesfit and you need ot check out her app.<br />Going to do another vid on that shortly.<br /><br />Thanks for watching as always!<br /><br />Subscribe: <a rel="nofollow" target="blank" href="http://bit.ly/SubBrendanFallis">http://bit.ly/SubBrendanFallis</a> <br />Watch the newest videos: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLMJxBqNtgqOn8jDOoAFfAeqjofbo8dPce&amp;playnext=1&amp;index=2">https://youtube.com/playlist?list=PLMJxBqNtgqOn8jDOoAFfAeqjofbo8dPce&amp;playnext=1&amp;index=2</a><br /> <br />Follow Brendan Fallis<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/brendanfallis">https://www.instagram.com/brendanfallis</a><br />Tiktok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@brendanfallis">https://www.tiktok.com/@brendanfallis</a><br /><br />Follow Hannah Fallis Bronfman: <br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/hannahbronfman">https://instagram.com/hannahbronfman</a><br />Tiktok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@hannahbronfman">https://www.tiktok.com/@hannahbronfman</a><br /> <br /><br />Always Vlogging With:<br /><br />Vlogging Camera: GoPro Hero 10<br /><a rel="nofollow" target="blank" href="https://geni.us/xt96e2">https://geni.us/xt96e2</a><br /> <br />Drone: DJI Mavik Air 2<br /><a rel="nofollow" target="blank" href="https://geni.us/jBga4Gp">https://geni.us/jBga4Gp</a><br /> <br /> <br />About Brendan Fallis:<br />Welcome to the official Brendan Fallis Youtube channel!  I’m a gentleman by day, DJ by night hailing from Canada.  On this channel, you can find vlogs, travel videos from New York to around the world, fashion forward style essentials, home DIY projects, interior design &amp; renovations, and more!<br /> <br /> <br />Edited &amp; Shot by: www.instragram.com/faintfault{% endraw %}
