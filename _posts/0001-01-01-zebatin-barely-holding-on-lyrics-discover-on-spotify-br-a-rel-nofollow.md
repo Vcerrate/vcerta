@@ -1,0 +1,15 @@
+---
+title: "Zebatin - Barely Holding On (Lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/jn65dXxsqkI\/hqdefault.jpg"
+vid_id: "jn65dXxsqkI"
+categories: "Music"
+tags: ["aurora vibes","auroravibes","lofi songs with lyrics"]
+date: "2022-04-12T00:37:15+03:00"
+vid_date: "2020-10-19T21:09:09Z"
+duration: "PT2M52S"
+viewcount: "150351"
+likeCount: "2945"
+dislikeCount: ""
+channel: "Aurora Vibes"
+---
+{% raw %}Discover on Spotify<br />• <a rel="nofollow" target="blank" href="https://auroravibes.ffm.to/spotify">https://auroravibes.ffm.to/spotify</a><br /><br />Stream &amp; Download &quot;barely holding on&quot; by zebatin<br />• <a rel="nofollow" target="blank" href="https://auroravibes.ffm.to/barely">https://auroravibes.ffm.to/barely</a><br /><br />Aurora Vibes Playlists<br />• <a rel="nofollow" target="blank" href="https://auroravibes.ffm.to/playlists">https://auroravibes.ffm.to/playlists</a><br /><br />Support zebatin<br />• <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/0Ym5QNtGZn5e9Lrs9Y1jWz">https://open.spotify.com/artist/0Ym5QNtGZn5e9Lrs9Y1jWz</a><br />• <a rel="nofollow" target="blank" href="https://instagram.com/zebatinmusic">https://instagram.com/zebatinmusic</a><br /><br />Photo by Adam Neumann <br />• <a rel="nofollow" target="blank" href="https://unsplash.com">https://unsplash.com</a><br /><br />Follow Aurora Vibes<br />• Instagram: <a rel="nofollow" target="blank" href="https://auroravibes.ffm.to/instagram">https://auroravibes.ffm.to/instagram</a><br />• Twitter: <a rel="nofollow" target="blank" href="https://auroravibes.ffm.to/twitter">https://auroravibes.ffm.to/twitter</a><br />• Facebook: <a rel="nofollow" target="blank" href="https://auroravibes.ffm.to/facebook">https://auroravibes.ffm.to/facebook</a><br /><br />Lyrics for &quot;barely holding on&quot; by zebatin<br />• Vocals Performed by: zebatin<br /><br />(Save me from myself tonight, tonight)<br />Save me from myself tonight, tonight<br />Save me from myself tonight, tonight<br /><br />It’s been a while<br />But I hold my head up<br />I took my time<br />But I think I’m better now<br /><br />It’s been a while now<br />But I still remember your face<br />Like it was just yesterday<br /><br />And all these memories we had are lost<br />I struggle to keep up with the negative thoughts<br />I keep going back to our favourite spots<br />Hoping that you’d be there, but you’re always not<br /><br />And I’m barely holding on now<br />But I made it this far somehow<br />And I’m barely holding on now<br />But I made it this far somehow<br /><br />Save me from myself tonight<br />'Cause I won’t last much longer<br />Save me from myself tonight<br />'Cause I won’t last much longer<br /><br />Save me from myself tonight<br />And I can’t hold on and I can’t hold on<br />Save me from myself tonight<br />And I can’t hold on much longer <br /><br />Extra Tags<br />• zebatin - barely holding on (Lyrics)<br />• zebatin - barely holding on (Lyric Video)<br /><br />#zebatin #barelyholdingon #AuroraVibes{% endraw %}
