@@ -1,0 +1,15 @@
+---
+title: "6am PRODUCTIVE & *REALISTIC* Morning Routine (on a good day) | daily habits, workouts & healthy food"
+image: "https:\/\/i.ytimg.com\/vi\/eyt6GGzDVsk\/hqdefault.jpg"
+vid_id: "eyt6GGzDVsk"
+categories: "People-Blogs"
+tags: ["anna neubert","day in the life","morning routine"]
+date: "2022-04-11T07:19:00+03:00"
+vid_date: "2022-04-10T16:00:16Z"
+duration: "PT12M2S"
+viewcount: "12046"
+likeCount: "1196"
+dislikeCount: ""
+channel: "Anna Neubert"
+---
+{% raw %}go to athleticgreens.com/annaneubert to get started on your first purchase and receive a FREE 1-year supply of Vitamin D and 5 Travel Packs. Thank you Athletic Greens for sponsoring today's video! 🌱<br /><br />Hey guys and welcome back! I hope you have a good morning, day or night - let's chat in the comments :) ❤️<br />#morningroutine #routine #dayinthelife<br /><br />FAQ<br />How old are you? 23, born 09/09/98<br />Where are you from? Germany <br />Why is your english so good? I practiced a lot and watch everything in english<br />How tall are you? 5.7ft // 170cm <br /><br />instagram: @annaneubrt<br />Business inquiries: anna@ohey-mgmt.de <br /><br />About AG1:<br />AG1 by Athletic Greens is a comprehensive, all-in-one nutrition drink engineered to fill the nutritional gaps in your diet and support your body’s nutritional needs across four pillars of health: Gut health, Immune support, Energy and Recovery! It’s packed with 75 vitamins minerals, whole-food sourced ingredients and combines the perfect amount of micronutrients, absorption and taste to jumpstart your daily routine. AG1 is available in the US, Canada, UK and Europe<br /><br />MUSIC <br />Music by Naomi - Osaka - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=51873D12">https://thmatc.co/?l=51873D12</a><br />Music by MOZART - Wait Out Here - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=0E775018">https://thmatc.co/?l=0E775018</a><br />Music by Iz Divine - End Scene - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=F5135D9C">https://thmatc.co/?l=F5135D9C</a><br />Music by Public Library Commute  - Across The Room - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=4C9218C6">https://thmatc.co/?l=4C9218C6</a><br />Music by Tray Haggerty - 2 Sides (clean) - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=41B0FC7E">https://thmatc.co/?l=41B0FC7E</a><br />Music by Todd Carey &amp; Shwayze - Too Soon (feat. Shwayze) - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=13023B67">https://thmatc.co/?l=13023B67</a><br />Music by Sonic Nothing - Blush - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=926EC9F2">https://thmatc.co/?l=926EC9F2</a><br />Music by Chief Takinawa - Caffe Latte - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=8F9697D2">https://thmatc.co/?l=8F9697D2</a><br />Music by Nicky Youre - Sunroof - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=8BC02E72">https://thmatc.co/?l=8BC02E72</a><br />&amp; from Epidemic Sound :){% endraw %}
