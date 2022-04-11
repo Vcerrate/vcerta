@@ -1,0 +1,15 @@
+---
+title: "The Tangiwai Railway Bridge Collapse Disaster 1953  | A Brief History of Documentary"
+image: "https:\/\/i.ytimg.com\/vi\/v_LvrbLpGnU\/hqdefault.jpg"
+vid_id: "v_LvrbLpGnU"
+categories: "Education"
+tags: ["tangiwai disaster","bridge disaster","tangiwai"]
+date: "2022-04-11T10:59:04+03:00"
+vid_date: "2022-04-09T13:00:24Z"
+duration: "PT12M23S"
+viewcount: "80966"
+likeCount: "4475"
+dislikeCount: ""
+channel: "Plainly Difficult"
+---
+{% raw %}Learn while you're at home with Plainly Difficult!<br /><br />#disaster #documentary #history #TrueStories​<br /><br />The Tangiwai disaster occurred at on 24 December 1953 when a railway bridge over the Whangaehu River collapsed beneath an express passenger train at Tangiwai, North Island, New Zealand. <br /><br />The disaster resulted in the loss of 151 people.<br /><br />It was found the disaster was caused by the failure of a Tephra Dam resulting in a Lahar Flood which destroyed the bridge. <br /><br />00:00 Intro<br />00:58 Background<br />04:57 The Train<br />06:06 The Disaster <br />07:30 Aftermath<br />08:41 Investigation<br />11:31 Rating<br /><br />Want to become a channel member?<a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCb0MyY46T9ZYOzDHkYnIoXg/join">https://www.youtube.com/channel/UCb0MyY46T9ZYOzDHkYnIoXg/join</a><br /><br />Paypal Donate Link: <a rel="nofollow" target="blank" href="https://www.paypal.com/cgi-bin/webscr?cmd=_s-xclick&amp;hosted_button_id=KC293ZJVG2VZG&amp;source=url">https://www.paypal.com/cgi-bin/webscr?cmd=_s-xclick&amp;hosted_button_id=KC293ZJVG2VZG&amp;source=url</a><br /><br />Help the Channel Grow Like, Comment &amp; Subscribe! <br /><br />Subscribe Here: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCb0M...">https://www.youtube.com/channel/UCb0M...</a><br /><br />Equipment used in this video:<br />Rode NTG3, Audient ID4, MacBook Pro 16, Hitfilm, Garage Band<br />Check out My Twitter:<br /><a rel="nofollow" target="blank" href="https://twitter.com/Plainly_D">https://twitter.com/Plainly_D</a><br /><br />Check out these other great channels:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/dominotitanic20/community">https://www.youtube.com/user/dominotitanic20/community</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/CynicalC...">https://www.youtube.com/user/CynicalC...</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/JabzyJoe">https://www.youtube.com/user/JabzyJoe</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCGHDQtN_vzFYJaq_Fx1eikg">https://www.youtube.com/channel/UCGHDQtN_vzFYJaq_Fx1eikg</a><br /><br />Sources:<br /><br /><a rel="nofollow" target="blank" href="https://www.environmentandsociety.org/arcadia/lahar-meets-locomotive-new-zealands-tangiwai-railway-disaster-christmas-eve-1953">https://www.environmentandsociety.org/arcadia/lahar-meets-locomotive-new-zealands-tangiwai-railway-disaster-christmas-eve-1953</a>{% endraw %}
