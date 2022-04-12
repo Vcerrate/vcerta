@@ -1,0 +1,15 @@
+---
+title: "The Durutti Column - La Douleur | MUSIC TO OBSERVE"
+image: "https:\/\/i.ytimg.com\/vi\/gkfkKlf6FfU\/hqdefault.jpg"
+vid_id: "gkfkKlf6FfU"
+categories: "Music"
+tags: ["the durutti column","durutti column","top music"]
+date: "2022-04-12T20:17:46+03:00"
+vid_date: "2021-06-13T17:09:50Z"
+duration: "PT6M52S"
+viewcount: "12"
+likeCount: "1"
+dislikeCount: ""
+channel: "Alger Landau"
+---
+{% raw %}I absolutely hate zoos. The greatest excuse for their existence is that people couldn't have the opportunity to have close encounters with animals. Well, we can't have anything, and locking animals it's not a way of observing and studying, it's a way of imprisonment, as simple as it is. If we really want to explore the animal kingdom closely, we get a job at Discovery Channel, National Geographic, Animal Planet or whatever the fuck, I don't know, you name it, or through responsible environment-caring safaris for scientists, nature reserves or... maybe expand technological achievements and have huge museums of anthropological studies not only with dinosaur bones, but with enormous screens for perpetual wildlife documentaries, animatronics of real-size animals, dunno... whatever... I'm digressing... anything but zoos. They're torture. An eternal forced quarantine for animals. (These images were filmed at the City Zoo of León, Gto. over a period of three years).<br /><br />&quot;MUSIC TO OBSERVE&quot; is a personal project I started making in January 2019 as a tribute to The Durutti Column, the astonishing and legendary dream-pop band founded in 1978 by Vini Reilly and Factory Records' masters Tony Wilson and Alan Erasmus.<br /><br />Since arriving in Mexico in 2013, I have collected some images from different corners I have been to. Many of these images seemed salvageable enough to start this audiovisual tribute to one of my favorite bands of all time, whose music inspires me beyond description. Being the music an absolute dreamlike wonder full of textures and rhythms, I decided to edit these videos as closely as possible to the indescribable tones of this excellent musicians. This project helps me to safeguard images that I recorded to which I'm very fond of, regardless of whether they are good or bad, while taking the opportunity to create visual sketches with total dedication to music. I hope you enjoy it.<br /><br />+++ T H E   D U R U T T I   C O L U M N +++<br />OFFICIAL WEBSITE: <a rel="nofollow" target="blank" href="https://www.thedurutticolumn.com/">https://www.thedurutticolumn.com/</a><br />SPOTIFY: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/7fh7bwX9qV60tLxxsp9bTe">https://open.spotify.com/artist/7fh7bwX9qV60tLxxsp9bTe</a><br />GIGOGRAPHY: <a rel="nofollow" target="blank" href="https://docs.google.com/document/u/1/d/1L6FNtF-dtEhAtwBgkq4w5TGmTSHC3AmFof8Su448Fkg/pub">https://docs.google.com/document/u/1/d/1L6FNtF-dtEhAtwBgkq4w5TGmTSHC3AmFof8Su448Fkg/pub</a><br /><br />#thedurutticolumn #vinireilly #animalrights{% endraw %}
