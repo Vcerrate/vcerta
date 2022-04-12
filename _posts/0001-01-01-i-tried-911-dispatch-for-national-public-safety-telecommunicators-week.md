@@ -1,0 +1,15 @@
+---
+title: "I Tried 911 Dispatch"
+image: "https:\/\/i.ytimg.com\/vi\/sKD-bp8UJmE\/hqdefault.jpg"
+vid_id: "sKD-bp8UJmE"
+categories: "Entertainment"
+tags: ["911","operator","dispatch"]
+date: "2022-04-12T14:27:25+03:00"
+vid_date: "2022-04-10T16:00:29Z"
+duration: "PT15M50S"
+viewcount: "594970"
+likeCount: "43248"
+dislikeCount: ""
+channel: "Michelle Khare"
+---
+{% raw %}For National Public Safety Telecommunicators Week I trained with the @South Metro Fire Rescue Centennial, Colorado 911 Communications Center to see what it takes to be a 911 dispatcher.<br /><br />💪🏽 Download my workout app ► <a rel="nofollow" target="blank" href="https://MKfit.co">https://MKfit.co</a><br />👾 Join our Discord Community ► <a rel="nofollow" target="blank" href="https://discord.gg/FCMYanYAvj">https://discord.gg/FCMYanYAvj</a><br />🎁 Check out our merch ► <a rel="nofollow" target="blank" href="https://fanjoy.co/MichelleKhare">https://fanjoy.co/MichelleKhare</a><br />🎓 Enroll in Challenge Accepted Academy ► <a rel="nofollow" target="blank" href="https://nasacademy.com/michelle">https://nasacademy.com/michelle</a><br /><br />Special thanks to Eric Hurst at South Metro Fire Rescue for making this episode possible! Be sure to subscribe to the SMFR YouTube channel to learn more about the amazing work they do.<br /><br />SMFR:<br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCeQ92NVNJQvuRuQ8GVAlytw">https://www.youtube.com/channel/UCeQ92NVNJQvuRuQ8GVAlytw</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/southmetropio">https://www.instagram.com/southmetropio</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/SouthMetroPIO">https://twitter.com/SouthMetroPIO</a><br />Website: <a rel="nofollow" target="blank" href="https://www.southmetro.org/">https://www.southmetro.org/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://m.facebook.com/SouthMetroPIO/">https://m.facebook.com/SouthMetroPIO/</a><br /><br />TEAM MK:<br />Directed by Garrett Kennell ► <a rel="nofollow" target="blank" href="http://www.instagram.com/garrettkennell​">http://www.instagram.com/garrettkennell​</a><br />Edited by Silas Orteza ► <a rel="nofollow" target="blank" href="http://www.silasorteza.com/​">http://www.silasorteza.com/​</a><br />Production Coordinator - Iris Sullivan<br />Assistant Producer - Carissa S.<br />Director of Photography - Kevin Stiller ► <a rel="nofollow" target="blank" href="https://www.kevinstiller.com">https://www.kevinstiller.com</a><br /><br />Follow me on twitter ► <a rel="nofollow" target="blank" href="https://twitter.com/MichelleKhare">https://twitter.com/MichelleKhare</a><br />Follow me on instagram ► <a rel="nofollow" target="blank" href="https://www.instagram.com/MichelleKhare">https://www.instagram.com/MichelleKhare</a><br />Follow me on twitch ► <a rel="nofollow" target="blank" href="https://www.twitch.tv/michellekhare">https://www.twitch.tv/michellekhare</a>{% endraw %}
