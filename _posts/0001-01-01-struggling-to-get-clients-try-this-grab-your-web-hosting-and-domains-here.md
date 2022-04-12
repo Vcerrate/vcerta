@@ -1,0 +1,15 @@
+---
+title: "Struggling to get clients? Try this!"
+image: "https:\/\/i.ytimg.com\/vi\/H_-AkS_Xuuw\/hqdefault.jpg"
+vid_id: "H_-AkS_Xuuw"
+categories: "People-Blogs"
+tags: ["Struggling","clients?","this!"]
+date: "2022-04-12T19:03:43+03:00"
+vid_date: "2022-04-12T14:00:07Z"
+duration: "PT10M55S"
+viewcount: "600"
+likeCount: "113"
+dislikeCount: ""
+channel: "Abi Connick"
+---
+{% raw %}Grab your web hosting and domains here: <a rel="nofollow" target="blank" href="https://www.hostinger.com/abi">https://www.hostinger.com/abi</a><br />Use code ‘ABI’ for up to 91% off yearly plans!!<br /><br />Be sure to subscribe to the channel so you don't miss videos every Tuesday at 3pm.<br /><br />Grab your FREEBIES: <a rel="nofollow" target="blank" href="https://www.abiconnick.co.uk/shop">https://www.abiconnick.co.uk/shop</a><br /><br />Want to see what i get up to behind the scenes?<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/itsabiconnick">https://www.instagram.com/itsabiconnick</a><br />Pinterest: <a rel="nofollow" target="blank" href="https://www.pinterest.co.uk/itsabiconnick">https://www.pinterest.co.uk/itsabiconnick</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@abiconnick">https://www.tiktok.com/@abiconnick</a><br /><br />Below are a list of useful links to things that I can't live without in my business. Some links may be an affiliate link which means i get a little bit of money when you purchase through my link which helps support this channel. (You're awesome if you do!!).<br /><br />Go to site for mockups and fonts: <a rel="nofollow" target="blank" href="https://1.envato.market/abidesign">https://1.envato.market/abidesign</a><br /><br />Make editable design templates for clients. 30 day free trial: <a rel="nofollow" target="blank" href="https://partner.canva.com/c/2666876/647168/10068">https://partner.canva.com/c/2666876/647168/10068</a><br /><br />30 days Free of Skillshare Classes: <a rel="nofollow" target="blank" href="https://skillshare.eqcm.net/abiconnick">https://skillshare.eqcm.net/abiconnick</a><br /><br />Looking to send out funky email newsletters for your business? Grab 50% off your first-year subscription: <a rel="nofollow" target="blank" href="https://flodesk.com/c/BE047M">https://flodesk.com/c/BE047M</a><br /><br />Music used in my videos (get 2 months free) : <a rel="nofollow" target="blank" href="https://bit.ly/3BcSs33">https://bit.ly/3BcSs33</a><br /><br />Filming Camera: <a rel="nofollow" target="blank" href="https://amzn.to/2U7E77B">https://amzn.to/2U7E77B</a><br /><br />Timestamp:<br />00:00 Why you can't get clients!<br />00:40 How to actually attract clients<br />01:30 Know, Like &amp; Trust Concept!<br />02:08 Steps to getting clients<br />04:10 Step one - How to grab attention<br />05:14 Action Points to get clients<br />06:57 Step two - Being Liked<br />08:22 Action Points to get clients<br />09:15 Step three - Trust<br />10:09 The main thing that helped me get clients<br />10:35 Watch this next!{% endraw %}
