@@ -1,0 +1,15 @@
+---
+title: "What is Causing Bitcoin to Crash? Crypto Investors Fear What’s Coming Next!"
+image: "https:\/\/i.ytimg.com\/vi\/Qlwpx5H2Q-c\/hqdefault.jpg"
+vid_id: "Qlwpx5H2Q-c"
+categories: "Education"
+tags: ["jason pizzino","buy bitcoin australia","best crypto exchange australia"]
+date: "2022-04-12T12:17:08+03:00"
+vid_date: "2022-04-12T02:20:56Z"
+duration: "PT16M"
+viewcount: "13155"
+likeCount: "1348"
+dislikeCount: ""
+channel: "Jason Pizzino"
+---
+{% raw %}🔥 Patreon (16% OFF Annual Membership) <a rel="nofollow" target="blank" href="https://tiacrypto.com/tia-lite/">https://tiacrypto.com/tia-lite/</a><br />🔥 Free &quot;Insider Investor&quot; Newsletter <a rel="nofollow" target="blank" href="https://tiacrypto.com/subscribe/">https://tiacrypto.com/subscribe/</a><br />💰 ByBit, Up to $4100 Signup Bonus (Deposit $10) <a rel="nofollow" target="blank" href="https://partner.bybit.com/b/pizza">https://partner.bybit.com/b/pizza</a><br /><br />Helpful Links:<br />✅ Swyftx, Best Crypto Exchange in Australia ($10 Free BTC) <a rel="nofollow" target="blank" href="https://bit.ly/2YsStBG">https://bit.ly/2YsStBG</a><br />⭐️ Binance (Best for Altcoin Gems!) 10% Off Fees <a rel="nofollow" target="blank" href="https://bit.ly/3iQLzwP">https://bit.ly/3iQLzwP</a><br />📈 TradingView, Charting Software ($30 Off) <a rel="nofollow" target="blank" href="https://bit.ly/3hdaaLY">https://bit.ly/3hdaaLY</a><br />🔴 iTrust Capital, Trade Crypto Tax-Free ($100 Free Credit) <a rel="nofollow" target="blank" href="https://itrust.capital/Jason">https://itrust.capital/Jason</a><br />💰 Koinly, Crypto Tax Reporting (10% Off) <a rel="nofollow" target="blank" href="https://koinly.io/?via=5AE7F925">https://koinly.io/?via=5AE7F925</a><br />🔑 Ledger Nano X (Safe Crypto Wallet) <a rel="nofollow" target="blank" href="https://bit.ly/3i4NoqA">https://bit.ly/3i4NoqA</a><br />📸 Instagram <a rel="nofollow" target="blank" href="https://www.instagram.com/jason.pizzino">https://www.instagram.com/jason.pizzino</a><br />🔷 Twitter <a rel="nofollow" target="blank" href="https://twitter.com/jasonpizzino">https://twitter.com/jasonpizzino</a><br />💵 Crypto Exit Strategy <a rel="nofollow" target="blank" href="http://youtu.be/m2N4Pg4uunw&amp;t=1s">http://youtu.be/m2N4Pg4uunw&amp;t=1s</a><br />🔐 Safest Cryptocurrency Wallets <a rel="nofollow" target="blank" href="http://youtu.be/7CxgDjkLy4E&amp;t=3s">http://youtu.be/7CxgDjkLy4E&amp;t=3s</a><br /><br />What is Causing Bitcoin to Crash? Crypto Investors Fear What’s Coming Next! In this video, we discuss the 3 Reasons why bitcoin and cryptos are crashing right now.<br /><br />➢ Financial Disclaimer: I am not a financial advisor. The ideas presented in this video are personal opinions and for educational and entertainment purposes only. You (and only you) are responsible for the financial decisions that you make.<br />➢ Affiliate Disclaimer: Some of the links on this page are affiliate links, meaning, at no additional cost to you, I may earn a commission if you click through and make a purchase and/or subscribe.<br />➢ Music: www.bensound.com #crypto #bitcoin #bitcoinnews{% endraw %}
