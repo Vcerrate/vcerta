@@ -1,0 +1,15 @@
+---
+title: "How To Customize Air Max 270's! 🎨👟 (GIVEAWAY)"
+image: "https:\/\/i.ytimg.com\/vi\/DWXJudpx2gk\/hqdefault.jpg"
+vid_id: "DWXJudpx2gk"
+categories: "Entertainment"
+tags: ["custom jordans","how to customize shoes","how to customize shoes for beginners"]
+date: "2022-04-12T14:43:01+03:00"
+vid_date: "2022-04-09T16:04:49Z"
+duration: "PT9M41S"
+viewcount: "13803"
+likeCount: "803"
+dislikeCount: ""
+channel: "Xavier Kickz"
+---
+{% raw %}How To Customize Air Max 270's! 🎨👟 (GIVEAWAY) In this video, I try to teach you how to customize your Air Max 270’s<br /><br />Materials Used In The Video <br />Posca Marker - <a rel="nofollow" target="blank" href="https://amzn.to/3kLWHux">https://amzn.to/3kLWHux</a><br />Angelus Paint - <a rel="nofollow" target="blank" href="https://angelusdirect.com/?rfsn=980233.e7542">https://angelusdirect.com/?rfsn=980233.e7542</a><br />Paint Brushes - <a rel="nofollow" target="blank" href="https://amzn.to/2VFOXTp">https://amzn.to/2VFOXTp</a><br />Heat Gun - <a rel="nofollow" target="blank" href="https://amzn.to/3xCIFkq">https://amzn.to/3xCIFkq</a><br />Air Brush - <a rel="nofollow" target="blank" href="https://amzn.to/2VFOXTp">https://amzn.to/2VFOXTp</a><br />Air Brush Compressor - <a rel="nofollow" target="blank" href="https://amzn.to/3lLNaqy">https://amzn.to/3lLNaqy</a><br />Canon Camera - <a rel="nofollow" target="blank" href="https://amzn.to/37rPaw1">https://amzn.to/37rPaw1</a><br />Sony Camera -<a rel="nofollow" target="blank" href="https://amzn.to/3s2rHuP">https://amzn.to/3s2rHuP</a><br /><br />If you want to know how to customize shoes here is a tutorial video I did<br /><br /><a rel="nofollow" target="blank" href="https://youtu.be/woIQlck0aQ8">https://youtu.be/woIQlck0aQ8</a><br /><br />If you want to know how to customize jordan here is a tutorial<br /><br /><a rel="nofollow" target="blank" href="https://youtu.be/_AiBMYVfdYk">https://youtu.be/_AiBMYVfdYk</a><br /><br />Here is a playlist I put together that has all my popular videos on this channel for you to watch :)<br /><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=gee0JHR6iyo">https://www.youtube.com/watch?v=gee0JHR6iyo</a><br /><br /><br />🔴JOIN THE XAVIER KICKZ FAMILY &amp; SUBSCRIBE BELOW 🔴: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC8RhCutmRSEUeKz7_Iamk2A">https://www.youtube.com/channel/UC8RhCutmRSEUeKz7_Iamk2A</a><br /><br />How did I do on today's video showing how to customize air max 270’s? Let me know in the comments!<br /><br />FOLLOW ME TO STAY UPDATED!<br />►Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/xavierkickz17">https://twitter.com/xavierkickz17</a><br />►Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/xavierkickz17">https://www.instagram.com/xavierkickz17</a><br />►Snapchat: <br /><br />~TURN ON YOUR NOTIFICATIONS BY HITTING THE BELL!<br /><br />Business Email: crewsxavier@yahoo.com<br /><br />#CustomShoes #CustomNikes #XavierKickz{% endraw %}
