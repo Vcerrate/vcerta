@@ -1,0 +1,15 @@
+---
+title: "5 Common HST Questions When Substantially Renovating A Property"
+image: "https:\/\/i.ytimg.com\/vi\/RbErY1lcsHU\/hqdefault.jpg"
+vid_id: "RbErY1lcsHU"
+categories: "Education"
+tags: ["Common","Questions","Substantially"]
+date: "2022-04-12T11:40:28+03:00"
+vid_date: "2022-01-19T20:00:12Z"
+duration: "PT15M6S"
+viewcount: "819"
+likeCount: "47"
+dislikeCount: ""
+channel: "RealEstateTaxTips"
+---
+{% raw %}Many investors do not know what to expect when they are flipping properties.<br /><br />In today's video, I’ll tell you about the 5 common HST questions asked when substantially renovating a property.<br /><br />If you have any questions or thoughts after watching this video, leave a comment below, and I’ll respond as soon as possible.<br /><br />#RealEstateTaxTips​ #RealEstateInvestors​​ #CanadianInvesting​ #realestateinvesting #hst #flippingproperties #renovatingaproperty #taxman #rentalpropertysales<br /><br />Don’t forget to subscribe to my channel for more videos on Canadian real estate and tax-saving strategies, so you don’t miss a thing!<br /><br />SUBSCRIBE TO OUR MAILING LIST AND CHECK OUT OUR BLOG: <a rel="nofollow" target="blank" href="https://realestatetaxtips.ca/youtube">https://realestatetaxtips.ca/youtube</a><br /><br />So you’ll receive weekly tax tips and free real estate investment resources.<br /><br />Want to PAY LESS TAX as a real estate investor? Get this FREE guide: <a rel="nofollow" target="blank" href="https://www.therealestateaccountants.ca/rei-report-yt">https://www.therealestateaccountants.ca/rei-report-yt</a><br /><br />FOLLOW ME ON SOCIAL MEDIA:<br />Facebook:<a rel="nofollow" target="blank" href="https://www.facebook.com/RealEstateTaxTips">https://www.facebook.com/RealEstateTaxTips</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/realestatetaxtips/">https://www.instagram.com/realestatetaxtips/</a><br /><br /><br />DISCLAIMER:<br /><br />Tax planning is a personalized decision and will depend on your situation, priorities, and risk tolerance. Consult with your own legal and tax advisors to ensure you get the advice you personalized for you.<br />The information contained in this video is for general information purposes only. <br />The information is provided by ECRB Consulting Inc., RealEstateTaxTips.ca, Cherry Chan Professional Corporation and Cherry Chan. <br />While we endeavour to keep the information up to date and correct, we make no representations or warranties of any kind, express or implied, about the completeness, accuracy, reliability, suitability, or availability to the article or the information, products, services, or related graphics contained on the presentation for any purpose. Any reliance you place on such information is therefore strictly at your own risk. <br />In no event will we be liable for any loss or damage, including without limitation, indirect or consequential loss or damage, or any loss or damage whatsoever arising from loss of data or profits arising out of or connected with the use of this information.{% endraw %}
