@@ -1,0 +1,15 @@
+---
+title: "Why Self-Awareness Will Fix Your Relationship | 6 Signs You Lack Self-awareness and 3 Steps to Grow"
+image: "https:\/\/i.ytimg.com\/vi\/eBA9YRSk6SA\/hqdefault.jpg"
+vid_id: "eBA9YRSk6SA"
+categories: "People-Blogs"
+tags: ["self-awareness know yourself","self-awareness in relationships","self-awareness in marriage"]
+date: "2022-04-12T17:15:20+03:00"
+vid_date: "2021-12-07T18:00:23Z"
+duration: "PT10M35S"
+viewcount: "1363"
+likeCount: "115"
+dislikeCount: ""
+channel: "RelationShots"
+---
+{% raw %}Why Self-Awareness Will Fix Your Relationship | 6 Signs You Lack Self-awareness and 3 Steps to Grow. Most couples spend the majority of their time and energy focused on increasing Relational Awareness. Things like how to communicate better, how to resolve conflict, and how to better understand your partner. Without healthy self-awareness many of those relational tools simply won't work. In this video we'll look at some signs you might not be self-aware and cover 3 steps to growing in self-awareness. <br /><br />DOWNLOAD A FREE GUIDE TO INTIMACY<br /><a rel="nofollow" target="blank" href="https://www.altaredmarriage.com/">https://www.altaredmarriage.com/</a><br /><br />ALTARED MARRIAGE MEMBERSHIP:<br /><a rel="nofollow" target="blank" href="https://www.altaredmarriage.com/membership">https://www.altaredmarriage.com/membership</a><br /><br />ONLINE COURSE: &quot;Closing the Communication Gap&quot; - 70% OFF NOW!!<br /><a rel="nofollow" target="blank" href="https://altaredmarriage.kartra.com/page/communication">https://altaredmarriage.kartra.com/page/communication</a><br /><br />FOLLOW ME ON SOCIAL MEDIA<br />Instagram | <a rel="nofollow" target="blank" href="https://www.instagram.com/altaredmarriage/">https://www.instagram.com/altaredmarriage/</a><br />Facebook | <a rel="nofollow" target="blank" href="https://www.facebook.com/altaredmarriage">https://www.facebook.com/altaredmarriage</a><br />Twitter | <a rel="nofollow" target="blank" href="https://twitter.com/marriagealtared">https://twitter.com/marriagealtared</a><br />Website | <a rel="nofollow" target="blank" href="https://altaredmarriage.com">https://altaredmarriage.com</a><br /><br />RESOURCES TO STRENGTHEN YOUR MARRIAGE<br /><a rel="nofollow" target="blank" href="https://www.amazon.com/Magnetic-Marriage-Characteristics-Irresistible-Marriages-ebook/dp/B082TZGMTF">https://www.amazon.com/Magnetic-Marriage-Characteristics-Irresistible-Marriages-ebook/dp/B082TZGMTF</a><br /><br />SPEAKER REQUESTS<br />Want to have Eric speak at your conference, retreat, event, or date night?<br /><a rel="nofollow" target="blank" href="https://www.altaredmarriage.com/connect/">https://www.altaredmarriage.com/connect/</a><br /><br />SUPPORT THE MINISTRY<br /><a rel="nofollow" target="blank" href="https://www.altaredmarriage.com/support/">https://www.altaredmarriage.com/support/</a><br /><br />MERCHANDISE<br /><a rel="nofollow" target="blank" href="https://teespring.com/stores/altaredmarriage?page=1">https://teespring.com/stores/altaredmarriage?page=1</a>{% endraw %}
