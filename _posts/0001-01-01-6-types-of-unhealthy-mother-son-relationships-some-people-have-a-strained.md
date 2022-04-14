@@ -1,0 +1,15 @@
+---
+title: "6 Types of Unhealthy Mother Son Relationships"
+image: "https:\/\/i.ytimg.com\/vi\/uz8sJ0ZNxUA\/hqdefault.jpg"
+vid_id: "uz8sJ0ZNxUA"
+categories: "Education"
+tags: ["mother son relationship","mother son relationships","son mother relationship"]
+date: "2022-04-14T05:38:10+03:00"
+vid_date: "2018-09-04T01:18:37Z"
+duration: "PT4M18S"
+viewcount: "369847"
+likeCount: "13009"
+dislikeCount: ""
+channel: "Psych2Go"
+---
+{% raw %}Some people have a strained mother son relationship, due to a sub-optimal upbringing from their mom. What are the harmful effects upon the child? Here are 6 types of unhealthy mother-son relationships. Toxic son mother relationships include mama's boy, mother &amp; lover, the absent mother, the boss &amp; subordinate, the hide &amp; seek mom, and the mom &amp; her trophy boy. Which type of unhealthy relationship do you experience? What other red flags have you seen in mother-son relationships? Let Psych2Go know in the comments!<br /><br />Here are 6 Types of Unhealthy Father Daughter Relationships: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=F4ZXpuXEmiw">https://www.youtube.com/watch?v=F4ZXpuXEmiw</a><br /><br />References: <br /><br />Children Without Mothers Are at Special Risk. (1994, May 1). The New York Times. Retrieved July 24, 2018.<br /><br />Gorska-Kanabus, Z. (2017, October 21). 6 Types of Unhealthy Mother-Child Relationships that Affect Our Adulthood. Aleteia. Retriever July 24, 2018.<br /><br />N, R. (2018). 3 Types of Unhealthy Mother-Son Relationships and How They Affect You. Learning-Mind. Retrieved July 24, 2018.<br /><br />Ways To Support Us: <br /><br /><br /><a rel="nofollow" target="blank" href="https://www.patreon.com/Psych2GoNow">https://www.patreon.com/Psych2GoNow</a><br /><br />Buy from our shop here: <br /><a rel="nofollow" target="blank" href="https://www.introvertpalace.com/">https://www.introvertpalace.com/</a><br /><br />Use the discount code: psych2go to get 10% off anything in the shop. <br /><br />Sign up with our sponsored link for affordable online counselling: <br /><a rel="nofollow" target="blank" href="http://betterhelp.com/Psych2Go">http://betterhelp.com/Psych2Go</a> <br /><a rel="nofollow" target="blank" href="http://betterhelp.com/Psych2Go">http://betterhelp.com/Psych2Go</a> <br /><br />Intro: Surey Camacho<br /><br />Project Manager: Wendy Hu<br />Community Manager: Priscilla Cha, Nicole Pridemore<br />Producer: Psych2Go<br /><br />Website: <a rel="nofollow" target="blank" href="http://psych2go.net">http://psych2go.net</a><br />Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/psych2go">http://twitter.com/psych2go</a><br />Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/psych2go">http://facebook.com/psych2go</a><br />Tumblr: <a rel="nofollow" target="blank" href="http://psych2go.me">http://psych2go.me</a><br />Patreon: <a rel="nofollow" target="blank" href="http://patreon.com/psych2gonow">http://patreon.com/psych2gonow</a><br /><br />Contact + editorial@psych2go.net{% endraw %}
