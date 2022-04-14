@@ -1,0 +1,15 @@
+---
+title: "Citroen C4: Handsome or hideous - you decide!"
+image: "https:\/\/i.ytimg.com\/vi\/81nM6g46gs0\/hqdefault.jpg"
+vid_id: "81nM6g46gs0"
+categories: "Autos-Vehicles"
+tags: ["CarGurus","Used Car Reviews","Car Buying Guides"]
+date: "2022-04-14T15:40:18+03:00"
+vid_date: "2022-04-14T11:00:07Z"
+duration: "PT7M27S"
+viewcount: "854"
+likeCount: "72"
+dislikeCount: ""
+channel: "CarGurus UK"
+---
+{% raw %}Let CarGurus help you find your next car:<br /><a rel="nofollow" target="blank" href="https://www.cargurus.co.uk/Cars/articles/buying_guides">https://www.cargurus.co.uk/Cars/articles/buying_guides</a><br /><br />The Citroen C4 has always been a dedicated follower of fashion. Previous iterations of the C4 have taken the form of the humble (and slightly humdrum) hatchback, and was the fashion of the time. Now that everybody seems to want an SUV, the latest C4 has taken the form of a crossover. And a very elaborately styled one at that.<br /><br />Now, the thing about elaborate styling is that it's very divisive. Depending on your outlook, it might look like the funkiest car you've ever seen, or it might look like the most frightful. Either way, you're not going to miss it. But does it have the substance to back up the style?<br /><br />Rebecca Jackson finds out in this CarGurus UK video review, which looks at the car's practicality, pricing, quality, equipment, technology and what it's like to drive.<br /><br />Read our full written review of the Citroen C4 here: <a rel="nofollow" target="blank" href="https://www.cargurus.co.uk/Cars/Citroen-C4-2020-Generation-Overview-mg441">https://www.cargurus.co.uk/Cars/Citroen-C4-2020-Generation-Overview-mg441</a><br /><br />CarGurus can help you find great deals on used cars from top-rated dealers in your area. To find out more, visit <a rel="nofollow" target="blank" href="https://www.cargurus.co.uk">https://www.cargurus.co.uk</a><br /><br />▬ Contents of this video ▬▬▬▬▬▬▬▬▬▬<br />00:00 – Introducing the Citroen C4<br />00:19 – Styling<br />01:23 – Practicality<br />01:50 – The rear seats<br />02:25 – The front seats<br />03:43 – What is it like to drive<br />06:22 – Final thoughts<br />07:04 – Let us know your thoughts<br /><br />▬▬▬▬▬▬▬▬▬▬ Follow us on social ▬▬▬▬▬▬▬▬▬▬<br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@cargurus_uk">https://www.tiktok.com/@cargurus_uk</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/CarGurusUK/">https://www.facebook.com/CarGurusUK/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/CarGurusUK">https://twitter.com/CarGurusUK</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/cargurus_uk/">https://www.instagram.com/cargurus_uk/</a><br />For more reviews, check out our US channel, too!<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/cargurus">https://www.youtube.com/c/cargurus</a><br />▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬<br /><br />#cargurusUK #Rebeccajackson #CitroenC4review{% endraw %}
