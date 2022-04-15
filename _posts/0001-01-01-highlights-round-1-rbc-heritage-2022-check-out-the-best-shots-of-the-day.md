@@ -1,0 +1,15 @@
+---
+title: "Highlights | Round 1 | RBC Heritage | 2022"
+image: "https:\/\/i.ytimg.com\/vi\/dLlLYzsyag8\/hqdefault.jpg"
+vid_id: "dLlLYzsyag8"
+categories: "Sports"
+tags: ["2022","2022 pga tour","2022 rbc heritage"]
+date: "2022-04-15T12:11:42+03:00"
+vid_date: "2022-04-14T23:36:05Z"
+duration: "PT3M21S"
+viewcount: "47576"
+likeCount: "508"
+dislikeCount: ""
+channel: "PGA TOUR"
+---
+{% raw %}Check out the best shots of the day from round 1 of the 2022 RBC Heritage, featuring Joaquin Niemann, Webb Simpson and Cameron Young.<br /><br />SUBSCRIBE to PGA TOUR now: <a rel="nofollow" target="blank" href="http://pgat.us/vBxcZSh">http://pgat.us/vBxcZSh</a><br /><br /><br /><br />This week will see five out of the world’s top ten players including Dustin Johnson, Justin Thomas and Collin Morikawa make their way from Augusta National to Harbour Town Golf Links in Hilton Head for the RBC Heritage. 2021 winner Stewart Cink returns to South Carolina looking for his fourth title at an event that has proved to be a happy hunting ground for the former Open Champion, having won previously in 2000, 2004 and 2021. Team Europe Ryder Cup captain Henrik Stenson will tee it up at RBC Heritage for the first time in a decade, while his U.S. counterpart Zach Johnson will be playing for the 17th time. 2020 winner and 72-hole course record holder Webb Simpson will be hoping to continue his good form at the event, achieving three top ten finishes in the past five years. Patrick Cantlay will be looking to improve upon his 2019 T3 finish to obtain his first TOUR victory since the 2021 TOUR Championship in which he finished one shot ahead of Jon Rahm.<br /><br /><br /><br />Welcome to the official YouTube channel of the PGA TOUR. Here you can find everything you need to stay up to date with the world’s foremost golf tour. Check in for highlights from every tournament plus player profiles, swing analysis and all the greatest shots and amazing moments.<br /><br /><br /><br />Check out <a rel="nofollow" target="blank" href="https://www.pgatour.com">https://www.pgatour.com</a> for complete coverage along with all the latest news, scoring, and stats!<br /><br /><br /><br />Follow PGA TOUR online:<br /><br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/pgatour/">https://instagram.com/pgatour/</a>  <br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/PGATour">https://www.facebook.com/PGATour</a>  <br /><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/PGATOUR">https://twitter.com/PGATOUR</a><br /><br />TikTok: <a rel="nofollow" target="blank" href="https://tiktok.com/@pgatour">https://tiktok.com/@pgatour</a><br /><br />SoundCloud: <a rel="nofollow" target="blank" href="https://soundcloud.com/pga">https://soundcloud.com/pga</a><br /><br /><br /><br />Sign up for exclusive coverage - <a rel="nofollow" target="blank" href="http://www.pgatourlive.com">http://www.pgatourlive.com</a><br /><br />PGA TOUR Superstore - <a rel="nofollow" target="blank" href="http://www.pgatoursuperstore.com/">http://www.pgatoursuperstore.com/</a>{% endraw %}
