@@ -1,0 +1,15 @@
+---
+title: "I Hid Inside a Fortnite Bush for For a Day in PUBLIC"
+image: "https:\/\/i.ytimg.com\/vi\/ErXarukNPi4\/hqdefault.jpg"
+vid_id: "ErXarukNPi4"
+categories: "Entertainment"
+tags: ["became","fortnite","bush"]
+date: "2022-04-15T14:44:37+03:00"
+vid_date: "2022-04-14T19:32:12Z"
+duration: "PT14M9S"
+viewcount: "538246"
+likeCount: "15330"
+dislikeCount: ""
+channel: "Matt and Rebecca"
+---
+{% raw %}Who can be the best fortnite bush wins $10,000.  It all started when Rebecca Zamolo created &quot;Last To Fall Asleep Wins My Baby.&quot; Next Matt and Rebecca posted &quot;A Rat Controls My Life For 24 Hours.&quot; The Game Master Network made &quot;Is the Game Master Replacing Us?.&quot; Matt goes into public with his best friends to see who is the best.  Would you ever do this or is it a bad idea? Thanks for watching my funny entertainment mystery vlog videos in 2022. <br /><br />Our New Game Master Mansion Mystery Book - <a rel="nofollow" target="blank" href="https://www.harpercollins.com/products/the-game-master-mansion-mystery-rebecca-zamolomatt-slays?variant=39715492724770">https://www.harpercollins.com/products/the-game-master-mansion-mystery-rebecca-zamolomatt-slays?variant=39715492724770</a><br /><br />More awesome videos! <br />Norris Nuts | PRANKING MY ENTIRE FAMILY (it gets hectic)<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=9zaz-arBF_o">https://www.youtube.com/watch?v=9zaz-arBF_o</a><br /><br />MrBeast | $10,000 Every Day You Survive Prison<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=hD1YtmKXNb4">https://www.youtube.com/watch?v=hD1YtmKXNb4</a><br /><br />SSSniperwolf | Lucky People Who Avoided Disaster<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Y3B8OSv90HY&amp;t=63s">https://www.youtube.com/watch?v=Y3B8OSv90HY&amp;t=63s</a><br /><br />Dhar Mann | Rich Man DESTROYS Shelter, He Lives To Regret It <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=o_MuQX1_dHw">https://www.youtube.com/watch?v=o_MuQX1_dHw</a><br /><br />Follow Rebecca:<br />YouTube: <a rel="nofollow" target="blank" href="https://youtube.com/rebeccazamolo1">https://youtube.com/rebeccazamolo1</a> <br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/rebeccazamolo">https://instagram.com/rebeccazamolo</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/rebeccazamolo">https://twitter.com/rebeccazamolo</a> <br />Snapchat: <a rel="nofollow" target="blank" href="https://snapchat.com/add/rebeccazamolo">https://snapchat.com/add/rebeccazamolo</a> <br /><br />Follow Matt:<br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/mattslayss">https://instagram.com/mattslayss</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/matt4music">https://twitter.com/matt4music</a> <br />Snapchat: <a rel="nofollow" target="blank" href="https://snapchat.com/add/mattspack.">https://snapchat.com/add/mattspack.</a>{% endraw %}
