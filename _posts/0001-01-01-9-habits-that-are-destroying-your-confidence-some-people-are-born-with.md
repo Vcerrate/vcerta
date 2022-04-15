@@ -1,0 +1,15 @@
+---
+title: "9 Habits That Are Destroying Your Confidence"
+image: "https:\/\/i.ytimg.com\/vi\/_RtUt0RsGMc\/hqdefault.jpg"
+vid_id: "_RtUt0RsGMc"
+categories: "Education"
+tags: ["Habits","Destroying","Confidence"]
+date: "2022-04-15T21:21:59+03:00"
+vid_date: "2021-03-24T16:04:17Z"
+duration: "PT6M50S"
+viewcount: "535847"
+likeCount: "37387"
+dislikeCount: ""
+channel: "Psych2Go"
+---
+{% raw %}Some people are born with an innate streak of confidence whilst others take time to develop confidence as they develop from children into adults. But there will be times when your confidence takes a knock, right? It is common to feel like you wish your confidence was better. Whilst other things that are out of control may impact your confidence such as other people, it is important to know which things you are in control of and how you can prevent yourself from destroying your own confidence. <br /><br />If you enjoy this video, check out 7 Signs You Lack Confidence <a rel="nofollow" target="blank" href="https://youtu.be/8JiFrGa2f98">https://youtu.be/8JiFrGa2f98</a> to find out if you are lacking self confidence. <br /><br />Writer: Jade Hamilton <br />Script Editor: Rida Batool <br />Script Manager: Kelly Soong <br />VO: Amanda Silvera<br />Animator: Yussie Feng (new animator)<br />YouTube Manager: Cindy Cheong <br /><br />References: <br /><a rel="nofollow" target="blank" href="http://bit.ly/3c3BR7O">http://bit.ly/3c3BR7O</a><br /><br />Join this channel to get access to perks:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCkJEpR7JmS36tajD34Gp4VA/join">https://www.youtube.com/channel/UCkJEpR7JmS36tajD34Gp4VA/join</a><br /><br />Would you like to animate for the team? Check out this: <a rel="nofollow" target="blank" href="https://psych2go.net/interested-in-animating-for-pych2go-faq/">https://psych2go.net/interested-in-animating-for-pych2go-faq/</a><br /><br />Interested in writing for psych2go? Check out: <br /><a rel="nofollow" target="blank" href="https://psych2go.net/script-writing-position-faqs/">https://psych2go.net/script-writing-position-faqs/</a><br /><br />We're also on a mission to make mental health accessible around the world. Many of our content are translated to other languages by fans and people like you guys :) <br /><br />1) Psych2Go Kr - <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCQh9DSw0L23tNULgxussrYg">https://www.youtube.com/channel/UCQh9DSw0L23tNULgxussrYg</a> &amp; 심리툰 Psych2Go Korea <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCNTGv5tBhqxIN3jAHbhumeQ">https://www.youtube.com/channel/UCNTGv5tBhqxIN3jAHbhumeQ</a><br />2) Vietnamese - <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCe-DaRWfYRVfcdasozr874A">https://www.youtube.com/channel/UCe-DaRWfYRVfcdasozr874A</a><br />3) German - <a rel="nofollow" target="blank" href="https://www.youtube.com/c/Psych2GoDE/videos">https://www.youtube.com/c/Psych2GoDE/videos</a><br />4) Indonesian - <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCwc1rtdEJDr-VKQT5bijwwQ">https://www.youtube.com/channel/UCwc1rtdEJDr-VKQT5bijwwQ</a>{% endraw %}
