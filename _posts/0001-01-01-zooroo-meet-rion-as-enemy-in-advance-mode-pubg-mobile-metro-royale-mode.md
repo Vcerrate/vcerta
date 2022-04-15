@@ -1,0 +1,15 @@
+---
+title: "ZOOROO MEET RION AS ENEMY IN ADVANCE MODE - pubg mobile metro royale mode gameplay"
+image: "https:\/\/i.ytimg.com\/vi\/QIyyrOscGBk\/hqdefault.jpg"
+vid_id: "QIyyrOscGBk"
+categories: "Gaming"
+tags: ["metro royale","metro royale 2.0","metro royale chapter 6"]
+date: "2022-04-15T18:21:08+03:00"
+vid_date: "2022-04-15T04:32:37Z"
+duration: "PT12M2S"
+viewcount: "5742"
+likeCount: "368"
+dislikeCount: ""
+channel: "ZOOROO GAMING"
+---
+{% raw %}Hello guys ღ thanks for watching I hope you're enjoying my videos don't forget to subscribe share ♡<br />One of your likes♥ makes me very happy, don't forget to like.♥<br />____________________________________________________________<br />SUBSCRIBE OUR OTHER CHENNELS<br />ZOOROO HINDI<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCEvWayB88lwWlnT2NVyUA1w">https://www.youtube.com/channel/UCEvWayB88lwWlnT2NVyUA1w</a><br />ZOOROO CLASSIC<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCof_LqtQT31-Ulk0CucTqjg">https://www.youtube.com/channel/UCof_LqtQT31-Ulk0CucTqjg</a><br />ZOOROO SHORTS<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCdoxIE-laud8NdoQBSVw_2gC">https://www.youtube.com/channel/UCdoxIE-laud8NdoQBSVw_2gC</a><br />__________________________________________________________________ <br />My social Account links<br />business Email-↓ <br />work@zooroogaming.com<br />Follow Instagram<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/zooroogaming/">https://www.instagram.com/zooroogaming/</a><br />Tiktok Account<br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@zooroogaming">https://www.tiktok.com/@zooroogaming</a><br />____________________________<br />become our channel member<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCtZHc0RG1QgIe7OL7WzJa6A/join">https://www.youtube.com/channel/UCtZHc0RG1QgIe7OL7WzJa6A/join</a><br />______________________________________________________________________<br />Device <br />ipad air4 2021 -256GB<br />Editor = InShot iOS + MOVAVI PC EDITER<br />Video Rezole..... HD 1080 - 60FPS<br />HEADPHONE - Samsung EG920 BLUE<br />_________________________________________________<br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br /><br />Tags no need to read<br /><br />metro royale,metro royale 2.0,metro royale chapter 6,metro royale game,metro royale gameplay,metro royale gameplay bgmi,metro royale gameplay video,metro royale glitch,metro royale live,metro royale mode,metro royale mode pubg,metro royale radiation zone,metro royale rare items,pubg metro,pubg mobile,pubg mobile new update,pubg mobile settings,zooroo gaming,zooroo gaming hindi,zooroo gaming pubg, chapter 7 metro royale{% endraw %}
