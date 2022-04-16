@@ -1,0 +1,15 @@
+---
+title: "Русский военный корабль утонул (English subs) \/ @Максим Кац"
+image: "https:\/\/i.ytimg.com\/vi\/cyS9Dk4E83Q\/hqdefault.jpg"
+vid_id: "cyS9Dk4E83Q"
+categories: "News-Politics"
+tags: ["Кац","Максим Кац","Максим Катс"]
+date: "2022-04-16T03:26:30+03:00"
+vid_date: "2022-04-15T14:09:31Z"
+duration: "PT18M4S"
+viewcount: "765814"
+likeCount: "75597"
+dislikeCount: ""
+channel: "Максим Кац"
+---
+{% raw %}Главная вчерашняя новость — потопленный Украиной флагман Черноморского флота, ракетный крейсер «Москва». Это из ряда вон выходящее событие и крупнейшее морское поражение российского флота со времён русско-японской войны.<br />Подпишитесь на наш новый новостной канал: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/bananTV">https://www.youtube.com/c/bananTV</a><br /><br />-= Реклама =-<br />Освой новую IT-профессию – регистрируйся на бесплатный вебинар от университета Зерокодинга: <a rel="nofollow" target="blank" href="https://zerocoder.ru/mobile-7?utm_source=tg&amp;utm_medium=maxkatz&amp;utm_campaign=apr&amp;utm_content=15.04.22">https://zerocoder.ru/mobile-7?utm_source=tg&amp;utm_medium=maxkatz&amp;utm_campaign=apr&amp;utm_content=15.04.22</a><br /><br />Поддержать канал:<br />Boosty (если вы в России): <a rel="nofollow" target="blank" href="https://boosty.to/max_katz">https://boosty.to/max_katz</a> .<br />Patreon (если вы не в России): <a rel="nofollow" target="blank" href="https://www.patreon.com/join/maximkatz">https://www.patreon.com/join/maximkatz</a><br />Оформить спонсорство: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCUGfDbfRIx51kJGGHIFo8Rw/join">https://www.youtube.com/channel/UCUGfDbfRIx51kJGGHIFo8Rw/join</a><br />_________________________<br />Подпишись: www.youtube.com/channel/UCUGfDbfRIx51kJGGHIFo8Rw?sub_confirmation=1<br /><br />Тот самый свитер: <a rel="nofollow" target="blank" href="https://shop.maxkatz.ru/Свитер-с-трамваями-p310507600">https://shop.maxkatz.ru/Свитер-с-трамваями-p310507600</a> <br /><br />Обложки на холсте: <a rel="nofollow" target="blank" href="https://shop.maxkatz.ru/">https://shop.maxkatz.ru/</a><br /><br />Купить книгу «100 советов мэру»: <a rel="nofollow" target="blank" href="https://shop.city4people.ru/">https://shop.city4people.ru/</a><br /><br />Подкаст: <a rel="nofollow" target="blank" href="https://katz.buzzsprout.com">https://katz.buzzsprout.com</a> (а также на всех популярных платформах)<br /><br />Подписывайтесь на мои социальные сети:<br /><br />Твиттер: <br /><a rel="nofollow" target="blank" href="https://twitter.com/max_katz">https://twitter.com/max_katz</a><br /><br />Телеграм-канал: <br /><a rel="nofollow" target="blank" href="https://t.me/maximkatz">https://t.me/maximkatz</a><br /><br />Инстаграм: <br /><a rel="nofollow" target="blank" href="https://www.instagram.com/maxim_katz/">https://www.instagram.com/maxim_katz/</a><br /><br />Фейсбук: <br /><a rel="nofollow" target="blank" href="https://www.facebook.com/katz.max/">https://www.facebook.com/katz.max/</a><br /><br />По вопросам рекламы пишите на maxkatz@avtormedia.ru<br /><br />#крейсер #Москва #русскийкорабль{% endraw %}
