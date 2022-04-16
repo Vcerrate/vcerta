@@ -1,0 +1,15 @@
+---
+title: "Progressively deeper thocks (vintage keyboards)"
+image: "https:\/\/i.ytimg.com\/vi\/h1SKWND0pvM\/hqdefault.jpg"
+vid_id: "h1SKWND0pvM"
+categories: "Science-Technology"
+tags: ["keyboard","mechanical keyboard","thock"]
+date: "2022-04-16T05:50:58+03:00"
+vid_date: "2021-08-10T02:55:34Z"
+duration: "PT1M18S"
+viewcount: "211537"
+likeCount: "4718"
+dislikeCount: ""
+channel: "Haelscheir's Haven"
+---
+{% raw %}A sound test of my various vintage keyboards (other than the Azio) and some switch testers.<br /><br />0:00 MX Blue switch tester (mixture of Cherry, Gateron, Kailh, and Outemu click collar clicky switches; I find them all similar)<br />0:07 Zealio and Zilent V2 tester plus two Boba U4s<br />0:12 Alps SKBM White, Alps SKBM Grey, Matias Click (White), Alps SKCM Blue, and Alps SKCM Amber switch tester<br />0:17 Zeos NMB with clicky black Space Invaders (Hi-Tek Series 725)<br />0:23 IBM Model F AT with Model F buckling springs<br />0:32 Magnavox VideoWriter with Alps SKCM Browns<br />0:40 Leading Edge DC-2214 with Alps SKCM Blues (starting from here, I find these boards deeper sounding, though the wooden table also accentuates the lower harmonics of the boards, at least more so than on the preceding boards)<br />0:50 Azio Retro Classic Artisan with Kailh Typelits (proprietary BOX-like stems with center holes like on the Omron B3K switches for letting click collar; this board is my daily driver which I prefer over the Leading Edge in both sound and feel, the tactile event being about a third of the way down instead of right at the top of the stroke like on Blue Alps switches, its having a &quot;fuller&quot; tactility than the Blue Alps which start sharp and drop rather quickly; I can go on and on about the differences; my computer desk's wooden keyboard tray is probably key to this board sounding deeper though less resonant than the Leading Edge; <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=G8URfxLzGKg">https://www.youtube.com/watch?v=G8URfxLzGKg</a> and <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=9kKTMeQPqMI">https://www.youtube.com/watch?v=9kKTMeQPqMI</a> provide nice examples of what this board sounds like; the spacebar on my board sounds horrible, though)<br />1:01 HP 46020A with 3rd generation clicky Fujitsu leaf springs (tiny tactile event and click sound about halfway down such that it basically feels like I might as well be typing on its linear counterpart, though the overall typing sound makes it hard to convince myself of such; has the wobbliest keycaps, but goodness does this board sound deep)<br /><br />What you can expect to see on this channel:<br />- Soon: Typewriter (and maybe also switch and keyboard) collecting, &quot;perfectionist&quot; Lego builds and mods.<br />- Within a year: Romantic Era piano performances (Chopin, Liszt, Schumann, Alkan etc.), programming, computer architecture, model ship building, worldbuilding?, conlangs?, philosophy?<br />- In the following years: Independent watchmaking, making a unique typewriters from scratch, &quot;revolutionizing&quot; the concert grand.{% endraw %}
