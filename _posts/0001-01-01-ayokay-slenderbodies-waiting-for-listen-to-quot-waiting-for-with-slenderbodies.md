@@ -1,0 +1,15 @@
+---
+title: "ayokay, slenderbodies - Waiting For"
+image: "https:\/\/i.ytimg.com\/vi\/b2GRwX83jrE\/hqdefault.jpg"
+vid_id: "b2GRwX83jrE"
+categories: "Music"
+tags: ["ayokay","slenderbodies","Waiting"]
+date: "2022-04-16T12:47:28+03:00"
+vid_date: "2022-02-11T14:30:04Z"
+duration: "PT2M59S"
+viewcount: "223292"
+likeCount: "1820"
+dislikeCount: ""
+channel: "AYOKAYVEVO"
+---
+{% raw %}Listen to &quot;Waiting For (with slenderbodies)&quot; out now: <a rel="nofollow" target="blank" href="https://Ayokay.lnk.to/WaitingFor">https://Ayokay.lnk.to/WaitingFor</a><br /><br />Follow ayokay:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/ayokay/">https://www.instagram.com/ayokay/</a><br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@ayokay">https://www.tiktok.com/@ayokay</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/ayokay">https://twitter.com/ayokay</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/everythingisayokay">https://www.facebook.com/everythingisayokay</a><br /><br />Follow slenderbodies:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/slenderbodies/">https://www.instagram.com/slenderbodies/</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/slenderbodies">https://twitter.com/slenderbodies</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/Slenderbodies">https://www.facebook.com/Slenderbodies</a><br /><br />Director: Jonah George<br />DP: Nikita Khatsarevich<br />Production Co (US): Engine<br />Production Co (UA): Inakshe Studio<br />Executive producers: Wyatt Whitaker, Hunter Lyon, Dima Bondar<br />Producers: Abid El Kahlut, Elizaweta Movshyna<br />1st Assistant Director: Ulyana Màgas<br />Production design: Nadya Jupiter<br />Art assistants: Alex Antonenko, Mark Cherenkov, Oleg Savchuk, Ivan Skripko, Vova Blondik, Alesha Ponteleuchuk , Artem Seliverstov, Den Slavskiy<br />Stylist: Anya Krasnoshapka<br />MUA: Anastasiia Burumenska<br />MUA assistant: Anastasiia Premolenna<br />Steadicam: Ruslan Bogdan<br />Gaffer: Nykola Bulavsky<br />Lighting crew: Andrey Jdanovskiy, Denis Prokopenko, Roman Panchenko, Max Bovkun, Evgheniy Sidorenko, Alexandr Korotchuk<br />Focus Puller: Mitya Borodin<br />Legend: Boris Borisov<br />1AC: Oleksandr Martyniuk<br />2АС: Levitskiy Valera<br />Car mount: Sergey Rudenko<br />SFX: Tornado Sfx<br />Edit: Max Miklin<br />Color: Olha Kriukova<br />Administrators: Oleg Kibalnik, Maxim Shved<br />Photographer: Angelina Golt<br />BTS photographer: Borya Borisov<br />VFX: Max Arsenyuk<br />VHS Footage: Anastasia Tolokonnikova<br />Titles: Nicholas Park<br />Script writer: Harrison Donchez<br /><br />Main actress: Anna Verstyuk<br /><br />#ayokay #waitingfor #slenderbodies<br /><br />Music video by ayokay, slenderbodies performing Waiting For. Astralwerks; © 2022 APO Ventures, Inc., under exclusive license to UMG Recordings, Inc.<br /><br /><a rel="nofollow" target="blank" href="http://vevo.ly/fznaAK">http://vevo.ly/fznaAK</a>{% endraw %}
