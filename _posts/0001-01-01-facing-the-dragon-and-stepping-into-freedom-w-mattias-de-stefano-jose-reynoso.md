@@ -1,0 +1,15 @@
+---
+title: "Facing the DRAGON and stepping into FREEDOM w\/ Mattias De Stefano  | Jose Reynoso Podcast"
+image: "https:\/\/i.ytimg.com\/vi\/3i6rhZ5dk2Y\/hqdefault.jpg"
+vid_id: "3i6rhZ5dk2Y"
+categories: "People-Blogs"
+tags: ["ancient alien theory","atlantis","aubrey marcus"]
+date: "2022-04-17T06:28:24+03:00"
+vid_date: "2022-01-11T15:00:04Z"
+duration: "PT14M32S"
+viewcount: "106952"
+likeCount: "3953"
+dislikeCount: ""
+channel: "Jose Reynoso"
+---
+{% raw %}Stop being afraid of facing the dragon, it is the key to freedom. <br />⬇Get your FREE guided morning breathwork and meditation:⬇<br /><a rel="nofollow" target="blank" href="https://bit.ly/2Uvw2tH">https://bit.ly/2Uvw2tH</a><br /><br />Enjoy the full episode on the freedom network Conscious Vitality by signing up for their free trial <a rel="nofollow" target="blank" href="https://bit.ly/3qdwKJz">https://bit.ly/3qdwKJz</a> <br /><br />11 months after our last conversation Matias De Stefano and I talk about his revelations in Egypt and how these teachings can be integrated within us to overcome the current challenges and densities in the planet.<br /><br />We often hear people talk about dragons as a fearful and dangerous vision or revelation. Matias De Stefano shares why now more than ever it is important to stare at the dragon and realize that fear and hate are nothing but an illusion. <br /><br />Connect with Matias de Stefano<br />Website | <a rel="nofollow" target="blank" href="https://fundacionarsayian.org/en/home/">https://fundacionarsayian.org/en/home/</a><br />Facebook | <a rel="nofollow" target="blank" href="https://www.facebook.com/matiasdestefanooficial">https://www.facebook.com/matiasdestefanooficial</a><br />Instagram | <a rel="nofollow" target="blank" href="https://instagram.com/fundacion_arsayian">https://instagram.com/fundacion_arsayian</a><br />YouTube |  <a rel="nofollow" target="blank" href="https://bit.ly/3irErq1">https://bit.ly/3irErq1</a><br /><br />Connect with Jose Reynoso at:<br /><br />►Website | <a rel="nofollow" target="blank" href="https://bit.ly/2M5EcVo​">https://bit.ly/2M5EcVo​</a><br />►Instagram | <a rel="nofollow" target="blank" href="https://bit.ly/3e0n2DI">https://bit.ly/3e0n2DI</a><br />►Facebook | <a rel="nofollow" target="blank" href="https://bit.ly/3o1vpku​">https://bit.ly/3o1vpku​</a><br />►Spotify | <a rel="nofollow" target="blank" href="https://urlzs.com/upBYc">https://urlzs.com/upBYc</a><br />►iTunes | <a rel="nofollow" target="blank" href="https://apple.co/3c1qNIv">https://apple.co/3c1qNIv</a><br /><br />========================================­=====<br /><br />Jose Reynoso has been on a journey of self-mastery and awakening since a young age. Never settling with conventional education he decided to start sharing the teachings he received from his travels around the world. He brings his passion for merging ancient teachings, eastern philosophy and shamanic practices into an accessible format for individuals to achieve their highest potential.{% endraw %}
