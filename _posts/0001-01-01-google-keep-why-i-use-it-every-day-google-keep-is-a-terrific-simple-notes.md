@@ -1,0 +1,15 @@
+---
+title: "Google Keep, Why I use it every day."
+image: "https:\/\/i.ytimg.com\/vi\/J6R8sh4HJig\/hqdefault.jpg"
+vid_id: "J6R8sh4HJig"
+categories: "Education"
+tags: ["2018","dottotech","google docs"]
+date: "2022-04-18T17:58:35+03:00"
+vid_date: "2022-04-17T13:00:13Z"
+duration: "PT15M3S"
+viewcount: "15397"
+likeCount: "1179"
+dislikeCount: ""
+channel: "dottotech"
+---
+{% raw %}Google Keep is a terrific simple notes app. <br />It does things very differently than Evernote.<br />Google Keep vs Evernote<br />Google Keep Tips and Tricks<br />Google Keep Tutorial<br /><br />Table of Contents<br />00:00 Introduction<br />01:20 Where to find Google Keep<br />02:18 Checklists and Text Notes<br />02:58 Adding images<br />03:22 List and Grid View<br />03:33 Pinning Notes<br />04:00 Using labels<br />04:30 Search<br />05:20 Converting Note Types<br />05:45 Sharing and Collaborations<br />07:10 Backgrounds<br />07:50 Reminders<br />08:10 Location-based reminders<br />09:10 Mobile version<br />10:05 Capturing images<br />10:50 Voice Memos<br />12:50 Converting Email to Notes<br /><br />🎥 This video was created using Camtasia 🎥<br /><a rel="nofollow" target="blank" href="http://dott.to/camtasia">http://dott.to/camtasia</a><br />----------<br />💻  Join us for Webinar Wednesday, every week: <br /><a rel="nofollow" target="blank" href="https://dottotech.com/event-registration/">https://dottotech.com/event-registration/</a><br />🗣  Hire Steve as a Speaker: <a rel="nofollow" target="blank" href="https://dottotech.com/speaker/">https://dottotech.com/speaker/</a><br />🧰  What We Use, Steve’s Toolkit: <a rel="nofollow" target="blank" href="http://bit.ly/2JWqrBM">http://bit.ly/2JWqrBM</a><br />🥰 Support Dotto Tech on Patreon: <a rel="nofollow" target="blank" href="http://patreon.com/dottotech">http://patreon.com/dottotech</a><br /><br />🖥  Steve’s Website Links<br />→ Website: <a rel="nofollow" target="blank" href="https://dottotech.com/">https://dottotech.com/</a><br /><br />😊  Steve’s Social Accounts<br />→ Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/dottotech">https://twitter.com/dottotech</a><br />→ Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/DottoTech/">https://www.facebook.com/DottoTech/</a><br />→ Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/dottotech/">https://instagram.com/dottotech/</a><br /><br />📹  Steve’s Gear: <br />→ Webcam: <a rel="nofollow" target="blank" href="https://amzn.to/309NdSS">https://amzn.to/309NdSS</a><br />→ Elgato Stream Deck  <a rel="nofollow" target="blank" href="https://dott.to/streamdeck">https://dott.to/streamdeck</a><br />→ Lights: <a rel="nofollow" target="blank" href="https://amzn.to/31y1p5r">https://amzn.to/31y1p5r</a><br />→ Audio Mixer: <a rel="nofollow" target="blank" href="https://dott.to/rodecaster">https://dott.to/rodecaster</a><br />→ Microphone: <a rel="nofollow" target="blank" href="https://dott.to/RE20">https://dott.to/RE20</a>{% endraw %}
