@@ -1,0 +1,15 @@
+---
+title: "Will There Be a Lot of Foreclosures in 2021?"
+image: "https:\/\/i.ytimg.com\/vi\/n-JKu5XZHHM\/hqdefault.jpg"
+vid_id: "n-JKu5XZHHM"
+categories: "Education"
+tags: ["foreclosures","real estate market","real estate future"]
+date: "2022-04-18T13:54:22+03:00"
+vid_date: "2020-11-10T17:50:37Z"
+duration: "PT1M49S"
+viewcount: "273"
+likeCount: "3"
+dislikeCount: ""
+channel: "Shannon Jones"
+---
+{% raw %}Shannon Jones of Keller Williams Coastal Properties in Long Beach discusses foreclosures and whether or not we will see a flood of them in 2021.<br /><br />For more information on the team and buying or selling a home, please visit our website here: <a rel="nofollow" target="blank" href="https://showmehome.com/">https://showmehome.com/</a><br /><br />Our contact information is also below.<br /><br />🚨 Subscribe to this channel here: <br />👇👇👇👇👇👇👇 <br />✅ <a rel="nofollow" target="blank" href="https://bit.ly/2vQsIwI">https://bit.ly/2vQsIwI</a> <br /><br />📲The Shannon Jones Team has been assisting home buyers &amp; sellers &amp; investors in Long Beach and surrounding areas since 1998, providing a high level of service and outstanding marketing. The team's emphasis is on educating and guiding clients through the process and providing information and resources before, during and after a transaction. This channel provides information on the areas we serve, the housing market, the real estate process, along with home tours. <br /><br />The Shannon Jones Team <br />📲 Call/Text Direct at 562-896-2456 <br />📲 Email: admin@showmehome.com<br /> 👨‍💻 Website: ShowMeHome.com <br />👉 Blog: https: <a rel="nofollow" target="blank" href="https://showmehome.com/blog/">https://showmehome.com/blog/</a> <br /><br />Follow us on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/shannon_jon...">https://www.instagram.com/shannon_jon...</a> <br />Follow us on Facebook: <a rel="nofollow" target="blank" href="https://business.facebook.com/TheShan...">https://business.facebook.com/TheShan...</a> <br /><br />👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇 <br />SUBSCRIBE TO THIS CHANNEL HERE: <a rel="nofollow" target="blank" href="https://bit.ly/2vQsIwI">https://bit.ly/2vQsIwI</a> <br /><br />👀Watch videos about Long Beach neighborhoods here: <a rel="nofollow" target="blank" href="https://bit.ly/2P3YcGA">https://bit.ly/2P3YcGA</a><br />👀Watch Videos about common real estate FAQs here: <a rel="nofollow" target="blank" href="https://bit.ly/39R7SML">https://bit.ly/39R7SML</a> <br />👀Watch our listing video tours here: <a rel="nofollow" target="blank" href="https://bit.ly/2vJnfrQ">https://bit.ly/2vJnfrQ</a> <br />👀Watch videos about our VIP and team events here: <a rel="nofollow" target="blank" href="https://bit.ly/326uG8y">https://bit.ly/326uG8y</a> <br />👀Watch our Long Beach housing market updates here: <a rel="nofollow" target="blank" href="https://bit.ly/38NSh0o">https://bit.ly/38NSh0o</a><br /><br />Shannon Jones | Keller Williams Coastal Properties | DRE#01247705{% endraw %}
