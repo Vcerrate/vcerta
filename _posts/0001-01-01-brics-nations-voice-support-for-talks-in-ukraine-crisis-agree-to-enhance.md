@@ -1,0 +1,15 @@
+---
+title: "BRICS nations voice support for talks in Ukraine crisis; agree to enhance cooperation"
+image: "https:\/\/i.ytimg.com\/vi\/HeJof1o_kLo\/hqdefault.jpg"
+vid_id: "HeJof1o_kLo"
+categories: "News-Politics"
+tags: ["Shanghai","Shanghaieye","China"]
+date: "2022-04-18T10:01:59+03:00"
+vid_date: "2022-04-18T06:35:51Z"
+duration: "PT53S"
+viewcount: "1003"
+likeCount: "101"
+dislikeCount: ""
+channel: "ShanghaiEye魔都眼"
+---
+{% raw %}The five BRICS countries, Brazil, Russia, India, China, and South Africa, agreed to deepen strategic cooperation with the evolution of the international landscape.<br /><br />China says BRICS should act as the stabilizer for the current situation and a booster for development.<br /><br />The five countries also exchanged their views on the current situation in Ukraine and Russia.<br /><br />BRICS countries support continued dialogue and negotiations between the two countries. They also expressed concern over the humanitarian situation in and around Ukraine.<br /><br />__________________<br />Powered by Shanghai Media Group, ShanghaiEye focuses on producing top-quality content for Facebook, Twitter, Instagram and Youtube.<br />Nobody knows Shanghai better than us.<br />Please subscribe to us  ☻☻☻<br />__________________<br />For more stories, please click <br />■ What's up today in Shanghai, the most updated news of the city<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MNjpE4hspSVry8dR555getN">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MNjpE4hspSVry8dR555getN</a><br />■ Amazing Shanghai, exploring the unknown corners of the city,  learning the people, food and stories behind them<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MMVTWr-zIXjsS4hhSQPmyes">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MMVTWr-zIXjsS4hhSQPmyes</a><br />■ What Chinese people's lives are like during the post COVID-19 period<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MPrPTmIirpfgETu6VKVESXe">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MPrPTmIirpfgETu6VKVESXe</a><br />■ Views of foreign scholars on China and its affairs<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MO9ua_nSK6slRPdUl-ovjRe">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MO9ua_nSK6slRPdUl-ovjRe</a><br />■ Foreign faces in Shanghai, people living in this city sharing their true feelings<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MP0vJDSw23_1MCPJhAfGbiG">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MP0vJDSw23_1MCPJhAfGbiG</a><br />■ Mini-docs showing why China is the country it is today <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLeyl7CQ2A5MOreRu2AbZ3ziIUyCcdBLwX">https://www.youtube.com/playlist?list=PLeyl7CQ2A5MOreRu2AbZ3ziIUyCcdBLwX</a><br />__________________<br />☎Leave us messages if you have any suggestions or questions!<br />Thank you!{% endraw %}
