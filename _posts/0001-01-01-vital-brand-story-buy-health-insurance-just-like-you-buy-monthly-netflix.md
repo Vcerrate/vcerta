@@ -1,0 +1,15 @@
+---
+title: "Vital Brand Story: Buy Health Insurance Just Like You Buy Monthly Netflix Subscription"
+image: "https:\/\/i.ytimg.com\/vi\/DcQKQJjNbDk\/hqdefault.jpg"
+vid_id: "DcQKQJjNbDk"
+categories: "News-Politics"
+tags: ["next big brand","nbb news","brand news"]
+date: "2022-04-18T10:29:07+03:00"
+vid_date: "2021-06-17T17:36:58Z"
+duration: "PT7M52S"
+viewcount: "800"
+likeCount: "31"
+dislikeCount: ""
+channel: "Next Big Brand"
+---
+{% raw %}A new digital health and wellness market place, Vital is offering monthly subscription plan for health insurance just like you pay your monthly EMIs or pay for your Netflix subscription on a monthly basis.<br /><br />Delhi NCR-based insurtech platform Vital was founded in 2020 by former co-founder of Truly Madly, Rahul Kumar and former head of product at Apollo Munich Health Insurance, Jayan Mathews. <br /><br />Vital aims to personalize the coverage for each member based on their individual needs and going beyond hospitalization to also include essential wellness expenses in a monthly premium subscription format.<br /><br />It rewards its members for leading a healthier lifestyle. They can earn points for using their benefits, which can eventually be used for paying the subscriptions.<br /><br />The app assigns a dedicated care manager to every member for comprehending his or her needs and queries in real-time. <br /><br />The health insurance platform has co-developed the insurance cover with Care Health Insurance and integrated with healthcare platforms like Mfine, Healthians, Thyrocare, 1Mg, BeatO, Fitterfly, Fitternity, Cult.Fit, and Betterlyf, for the wellness benefits.<br /><br />----------------------------------------------------------------------------------------------------------------------------------------<br />Give the Video THUMBS UP and hit the SUBSCRIBE button to get interesting brand news, success stories of Entrepreneurs, and much more.<br /><br />----------------------------------------------------------------------------------------------------------------------------------------<br />✭ Follow us on our Social Media:-<br /><br />Website               : <a rel="nofollow" target="blank" href="https://www.nextbigbrand.in/">https://www.nextbigbrand.in/</a><br /><br />Facebook Page  : <a rel="nofollow" target="blank" href="https://www.facebook.com/nextbigbrandnbb">https://www.facebook.com/nextbigbrandnbb</a><br />Instagram Page : <a rel="nofollow" target="blank" href="https://www.instagram.com/nextbigbrandnbb/">https://www.instagram.com/nextbigbrandnbb/</a><br />LinkedIn              : <a rel="nofollow" target="blank" href="https://www.linkedin.com/company/next-big-brand-india/">https://www.linkedin.com/company/next-big-brand-india/</a><br />Twitter                 : <a rel="nofollow" target="blank" href="https://twitter.com/thenbbmedia">https://twitter.com/thenbbmedia</a><br /><br />----------------------------------------------------------------------------------------------------------------------------------------<br />#NextBigBrand #VitalHealthInsurance #HealthInsurance{% endraw %}
