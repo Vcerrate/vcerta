@@ -1,0 +1,15 @@
+---
+title: "LEARNERS - ABSOLUTE LEARNERS! TOUR 2016 SPRING PV"
+image: "https:\/\/i.ytimg.com\/vi\/mJJyDx7Xi0s\/hqdefault.jpg"
+vid_id: "mJJyDx7Xi0s"
+categories: "Music"
+tags: ["LEARNERS","ラーナーズ","kilikilivilla"]
+date: "2022-04-18T18:03:46+03:00"
+vid_date: "2016-03-06T06:53:31Z"
+duration: "PT4M30S"
+viewcount: "239558"
+likeCount: "973"
+dislikeCount: ""
+channel: "KiliKili Villa"
+---
+{% raw %}LEARNERS TOUR決定！<br /><br />ABSOLUTE LEARNERS! TOUR<br />2016 SPRING<br /><br /><a rel="nofollow" target="blank" href="http://learnersband.tumblr.com">http://learnersband.tumblr.com</a><br /><a rel="nofollow" target="blank" href="http://kilikilivilla.com">http://kilikilivilla.com</a><br /><br />NOW ON SALE!!<br />【CD】LEARNERS - LEARNERS<br /><a rel="nofollow" target="blank" href="https://store.kilikilivilla.com/product/detail/216">https://store.kilikilivilla.com/product/detail/216</a><br /><br />【T-shirt】LEARNERS L T-shirt<br /><a rel="nofollow" target="blank" href="https://store.kilikilivilla.com/product/detail/215">https://store.kilikilivilla.com/product/detail/215</a><br /><br />——————————————<br />4/16 (土) 大阪 NOON<br />ABSOLUTE LEARNERS #5<br />“POSEUR &amp; MIXX BEAUTY WEST SPECIAL”<br /><br />OPEN/START 18:00<br />ADV ¥3,000 (+1DRINK)<br />DOOR ¥3,500 (+1DRINK)<br /><br />BAND<br />LEARNERS<br />KONCOS<br />SEASICK<br /><br />DJ<br />CHABE (CUBISMO GRAFICO)<br />TA-1 (MIXX BEAUTY/KONCOS)<br />TORA (8otto/UnTigre)<br />mascotboy (MAS./SEXCITY)<br />Shinji Okano (digmeoutART&amp;DINER)<br />TANK (digmeoutART&amp;DINER)<br />——————————————<br />4/17 (日) 京都 METRO<br />ABSOLUTE LEARNERS #6<br />“HOMESICK 30”<br /><br />OPEN / START 18:00<br />ADV ¥2,500 (+1DRINK)<br />DOOR ¥3,000 (+1DRINK)<br /><br />BAND<br />LEARNERS<br />KONCOS<br />and more (tba)<br /><br />DJ<br />colaboy<br />UME-SAN<br />and more…<br />——————————————<br />4/29 (金) 豊橋 CLUB KNOT<br />ABSOLUTE LEARNERS #7<br />“CRAZED Vol.4”<br /><br />open 18:30 / start 19:00<br />ADV ¥3,000 (+1DRINK)<br />DOOR 3,500  (+1DRINK)<br /><br />BAND<br />LEARNERS<br />and more  (tba)<br /><br />DJ<br />YU-TA (LONDON NITE)<br />and more  (tba)<br />——————————————<br />4/30 (土) 名古屋 live &amp; lounge vio<br />ABSOLUTE LEARNERS  #8<br />“ROYAL PUSSY presents ROYAL ROCKS”<br /><br />OPEN 18:00 / START 18:30<br />ADV ¥3,000 (+1DRINK)<br />DOOR 3,500  (+1DRINK)<br /><br />BAND<br />LEARNERS<br />XERO FICTION<br /><br />DJ<br />UME-SAN<br />YU-TA (LONDON NITE)<br />SHINBO (ROYAL PUSSY)<br />OYAZI (SO NICE! BE HAPPY!)<br /><br />BURLESQUE SHOW<br />MiwaRock<br /><br />お問い合わせ<br />JAIL HOUSE　TEL 052-936-6041<br />——————————————<br />5/1 (日) 下北沢 SHELTER<br />ABSOLUTE LEARNERS  #9<br /><br />open 18:30 / start 19:00<br />ADV ¥2,800 (+1DRINK)<br />DOOR 3,300  (+1DRINK)<br /><br />BAND<br />LEARNERS<br />CAR10<br />and more (tba)<br />——————————————<br />5/14 (土) 福岡 KEITH FLACK<br />ABSOLUTE LEARNERS  #10<br /><br />open 18:30 / start 19:00<br />ADV / DOOR  ¥3,000 (+1DRINK)<br /><br />BAND<br />LEARNERS<br />the PRACTICE<br /><br />DJ<br />OEC (RADIO 7)<br />常盤響<br />m.y.k.<br />and more (tba){% endraw %}
