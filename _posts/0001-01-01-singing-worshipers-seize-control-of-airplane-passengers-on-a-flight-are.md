@@ -1,0 +1,15 @@
+---
+title: "Singing Worshipers Seize Control Of Airplane"
+image: "https:\/\/i.ytimg.com\/vi\/2AFnW5dMEO8\/hqdefault.jpg"
+vid_id: "2AFnW5dMEO8"
+categories: "News-Politics"
+tags: ["220415__DR09GarbagePeopleBrettBP","News","Politics"]
+date: "2022-04-19T00:22:24+03:00"
+vid_date: "2022-04-16T20:00:00Z"
+duration: "PT3M22S"
+viewcount: "29241"
+likeCount: "1694"
+dislikeCount: ""
+channel: "The Damage Report"
+---
+{% raw %}Passengers on a flight are subject to worshippers' singalong as they are stuck in the air. John Iadarola and Brett Erlich break it down on The Damage Report. <br /><br />Read more related here: Passengers on plane who sang 'Baby Shark' to comfort crying child have gone viral for their 'tolerance' - <a rel="nofollow" target="blank" href="https://www.businessinsider.co.za/tiktok-plane-passengers-sing-baby-shark-crying-child-2022-3">https://www.businessinsider.co.za/tiktok-plane-passengers-sing-baby-shark-crying-child-2022-3</a><br /><br />&quot;Passengers on plane who sang 'Baby Shark' to comfort crying child have gone viral for their 'tolerance' - A man who posted a TikTok showing a group of passengers on a plane singing the viral children's song &quot;Baby Shark&quot; to a crying child has received over 7 million views as people praised the kindness of strangers.<br /><br />Parikshit Balochi was flying from his home in Dubai to Albania for a four-day-long backpacking trip on March 10. Before the five-hour flight took off, a child sitting next to him, who Balochi said looked about four years old, started crying. He told Insider that a passenger behind them started quietly murmuring the words to &quot;Baby Shark&quot; and in a bid to comfort the child he decided to do the same.&quot;<br /><br />**<br /><br />Become a TDR YouTube Member: <a rel="nofollow" target="blank" href="http://www.youtube.com/thedamagereport/join">http://www.youtube.com/thedamagereport/join</a> <br /><br />Follow The Damage Report on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/TheDamageReportTYT/">https://www.facebook.com/TheDamageReportTYT/</a><br /><br />Help build the Home of the Progressives <a rel="nofollow" target="blank" href="http://tyt.com/JOIN">http://tyt.com/JOIN</a><br /><br />Subscribe to The Damage Report YouTube channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/thedamagereport?sub_confirmation=1">https://www.youtube.com/thedamagereport?sub_confirmation=1</a><br /><br />Follow The Damage Report on TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@thedamagereport?lang=en">https://www.tiktok.com/@thedamagereport?lang=en</a><br /><br />Follow The Damage Report on Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/thedamagereport/">http://www.instagram.com/thedamagereport/</a> <br /><br />Follow The Damage Report on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/TheDamageReport">https://twitter.com/TheDamageReport</a><br /><br />#TheDamageReport #JohnIadarola #TheYoungTurks{% endraw %}
