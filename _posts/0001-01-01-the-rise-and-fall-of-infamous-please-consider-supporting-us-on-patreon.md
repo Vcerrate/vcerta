@@ -1,0 +1,15 @@
+---
+title: "The Rise and Fall of Infamous"
+image: "https:\/\/i.ytimg.com\/vi\/8FnmBh5KuKI\/hqdefault.jpg"
+vid_id: "8FnmBh5KuKI"
+categories: "Gaming"
+tags: ["infamous","infamous 2","infamous 3"]
+date: "2022-04-19T15:56:25+03:00"
+vid_date: "2022-04-12T16:35:58Z"
+duration: "PT37M14S"
+viewcount: "217583"
+likeCount: "10211"
+dislikeCount: ""
+channel: "GVMERS"
+---
+{% raw %}Please consider supporting us on Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/GVMERS">https://www.patreon.com/GVMERS</a><br /><br />Once the seventh console generation arrived, licensing agreements constituted the pillar upon which countless superhero video games materialized, many of them manifesting as movie and TV adaptations. From Batman and X-Men to Spider-Man and the Justice League, comic book enthusiasts had their fill of interactive heroes-in-tights shenanigans. Since few experiences featured original characters built from the ground up with interactivity in mind, Sly Cooper developer Sucker Punch Productions attempted to break new ground in the superhero space upon entering development on InFamous around 2006.<br /><br />InFamous’s core concept proved simple, its pitch structured around the fantasy of an average, everyday man acquiring superpowers, then deciding whether to wield them for the good of others or personal gain. The studio left such decisions to the players, thereby bolstering the power fantasy with a Karma system that positioned the protagonist as heroic or villainous. Notably, two sequels and standalone expansions spawned from the first game’s success, with each adventure evolving the proven gameplay formula. <br /><br />But not every change presented in the franchise’s final phase garnered favor. A new lead character equipped with powers far removed from the old left some InFamous faithful reeling as they clung to the remnants of a bygone era. And since Sucker Punch has moved on and embraced the call of another IP, one question lingers for those who fondly remember InFamous during its heyday—will the electrifying series ever reclaim its former glory?<br /><br />This is the rise and fall of InFamous.<br /><br />Support the channel by becoming a member:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/GVMERS/join">https://www.youtube.com/GVMERS/join</a><br /><br />Subscribe to GVMERS:<br /><a rel="nofollow" target="blank" href="http://www.youtube.com/subscription_center?add_user=GVMERS">http://www.youtube.com/subscription_center?add_user=GVMERS</a><br /><br />Follow GVMERS on Twitter:<br /><a rel="nofollow" target="blank" href="https://twitter.com/GVMERS_">https://twitter.com/GVMERS_</a><br /><br />Like GVMERS on Facebook:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/GVMERS">https://www.facebook.com/GVMERS</a><br /><br />Join the GVMERS Discord channel:<br /><a rel="nofollow" target="blank" href="https://discord.gg/sZApcwx">https://discord.gg/sZApcwx</a><br /><br />Subscribe to the GVMERS subreddit: <br /><a rel="nofollow" target="blank" href="https://www.reddit.com/r/GVMERS/">https://www.reddit.com/r/GVMERS/</a>{% endraw %}
