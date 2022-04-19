@@ -1,0 +1,15 @@
+---
+title: "I Use Binder Clips to Help Me Make a Sheath (XCAL Pt. 8)"
+image: "https:\/\/i.ytimg.com\/vi\/5n5rXlqD6s0\/hqdefault.jpg"
+vid_id: "5n5rXlqD6s0"
+categories: "Education"
+tags: ["knife making","how to make a knife","how to heat treat a knife"]
+date: "2022-04-19T10:26:11+03:00"
+vid_date: "2022-04-15T13:10:25Z"
+duration: "PT17M41S"
+viewcount: "25184"
+likeCount: "1573"
+dislikeCount: ""
+channel: "KyleRoyerKnives"
+---
+{% raw %}40% off our premium courses!  The sale ends on the 22nd.  Only available with the links below 👇🏻 <br />The Take-Down Bowie Online Course<br /><a rel="nofollow" target="blank" href="https://www.learnknifemaking.com/the_take_down_bowie_yt">https://www.learnknifemaking.com/the_take_down_bowie_yt</a><br />The Beginner Bladesmith Online Course<br /><a rel="nofollow" target="blank" href="https://www.learnknifemaking.com/the_beginner_bladesmith_yt">https://www.learnknifemaking.com/the_beginner_bladesmith_yt</a><br /><br />Catch up on the build!<br />XCAL Pt. 1:  www.youtube.com/watch?v=MWDjuFxpEqQ&amp;list=PLQHsQ0FLxUF0JhBNp5vOoJcoccRHZN5rU&amp;index=1<br /><br />XCAL Pt. 2:  www.youtube.com/watch?v=qZsDt1cgxJg&amp;list=PLQHsQ0FLxUF0JhBNp5vOoJcoccRHZN5rU&amp;index=2<br /><br />XCAL Pt. 3:  www.youtube.com/watch?v=hyiOSc9pWOM&amp;list=PLQHsQ0FLxUF0JhBNp5vOoJcoccRHZN5rU&amp;index=3<br /><br />XCAL Pt. 4: www.youtube.com/watch?v=8oXUqsMqjEc&amp;list=PLQHsQ0FLxUF0JhBNp5vOoJcoccRHZN5rU&amp;index=4<br /><br />XCAL Pt. 5:  www.youtube.com/watch?v=ulBd7QPq9jc&amp;list=PLQHsQ0FLxUF0JhBNp5vOoJcoccRHZN5rU&amp;index=5<br /><br />XCAL Pt. 6: www.youtube.com/watch?v=WO8X-6NsPnU&amp;list=PLQHsQ0FLxUF0JhBNp5vOoJcoccRHZN5rU&amp;index=6<br /><br />XCAL Pt. 7: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=EQWtr7yzDQo&amp;list=PLQHsQ0FLxUF0JhBNp5vOoJcoccRHZN5rU&amp;index=7">https://www.youtube.com/watch?v=EQWtr7yzDQo&amp;list=PLQHsQ0FLxUF0JhBNp5vOoJcoccRHZN5rU&amp;index=7</a><br /><br />XCAL Pt 8: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=5n5rXlqD6s0&amp;list=PLQHsQ0FLxUF0JhBNp5vOoJcoccRHZN5rU&amp;index=8">https://www.youtube.com/watch?v=5n5rXlqD6s0&amp;list=PLQHsQ0FLxUF0JhBNp5vOoJcoccRHZN5rU&amp;index=8</a><br /><br /><br /><br />Some links in our videos are affiliate links. We may receive a very small commission if a link is a referral/affiliate link.   If you don't wish to use the links, feel free to google the items separately.  Either way, we are very thankful and very appreciative you are watching our channel. <br /><br />I am proud to be a part of the Brodbeck family!  If you need a grinder please consider them.  Here is their website: <a rel="nofollow" target="blank" href="https://brodbeckironworks.com">https://brodbeckironworks.com</a><br /><br />My Favorite CA Glue: Use coupon code KRK15 to get 15% off your purchase!  :)<br /><a rel="nofollow" target="blank" href="https://www.starbond.com/?rfsn=3704821.00c3b3">https://www.starbond.com/?rfsn=3704821.00c3b3</a><br /><br />#KyleRoyer #Knifemaker  #Bladesmith{% endraw %}
