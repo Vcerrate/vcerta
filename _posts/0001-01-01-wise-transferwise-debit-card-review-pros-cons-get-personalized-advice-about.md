@@ -1,0 +1,15 @@
+---
+title: "Wise (TransferWise) Debit Card Review - Pros & Cons"
+image: "https:\/\/i.ytimg.com\/vi\/qgB7NqE2_2g\/hqdefault.jpg"
+vid_id: "qgB7NqE2_2g"
+categories: "People-Blogs"
+tags: ["TransferWise Debit Card Review","TransferWise Borderless Account","TransferWise"]
+date: "2022-04-19T21:11:52+03:00"
+vid_date: "2021-08-18T11:30:08Z"
+duration: "PT9M43S"
+viewcount: "25615"
+likeCount: "565"
+dislikeCount: ""
+channel: "Offshore Citizen"
+---
+{% raw %}Get personalized advice about tax, asset protection, offshore banking, residency, and citizenships: <a rel="nofollow" target="blank" href="https://calendly.com/michael-rosmer?month=2021-03">https://calendly.com/michael-rosmer?month=2021-03</a> <br />You can visit our websites for more information about us: <a rel="nofollow" target="blank" href="https://offshorecitizen.net">https://offshorecitizen.net</a> &amp; <a rel="nofollow" target="blank" href="https://www.offshorecapitalist.com">https://www.offshorecapitalist.com</a><br /><br />Wise, formerly known as TransferWise offers an interesting tool - their debit card. <br />If you want to apply for one you can do it directly from their website, on this link:<br /><a rel="nofollow" target="blank" href="https://wise.com">https://wise.com</a><br /><br />Should you have a Wise borderless account and their debit card? Absolutely yes! <br />You shouldn't count on it as your only banking solution, but you should certainly have it as one option. <br />Wise offers super easy transfers all over the world, it will also make currency conversion less hassle.<br />This brings us to their debit card. It is especially good if you travel a lot, because of mentioned currency conversions. <br /><br />This card is attached to your different currency Wise accounts and depending on which currencies you hold it will automatically pull funds from the account associated with that currency. If you don't hold money in the currency that you're paying in it will automatically convert with fair conversion rates. <br /><br />Wise application is quite good and easy to use. <br /><br />If you want to withdraw cash Wise card is certainly not the best option. You have 200 pounds per month without fees, and after that, you'll be paying 2% in fees which is quite high. This is one of the biggest downsides of the Wise card. <br /><br />Another downside is that it's not available everywhere. You can't get a Wise card in many countries around the world. However, if you're in the EU you're good to go. <br /><br />Who are we and what do we do?<br /><br />We are Offshore Citizen team. We help people become global: get a second passport, set up a second residency, pay less taxes, do banking abroad, etc.<br /><br />We have lots of interesting articles on different topics, we have relevant information up to date. <br /><br /><br />Author: Michael Rosmer<br /><br />Feel free to join our community!<br /><br />Don’t forget to subscribe to our channel<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCZDToCpuHc4kEHDurkQpVPg?sub_confirmation=1">https://www.youtube.com/channel/UCZDToCpuHc4kEHDurkQpVPg?sub_confirmation=1</a>{% endraw %}
