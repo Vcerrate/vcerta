@@ -1,0 +1,15 @@
+---
+title: "Fun & Easy Journal embellishments \/ Ephemera Ideas Using Stencils"
+image: "https:\/\/i.ytimg.com\/vi\/uh_Qrjc4wDw\/hqdefault.jpg"
+vid_id: "uh_Qrjc4wDw"
+categories: "Howto-Style"
+tags: ["The mixed media emporium","Kylie coo","Kylie coo studio"]
+date: "2022-04-19T06:17:49+03:00"
+vid_date: "2022-04-17T06:58:36Z"
+duration: "PT16M22S"
+viewcount: "2968"
+likeCount: "462"
+dislikeCount: ""
+channel: "Nina Ribena"
+---
+{% raw %}#journalephemera #journalembellishments #joirnalfodder<br /><br />Link to Kylie’s Video:<br /><br />Link to Mixed Media Bird Art Cards:  <a rel="nofollow" target="blank" href="https://youtu.be/psY96zFsYPk">https://youtu.be/psY96zFsYPk</a><br /><br />**************************************************<br /><br />Stencils Used (where links &amp; names are available) - Remember these stencils are old, so use what you have! <br /><br />Dina Wakley Organic Shapes Mask &amp; Stencil<br /><br />Joggles 9 x 12 Sunflowers<br /><br />Creative Expressions That Special Touch Of Leaves<br /><br />DecoArt Bees &amp; Birds<br /><br />**************************************************<br /><br />Gouache: <br />Arrtx pudding gouache paints Set A:<br />US: <a rel="nofollow" target="blank" href="https://amzn.to/31lOwAu">https://amzn.to/31lOwAu</a><br />UK: <a rel="nofollow" target="blank" href="https://amzn.to/3rFeERZ">https://amzn.to/3rFeERZ</a><br /><br />72 Watercolour Pencils <br /><a rel="nofollow" target="blank" href="https://arteza.co.uk/products/72-professional-watercolour-pencils-tin-box?utm_source=postaffiliatepro&amp;utm_medium=affiliate&amp;a_aid=Youtube_NinaRibena&amp;a_bid=d7P">https://arteza.co.uk/products/72-professional-watercolour-pencils-tin-box?utm_source=postaffiliatepro&amp;utm_medium=affiliate&amp;a_aid=Youtube_NinaRibena&amp;a_bid=d7P</a><br /><br />Neo Color II Water Soluble Crayons<br /><br />Grey Toned Sketch Book<br /><a rel="nofollow" target="blank" href="https://arteza.co.uk/products/gray-toned-sketch-pad-a4?utm_source=postaffiliatepro&amp;utm_medium=affiliate&amp;a_aid=Youtube_NinaRibena&amp;a_bid=d7b673b6">https://arteza.co.uk/products/gray-toned-sketch-pad-a4?utm_source=postaffiliatepro&amp;utm_medium=affiliate&amp;a_aid=Youtube_NinaRibena&amp;a_bid=d7b673b6</a><br /><br />White Sakura Gelly Roll Pen 0.8<br /><br />Uniball Eye Pen<br /><br />Posca White Paint Pen<br /><br />**************************************************<br /><br />Join us in The Mixed Media Emporium Facebook Group:  <a rel="nofollow" target="blank" href="https://www.facebook.com/groups/artjournalprompts/">https://www.facebook.com/groups/artjournalprompts/</a><br /><br />**************************************************<br /><br />Contact Me:<br /><br />Email: Nina.ribena@outlook.com<br /><br />Instagram: Nina.Ribena<br /><br />**************************************************<br /><br />#ninaribena<br />#letsgetarty<br />#themixedmediaemporium <br />#junkjournalideas <br />#arrtx <br />#collageideas<br />#watercolourideas<br />#watercolourpencils<br />#neocolourII<br />#neocolours<br />#Journalfodder{% endraw %}
