@@ -1,0 +1,15 @@
+---
+title: "Kylie Minogue & Jason Donovan - Especially For You (Extended Version) [Audio HQ]"
+image: "https:\/\/i.ytimg.com\/vi\/5JuI3lUAVd8\/hqdefault.jpg"
+vid_id: "5JuI3lUAVd8"
+categories: "Music"
+tags: ["Kylie Minogue Especially For You","Kylie Minogue Especially For You Remastered","Kylie Minogue Especially For You HQ"]
+date: "2022-04-19T14:24:57+03:00"
+vid_date: "2022-01-29T11:56:31Z"
+duration: "PT5M2S"
+viewcount: "2931"
+likeCount: "50"
+dislikeCount: ""
+channel: "GoldenMusic"
+---
+{% raw %}Artist: Jason Donovan Feat. Kylie Minogue<br />Album: Ten Good Reason<br />Song Title: Especially For You (Extended Version)<br />Producer(s): Stock Aitken Waterman<br />Songwriter(s): Mike Stock/Matt Aitken/Pete Waterman<br />Genre: Pop<br />Studio: Sydney, Australia<br />Recorded: 1988<br />Realesed: 28 November 1988<br />Format: Digital Single<br />Label: PWL<br />Lenght: 5:01 Especially For You (Extended Version)<br /><br />Bought The Digital Album &quot;Ten Good Reasons&quot; <br />By Jason Donovan Available On Itunes:<br /><a rel="nofollow" target="blank" href="https://music.apple.com/us/album/ten-good-reasons/312508652">https://music.apple.com/us/album/ten-good-reasons/312508652</a><br /><br />&quot;Especially For You&quot; From The Album &quot;Ten Good Reasons&quot; Lyrics : <br /><br />Especially for you<br />I want to let you know what I was going through<br />All the time we were apart<br />I thought of you<br />You were in my heart<br />My love never changed<br />I still feel the same<br /><br />Especially for you<br />I want to tell you I was feeling that way too<br />And if dreams were wings, you know<br />I would have flown to you<br />To be where you are<br />No matter how far<br />And now that I'm next to you<br /><br />No more dreaming about tomorrow<br />Forget the loneliness and the sorrow<br />I've got to say<br />It's all because of you<br /><br />And now we're back together, together<br />I want to show you my heart is oh so true<br />And all the love I have is<br />Especially for you<br /><br />Especially for you<br />I want to tell you, you mean all the world to me<br />How I'm certain that our love was meant to be<br />You changed my life<br />You showed me the way<br />And now that I'm next to you<br /><br />I've waited long enough to find you<br />I want to put all the hurt behind you<br />Oh,<br />And I want to bring out all the love inside you<br />Oh<br /><br />And now we're back together, together<br />I want to show you my heart is oh so true<br />And all the love I have is<br />Especially for you<br /><br />You were in my heart<br />My love never changed<br /><br />And now we're back together, together<br />I want to show you my heart is oh so true<br />And all the love I have is<br />Especially for you<br /><br />Together, together<br />I want to show you my heart is oh so true<br />And all the love I have is<br />Especially for you<br /><br />Together, together<br />I want to show you my heart is oh so true<br />And all the love I have is<br />Especially<br /><br />Copyright © 1988 BMG Right Managements (UK) Ltd.<br /><br />#KylieMinogue #JasonDonovan #EspeciallyForYou{% endraw %}
