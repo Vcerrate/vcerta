@@ -1,0 +1,15 @@
+---
+title: "This Song Should Have Been Massive"
+image: "https:\/\/i.ytimg.com\/vi\/bVGl-juy79U\/hqdefault.jpg"
+vid_id: "bVGl-juy79U"
+categories: "Music"
+tags: ["rick beato","everything music","rick"]
+date: "2022-04-20T03:45:33+03:00"
+vid_date: "2022-04-19T16:09:13Z"
+duration: "PT11M58S"
+viewcount: "86683"
+likeCount: "7378"
+dislikeCount: ""
+channel: "Rick Beato"
+---
+{% raw %}In this episode we take a look at another song that I produced that should have been a hit  by Owen Beverly called &quot;For Mia&quot;<br /><br />📦 Annual Mega Bundle Sale:<br />Get all educational products I have ever created in ONE bundle for just $99.99<br />⇢ <a rel="nofollow" target="blank" href="https://beatobundle.com">https://beatobundle.com</a><br /><br />To donate to the channel go here: <a rel="nofollow" target="blank" href="https://rickbeato.com/pages/donate">https://rickbeato.com/pages/donate</a><br /><br />THE BEATO CLUB → <a rel="nofollow" target="blank" href="https://bit.ly/322AGO1">https://bit.ly/322AGO1</a><br /><br />MY HELIX PRESETS  →<a rel="nofollow" target="blank" href="https://flatfiv.co/products/rick-beat...">https://flatfiv.co/products/rick-beat...</a><br /><br />SUBSCRIBE HERE → <a rel="nofollow" target="blank" href="http://bit.ly/2eEs9gX">http://bit.ly/2eEs9gX</a><br />——————————————————————————————————————<br /><br />My Links to Follow:<br /><br />YouTube - <a rel="nofollow" target="blank" href="https://www.youtube.com/c/RickBeato">https://www.youtube.com/c/RickBeato</a><br /><br />Follow my Instagram - <a rel="nofollow" target="blank" href="https://www.instagram.com/rickbeato1/">https://www.instagram.com/rickbeato1/</a><br /><br />——————————————————————————————<br /><br />Special Thanks to My Supporters:<br />Catherine Sundvall<br />Clark Griswold<br />Ryan Twigg<br />LAWRENCE WANG<br />Martin Small<br />Kevin Wu<br />Robert Zapolis<br />Jeremy Kreamer<br />Sean Munding<br />Nat Linville<br />Bobby Alcott<br />Peter Glen<br />Robert Marqusee<br />James Hurster<br />John Nieradka<br />Grey Tarkenton<br />Joe Armstrong<br />Brian Smith<br />Robert Hickerty<br />comboy <br />Peter DeVault<br />Phil Mingin<br />Tal Harber<br />Rick Taylor<br />Bill Miller<br />Gabriel Karaffa<br />Brett Bottomley<br />Frederick Humphrey<br />Nathan Hanna<br />Stephen Dahl<br />Scott McCroskey<br />Dave Ling<br />Rick Walker<br />Jason Lowman<br />Jake Stringer<br />steven crawford<br />Piush Dahal<br />Jim Sanger<br />Brian Lawson<br />Eddie Khoriaty<br />Vinny Piana<br />J.I. Abbot<br />Kyle Dandurand<br />Michael Krugman<br />Vinicius Almeida<br />Lars Nielsen<br />Kyle Duvall<br />Alex Zuzin<br />tom gilberts<br />Paul Noonan<br />Scott Thompson<br />Kaeordic Industries LLC<br />Duane Blake<br />Kai Ellis<br />Zack Kirkorian<br />Joe Ansaldi<br /> Pzz<br />Marc Alan<br />Rob Kline<br />Calvin Wells<br />David Trapani<br />Will Elrics<br />Debbie Valle<br />JP Rosato<br />Orion Letizi<br />Mike Voloshen<br />Peter Pillitteri<br />Jeremy Hickerson<br />Travis Ahrenholtzh{% endraw %}
