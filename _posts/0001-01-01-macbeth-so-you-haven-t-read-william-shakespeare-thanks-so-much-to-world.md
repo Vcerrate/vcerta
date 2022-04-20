@@ -1,0 +1,15 @@
+---
+title: "Macbeth - So You Haven't Read William Shakespeare"
+image: "https:\/\/i.ytimg.com\/vi\/jg6cSJS0NaI\/hqdefault.jpg"
+vid_id: "jg6cSJS0NaI"
+categories: "Education"
+tags: ["Classics (Field of Study)","So you Haven't Read","Education (TV Genre)"]
+date: "2022-04-20T23:18:19+03:00"
+vid_date: "2022-04-20T17:29:48Z"
+duration: "PT9M55S"
+viewcount: "10997"
+likeCount: "1381"
+dislikeCount: ""
+channel: "Extra Credits"
+---
+{% raw %}---- Thanks so much to World Anvil for helping us forge today's tale! Visit <a rel="nofollow" target="blank" href="http://www.worldanvil.com/extracredits">http://www.worldanvil.com/extracredits</a> and use audience promo code EXTRACREDITS to get 40% off an annual membership on checkout! ----<br /><br />So You Haven't Read the cursed story of Macbeth?! Well, pull up a seat and get ready for some epic Shakespearian burns, mystical tales, and of course death! As we break down and explain just what happened in Macbeth and the superstition around it. <br /><br />---- Interested in reading it for yourself? Check it out at your local library! ----<br />Buy Local: <a rel="nofollow" target="blank" href="https://www.indiebound.org/book/9781662258718">https://www.indiebound.org/book/9781662258718</a><br />Amazon:  <a rel="nofollow" target="blank" href="https://amzn.to/3EmXsow">https://amzn.to/3EmXsow</a><br />Audible: <a rel="nofollow" target="blank" href="https://amzn.to/3JRYkCO">https://amzn.to/3JRYkCO</a><br /><br />---- Thanks for participating in this week's discussion! ----<br />We want you to be aware of our community posting guidelines so that we can have high-quality conversations: <a rel="nofollow" target="blank" href="https://www.extracredits.site/extra-credits-community-code-of-con">https://www.extracredits.site/extra-credits-community-code-of-con</a><br /><br />---- Want to support the people who make this show? ----<br />Become a Patreon Member &amp; Vote on future Extra History episodes! <a rel="nofollow" target="blank" href="http://bit.ly/EHPatreon">http://bit.ly/EHPatreon</a> <br />Or show off your fandom with our merch! <a rel="nofollow" target="blank" href="http://extracredits.store/">http://extracredits.store/</a><br /><br />---- Want more Extra Credits? Subscribe and follow us on social media! ----<br />Twitter: <a rel="nofollow" target="blank" href="http://bit.ly/ECTweet">http://bit.ly/ECTweet</a><br />Facebook: <a rel="nofollow" target="blank" href="http://bit.ly/ECFBPage">http://bit.ly/ECFBPage</a><br />Instagram: <a rel="nofollow" target="blank" href="http://bit.ly/ECisonInstagram">http://bit.ly/ECisonInstagram</a><br />Twitch: <a rel="nofollow" target="blank" href="http://bit.ly/ECtwitch">http://bit.ly/ECtwitch</a><br />Website: <a rel="nofollow" target="blank" href="http://extracredits.site/">http://extracredits.site/</a><br /><br />---- Interested in sponsoring an episode? Email us: extracredits@standard.tv ----<br />♪ Intro music: &quot;Coffee Beans&quot; by Mike Wuerth<br />♪ Outro music: &quot;So You Haven't Read Theme&quot; by Tiffany Roman<br /><br />#SoYouHaventRead #Macbeth #Shakespeare{% endraw %}
