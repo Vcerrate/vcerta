@@ -1,0 +1,15 @@
+---
+title: "Brutal Attack: NATO F-35s Drop 500-pound GBU-12 destroy Russian Deadliest Rocket Artillery System"
+image: "https:\/\/i.ytimg.com\/vi\/uyqJlpt6B8s\/hqdefault.jpg"
+vid_id: "uyqJlpt6B8s"
+categories: "Science-Technology"
+tags: ["brutal attack","nato f-35s drop 500-pound gbu-12 destroy russian deadliest rocket artillery system","nato f-35s drop 500-pound gbu-12"]
+date: "2022-04-20T10:52:07+03:00"
+vid_date: "2022-04-20T02:00:23Z"
+duration: "PT8M10S"
+viewcount: "123166"
+likeCount: "2582"
+dislikeCount: ""
+channel: "AMERICAN PATRIOT MILITARY"
+---
+{% raw %}The F-35 stealth fighter is clearly one of the best fighters to ever fly. <br /><br />In an interview with The Aviationist on April 7, Billie Flynn, a former Canadian lieutenant colonel and senior F-35 test pilot for Lockheed Martin, highlighted the role that the F-35 could play in similar conditions.<br />“The F-35 was designed precisely for an environment that we are seeing in Ukraine now,” Flynn said.<br /><br />The new generation<br />The F-35, built by Lockheed Martin, is one of two fifth-generation fighter jets used by the US, alongside the F-22 Raptor, and one of four in use around the world. China’s J-20 entered mass production in late 2021 and hasn’t seen combat. Russia’s Su-57 hasn’t entered mass production.<br /><br />The weaponry it carries varies. In a configuration known as “beast mode” it carries four 500-pound GBU-12 laser-guided bombs on its wings, two GBU-12 in its internal weapons bay, and an AIM-9 air-to-air heat-seeking missile. That configuration sacrifices stealth for firepower.<br />When in stealth mode, the jet foregoes externally mounted weapons to preserve its low-observable profile.<br /><br />“The F-35 was designed to operate in highly contested airspace, with capabilities precisely focused on what we have been seeing in Ukraine today. If you have F-35s, you do not necessarily need F-16s to do the damage that the F-35 would bring,” according to the former F-35 test pilot.<br /><br />Nevertheless, their presence so close to the conflict zone has had an impact, according to Flynn.<br />Having that jet flying along NATO’s eastern flank “is a significant deterrent” against Russian forces “continuing their ambitions to push further eastward. Because the F-35 represent an extraordinary lethal threat,” Flynn said.<br /><br />The F-35’s “capacity to neutralize the enemy cannot be matched by any other airplane that flies in anybody else’s air force,” Flynn said. “So just the fact that the F-35s are there scares everybody on the other side.”<br /><br />Make sure to share this video with your friends!<br /><br />↦ VIDEO/THUMBNAIL : JUST ILLUSTRATION<br />↦ The title and thumbnail are just sweeteners, make sure you listen to the news carefully<br /><br />The massive Thanks to everyone for watching and all of your support!<br /><br />Recent Upload : <a rel="nofollow" target="blank" href="https://youtu.be/iEZqXvLfLYU">https://youtu.be/iEZqXvLfLYU</a><br />Most Popular Video : <a rel="nofollow" target="blank" href="https://youtu.be/5vTEJSj6iSA">https://youtu.be/5vTEJSj6iSA</a>{% endraw %}
