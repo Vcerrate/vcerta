@@ -1,0 +1,15 @@
+---
+title: "Slurring, Disheveled Trump's Worst Rally in Years"
+image: "https:\/\/i.ytimg.com\/vi\/n1UepgDNA4s\/hqdefault.jpg"
+vid_id: "n1UepgDNA4s"
+categories: "News-Politics"
+tags: ["trump rally","trump selma north carolina rally","trump speech"]
+date: "2022-04-20T03:10:33+03:00"
+vid_date: "2022-04-11T20:00:09Z"
+duration: "PT7M49S"
+viewcount: "348624"
+likeCount: "13064"
+dislikeCount: ""
+channel: "David Pakman Show"
+---
+{% raw %}--A particularly disheveled Donald Trump delivers a slurring speech to a weaponized rally crowd in Selma, North Carolina<br />💻 Stay protected! Try Aura FREE for 14 days: <a rel="nofollow" target="blank" href="https://aura.com/pakman">https://aura.com/pakman</a><br />---<br />Become a Member: <a rel="nofollow" target="blank" href="https://www.davidpakman.com/membership">https://www.davidpakman.com/membership</a><br />Become a Patron: <a rel="nofollow" target="blank" href="https://www.patreon.com/davidpakmanshow">https://www.patreon.com/davidpakmanshow</a><br />Book David Pakman: <a rel="nofollow" target="blank" href="https://www.cameo.com/davidpakman">https://www.cameo.com/davidpakman</a><br />---<br />Subscribe to the SECOND channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/pakmanlive">https://www.youtube.com/pakmanlive</a><br />Follow David on Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/dpakman">http://www.twitter.com/dpakman</a><br />David on Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/david.pakman">http://www.instagram.com/david.pakman</a><br />TDPS Subreddit: <a rel="nofollow" target="blank" href="http://www.reddit.com/r/thedavidpakmanshow/">http://www.reddit.com/r/thedavidpakmanshow/</a><br />Pakman Discord: <a rel="nofollow" target="blank" href="https://www.davidpakman.com/discord">https://www.davidpakman.com/discord</a><br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/davidpakmanshow">http://www.facebook.com/davidpakmanshow</a><br />Leave a Voicemail Line: (219)-2DAVIDP<br />---<br />David tech:<br />-Camera: Sony PXW-X70 <a rel="nofollow" target="blank" href="https://amzn.to/3emv1v1">https://amzn.to/3emv1v1</a><br />-Microphone: Shure SM7B: <a rel="nofollow" target="blank" href="https://amzn.to/3hEVtSH">https://amzn.to/3hEVtSH</a><br />-Voice Processor: dbx 266xs <a rel="nofollow" target="blank" href="https://amzn.to/3B1SV8N">https://amzn.to/3B1SV8N</a><br />-Stream Controller: Elgato Stream Deck <a rel="nofollow" target="blank" href="https://amzn.to/3B4jPNq">https://amzn.to/3B4jPNq</a><br />-Microphone Cloudlifter: <a rel="nofollow" target="blank" href="https://amzn.to/2T9bhne">https://amzn.to/2T9bhne</a><br /><br />-Timely news is important! We upload new clips every day! Make sure to subscribe!<br /><br />Get 2 free months of Artlist: <a rel="nofollow" target="blank" href="https://bit.ly/3DsDxnr">https://bit.ly/3DsDxnr</a><br /><br />-Timely news is important! We upload new clips every day! Make sure to subscribe!<br /><br />Broadcast on April 11, 2022<br /><br />#davidpakmanshow #trump #rally{% endraw %}
