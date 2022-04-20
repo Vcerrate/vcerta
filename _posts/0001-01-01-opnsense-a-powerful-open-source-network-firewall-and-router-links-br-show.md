@@ -1,0 +1,15 @@
+---
+title: "OPNSense - a powerful, open source, network firewall and router."
+image: "https:\/\/i.ytimg.com\/vi\/Qrglquxw-6I\/hqdefault.jpg"
+vid_id: "Qrglquxw-6I"
+categories: "Science-Technology"
+tags: ["open","source","opensource"]
+date: "2022-04-20T03:15:53+03:00"
+vid_date: "2022-04-19T15:21:42Z"
+duration: "PT41M12S"
+viewcount: "1314"
+likeCount: "100"
+dislikeCount: ""
+channel: "Awesome Open Source"
+---
+{% raw %}=== Links ===<br />Show Notes<br /><a rel="nofollow" target="blank" href="https://shownotes.opensourceisawesome.com/opnsense-install-and-initial-setup/">https://shownotes.opensourceisawesome.com/opnsense-install-and-initial-setup/</a><br /><br />OPNSense Download<br /><a rel="nofollow" target="blank" href="https://opnsense.org/download/">https://opnsense.org/download/</a><br /><br />Support my Channel and ongoing efforts through Patreon:<br /><a rel="nofollow" target="blank" href="https://www.patreon.com/bePatron?u=234177">https://www.patreon.com/bePatron?u=234177</a><br /><br />=== Timestamps ===<br />00:00 Beginning<br />00:09 Introduction to OPNSense<br />02:20 Thank you to my Patrons at Patreon for all of your continued support!<br />02:55 Get / Download OPNSense<br />05:55 Installing OPNSense<br />13:50 Assign Interfaces<br />16:20 Checking our IP Address when Connected to OPNSense<br />17:10 Initial Setup Wizard in OPNSense Web GUI<br />24:00 Setup our Dashboard<br />26:40 Setup our System for Homelab access and use<br /><br />=== Contact ===<br />Twitter: @mickintx<br />Telegram: @MickInTx<br />Mastodon: <a rel="nofollow" target="blank" href="http://mastodon.partecipa.digital/">http://mastodon.partecipa.digital/</a> @MickInTX<br /><br />Try out SSDNodes VPS Services! Amazing Specs for incredibly low costs. I'm running a 32 GB RAM / $ CPU Server for only $9 a month!  Seriously. FOr long term server usage, this is the way to go!<br /><a rel="nofollow" target="blank" href="https://www.ssdnodes.com/manage/aff.php?aff=1011">https://www.ssdnodes.com/manage/aff.php?aff=1011</a><br /><br />Get a $50.00 credit for Digital Ocean by signing up with this link:<br /><a rel="nofollow" target="blank" href="https://m.do.co/c/a6a61ae55242">https://m.do.co/c/a6a61ae55242</a><br /><br />Use Hover as your Domain Name Registrar to get some great control over you domains / sub-domains:<br /><a rel="nofollow" target="blank" href="https://hover.com/SHPaiirr">https://hover.com/SHPaiirr</a><br /><br />Support my Channel and ongoing efforts through Patreon:<br /><a rel="nofollow" target="blank" href="https://www.patreon.com/bePatron?u=234177">https://www.patreon.com/bePatron?u=234177</a><br /><br />What does the money go to?<br />To Pay for Digital Ocean droplets, donations to open source projects I feature, any hardware I may need to purchase for future episodes (which I will then give to a subscriber in a drawing or contest).<br /><br />=== Attributions ===<br />Intro and Outro music provided by <a rel="nofollow" target="blank" href="https://www.bensound.com">https://www.bensound.com</a>{% endraw %}
