@@ -1,0 +1,15 @@
+---
+title: "How the Establishment Gets People to Lie For Them"
+image: "https:\/\/i.ytimg.com\/vi\/5Bfdv-AexbE\/hqdefault.jpg"
+vid_id: "5Bfdv-AexbE"
+categories: "Entertainment"
+tags: ["Lilly Singh","Will Smith","TedTalk"]
+date: "2022-04-21T03:54:06+03:00"
+vid_date: "2022-04-14T22:17:44Z"
+duration: "PT32M31S"
+viewcount: "325530"
+likeCount: "24305"
+dislikeCount: ""
+channel: "Think Before You Sleep"
+---
+{% raw %}This video is about Lilly Singh's TedTalk &quot;A Seat at the Table.&quot;<br /><br />Support This Channel<br />Paypal Donate:<br /><a rel="nofollow" target="blank" href="https://www.paypal.me/TBYSDONATE">https://www.paypal.me/TBYSDONATE</a><br />SubscribeStar:<br /><a rel="nofollow" target="blank" href="https://www.subscribestar.com/think-before-you-sleep">https://www.subscribestar.com/think-before-you-sleep</a><br />Patreon:<br /><a rel="nofollow" target="blank" href="https://www.patreon.com/ThinkBeforeYouSleep">https://www.patreon.com/ThinkBeforeYouSleep</a><br /><br />Odysee:<br /><a rel="nofollow" target="blank" href="https://odysee.com/@ThinkBeforeYouSleep:0">https://odysee.com/@ThinkBeforeYouSleep:0</a><br />Twitter:<br /><a rel="nofollow" target="blank" href="https://twitter.com/TBYSTweet">https://twitter.com/TBYSTweet</a><br />Minds:<br /><a rel="nofollow" target="blank" href="https://www.minds.com/thinkbeforeyousleep/">https://www.minds.com/thinkbeforeyousleep/</a><br />Gab:<br /><a rel="nofollow" target="blank" href="https://gab.com/ThinkBeforeYouSleep">https://gab.com/ThinkBeforeYouSleep</a><br />Rumble:<br /><a rel="nofollow" target="blank" href="https://rumble.com/c/ThinkBeforeYouSleep">https://rumble.com/c/ThinkBeforeYouSleep</a><br /><br />Links:<br />Lilly Singh's TedTalk: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=9EBkS2kE7uk">https://www.youtube.com/watch?v=9EBkS2kE7uk</a><br />ANZ The Wage Gap: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=e_1gdx4DKbk">https://www.youtube.com/watch?v=e_1gdx4DKbk</a><br />Lilly Singh Playing Fortnite: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=TXkxpfHQMXs">https://www.youtube.com/watch?v=TXkxpfHQMXs</a><br />Lilly Talking About Her Nintendo: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=4U1akx68RRc">https://www.youtube.com/watch?v=4U1akx68RRc</a><br />Lilly Knows Nothing About Video Games: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Df3PEgB3qUA">https://www.youtube.com/watch?v=Df3PEgB3qUA</a><br />Self-Help Guru Lilly: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=iHcnt-xubTI">https://www.youtube.com/watch?v=iHcnt-xubTI</a><br />Why Feminism Needs Men: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?app=desktop&amp;v=3Xu2JE2LoEY">https://www.youtube.com/watch?app=desktop&amp;v=3Xu2JE2LoEY</a><br />&quot;Rebuilding&quot; Society: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=oZPZzvPRHNU">https://www.youtube.com/watch?v=oZPZzvPRHNU</a>{% endraw %}
