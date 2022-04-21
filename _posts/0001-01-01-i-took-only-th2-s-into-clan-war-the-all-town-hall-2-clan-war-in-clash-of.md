@@ -1,0 +1,15 @@
+---
+title: "I Took Only TH2's into Clan War!"
+image: "https:\/\/i.ytimg.com\/vi\/rbx71Jilbe0\/hqdefault.jpg"
+vid_id: "rbx71Jilbe0"
+categories: "Gaming"
+tags: ["clash of clans","coc","clash of clans gameplay"]
+date: "2022-04-21T05:15:52+03:00"
+vid_date: "2022-04-20T14:30:18Z"
+duration: "PT12M10S"
+viewcount: "72793"
+likeCount: "6464"
+dislikeCount: ""
+channel: "Judo Sloth Gaming"
+---
+{% raw %}The All Town Hall 2 Clan War in Clash of Clans! Judo Sloth Gaming attacks in the 1v5 War Series using Only TH2 Accounts. This proved to be super fun and was a perfect match against other Town Hall 2 players. I used many of the skills I had picked up in my Max Player Returns to TH2 video in order to put up numerous 3 stars. Enjoy!<br /><br />Max Player Returns to TH2: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=W9paPnOheMw">https://www.youtube.com/watch?v=W9paPnOheMw</a><br />I Took My Rushed Bases into Clan War: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=HgBupTGJKkc">https://www.youtube.com/watch?v=HgBupTGJKkc</a><br /><br />Join 'The Dojo' to gain Exclusive Perks by becoming a Member of the Judo Sloth Gaming YT Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/judosloth/join">https://www.youtube.com/judosloth/join</a><br /><br />Thank you for using Code 'Judo' in Clash of Clans to support me: <a rel="nofollow" target="blank" href="https://bit.ly/CodeJudo">https://bit.ly/CodeJudo</a><br /><br />My Clash of Clans Playlists<br />Clash Explained: <a rel="nofollow" target="blank" href="https://bit.ly/ClashExplained">https://bit.ly/ClashExplained</a><br />Base Upgrading Advice: <a rel="nofollow" target="blank" href="https://bit.ly/UpgradeBase">https://bit.ly/UpgradeBase</a><br />Tip for Everything Series: <a rel="nofollow" target="blank" href="https://bit.ly/TipsForEverything">https://bit.ly/TipsForEverything</a><br /><br />Watch my Livestreams on Twitch and Facebook:<br />TWITCH ► <a rel="nofollow" target="blank" href="https://www.twitch.tv/judo_sloth">https://www.twitch.tv/judo_sloth</a><br />FACEBOOK ► <a rel="nofollow" target="blank" href="https://www.facebook.com/JudoSloth">https://www.facebook.com/JudoSloth</a><br /><br />Follow me on Social Media:<br />TWITTER ► <a rel="nofollow" target="blank" href="https://twitter.com/JudoSloth">https://twitter.com/JudoSloth</a><br />INSTAGRAM ► <a rel="nofollow" target="blank" href="https://www.instagram.com/judosloth">https://www.instagram.com/judosloth</a><br />DISCORD ► <a rel="nofollow" target="blank" href="https://discord.gg/JudoSloth">https://discord.gg/JudoSloth</a><br /><br />#ClashOfClans #CoC #TH2War<br /><br />► Judo Sloth Gaming is a mobile gaming channel focused on Clash of Clans. You will see a variety of videos focused on being Educational but Entertaining! You will find Informational Guides on Everything in CoC. Attack Strategies, 3 Star Attacks, Farming or Upgrade Advice, Lets Play and Update News - you'll want to Subscribe to see it all. Clash On!{% endraw %}
