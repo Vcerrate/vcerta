@@ -1,0 +1,15 @@
+---
+title: "How To Achieve SUCCESS FASTER Than 99% Of People (START DOING THIS) | Tom Bilyeu"
+image: "https:\/\/i.ytimg.com\/vi\/A5YFmcPBQKY\/hqdefault.jpg"
+vid_id: "A5YFmcPBQKY"
+categories: "Education"
+tags: ["Tom Bilyeu","Impact Theory","ImpactTheory"]
+date: "2022-04-21T18:16:33+03:00"
+vid_date: "2022-04-21T13:00:07Z"
+duration: "PT1H7M4S"
+viewcount: "6233"
+likeCount: "582"
+dislikeCount: ""
+channel: "Tom Bilyeu"
+---
+{% raw %}My amazing and talented wife Lisa is releasing her new book Radical Confidence, which you can preorder - and get the bonuses she’s created for you - at <a rel="nofollow" target="blank" href="https://www.radicalconfidence.com.">https://www.radicalconfidence.com.</a> When you read this book, Lisa will teach you 10 No-BS Life Lessons to become the hero of your own life and take MASSIVE bold action to achieve your potential!<br /><br />Are you feeling you are lacking motivation or are unsure how to achieve your goals? Then head on over to <a rel="nofollow" target="blank" href="https://unstuck.impacttheory.com.">https://unstuck.impacttheory.com.</a> There you can register and get access to a free workshop.<br /><br />If you’re like most people, odds are that you’re not exactly where you want to be in life. <br /><br />But no matter what your definition of success is, or what you’re trying to accomplish, the simple truth is this: you’re not yet where you want to be because you don’t yet have the skills required to get there.<br /><br />In this talk at the Ice House in Pasadena, CA, I dive deep into the hard truths about what it takes to become extraordinary, regardless of what you’re pursuing.<br /><br />If you’re feeling stuck, lacking ambition, or just don’t think you’re good enough to get where you want to go, then buckle up because this talk will shake you out of your comfort zone and get you back on track to pursuing a life of fulfillment!<br /><br /><br />SHOW NOTES:<br />00:00 | Ambition vs. Drive<br />11:12 | Self-Worth and Achievement<br />19:07 | Grit Isn’t Sexy<br />30:34 | Permission to Fail<br />39:13 | The Ultimate Adaptation Machine<br />45:39 | The Brain That Changes Itself<br />56:28 | Being Average Is Enough<br /><br /><br />QUOTES:<br />“Fulfillment is often born of suffering. But it has to be suffering with a purpose.” [08:13]<br /><br />“I'm not telling you not to chase money. I'm just saying it's not going to feed you emotionally the way you think it is.” [15:32]<br /><br />“Facing what you've done wrong, owning it, accepting it, allows you to not make that mistake the next time.” [33:07]<br /><br />“Every time something goes wrong in my life, I am asking myself one simple question. “What is it that I suck at?” I suck at something, there's something I'm doing wrong. By definition, if I were doing it right, then I would be getting the outcome that I wanted.” [37:50]<br /><br />“The first step in this incredibly arduous journey that you're going to be on if you want to be extraordinary, is simply to believe you can become extraordinary.” [1:03:29]{% endraw %}
