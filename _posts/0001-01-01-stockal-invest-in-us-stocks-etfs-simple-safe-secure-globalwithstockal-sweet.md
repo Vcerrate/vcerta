@@ -1,0 +1,15 @@
+---
+title: "Stockal - Invest in US stocks & ETFs | Simple, Safe, Secure | #GlobalWithStockal @Sweet Shop"
+image: "https:\/\/i.ytimg.com\/vi\/dxyHwZcgiGM\/hqdefault.jpg"
+vid_id: "dxyHwZcgiGM"
+categories: "Education"
+tags: ["Stockal","Global investment","US Markets"]
+date: "2022-04-21T16:33:51+03:00"
+vid_date: "2022-04-21T12:32:59Z"
+duration: "PT16S"
+viewcount: "13188"
+likeCount: "4"
+dislikeCount: ""
+channel: "Stockal"
+---
+{% raw %}Jab har cheez mein aap local ke saath global bhi chahte ho, then why not your investments? Ab investments bhi #GlobalWithStockal<br /><br />Kickstart your investing journey in global stock markets with Stockal. Invest in over 5,500+ U.S. listed company stocks and ETFs. Start with as low as $1. Stockal makes global investing, smart, simple and secure.<br /><br />Download the App now:<br /><a rel="nofollow" target="blank" href="https://stockal.onelink.me/YDHX/q5411g2o">https://stockal.onelink.me/YDHX/q5411g2o</a><br /><br />Sign Up on our Website:<br /><a rel="nofollow" target="blank" href="https://platform.stockal.com/signup?utm_source=AdFilm2&amp;utm_medium=YouTube&amp;utm_campaign=April&amp;utm_content=Sweets&amp;utm_term=Hotstar&amp;sourceCampaign=AdFilm2&amp;source=YouTubeApril">https://platform.stockal.com/signup?utm_source=AdFilm2&amp;utm_medium=YouTube&amp;utm_campaign=April&amp;utm_content=Sweets&amp;utm_term=Hotstar&amp;sourceCampaign=AdFilm2&amp;source=YouTubeApril</a><br /><br />Follow us on:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/getstockal/?hl=en">https://www.instagram.com/getstockal/?hl=en</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/getStockal">https://twitter.com/getStockal</a><br />LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/company/stockal">https://www.linkedin.com/company/stockal</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/getstockal/">https://www.facebook.com/getstockal/</a><br />Quora: <a rel="nofollow" target="blank" href="https://www.quora.com/profile/Stockal-2?ch=17&amp;oid=1012242719&amp;share=b4595734&amp;srid=uhDGjX&amp;target_type=user">https://www.quora.com/profile/Stockal-2?ch=17&amp;oid=1012242719&amp;share=b4595734&amp;srid=uhDGjX&amp;target_type=user</a><br /><br />Subscribe to our Telegram channel to get real-time updates about the market: <a rel="nofollow" target="blank" href="https://telegram.me/getstockal?utm_source=Telegram+Ads&amp;utm_medium={{placement}}&amp;utm_campaign={{adset.id}}&amp;utm_content={{ad.id}}">https://telegram.me/getstockal?utm_source=Telegram+Ads&amp;utm_medium={{placement}}&amp;utm_campaign={{adset.id}}&amp;utm_content={{ad.id}}</a><br /><br />Read our blog to get regular market updates: <a rel="nofollow" target="blank" href="https://www.stockal.com/blogs">https://www.stockal.com/blogs</a><br /><br />*Information provided herein should not be construed nor treated as legal, tax, investment, financial, or other advice and Stockal expressly disclaim any liability on such averment. The trademarks, images and logos used herein are purely for information purposes only.{% endraw %}
