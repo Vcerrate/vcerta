@@ -1,0 +1,15 @@
+---
+title: "Spring Closet Declutter & Cleaning 🌼"
+image: "https:\/\/i.ytimg.com\/vi\/Q8uRf966Dd8\/hqdefault.jpg"
+vid_id: "Q8uRf966Dd8"
+categories: "Howto-Style"
+tags: ["Loepsie","loepsie","loepsie channel"]
+date: "2022-04-22T21:12:57+03:00"
+vid_date: "2022-04-22T13:00:13Z"
+duration: "PT18M43S"
+viewcount: "1891"
+likeCount: "275"
+dislikeCount: ""
+channel: "Loepsie"
+---
+{% raw %}It's time for the annual spring cleaning of my closet! I'm going to go through my clothes, bring out the spring/summer items from storage, and thoroughly clean and declutter the closet. Enjoy watching!<br /><br />Music courtesy of Epidemic Sound. <br />Sign up for a free trial and find the song here: <a rel="nofollow" target="blank" href="http://share.epidemicsound.com/loepsie">http://share.epidemicsound.com/loepsie</a><br />(Affiliate link)<br /><br />---------------------------------------------------------------------------------------<br /><br />Support me through Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/loepsie">https://www.patreon.com/loepsie</a><br /><br />Shop my merch: <a rel="nofollow" target="blank" href="https://teespring.com/stores/tea-time-lounge-collection">https://teespring.com/stores/tea-time-lounge-collection</a><br /><br />---------------------------------------------------------------------------------------<br /><br />More SEWING videos: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLWpk-1VZu_yOWIvs8hlOf-H4rzLyUzCQt">https://youtube.com/playlist?list=PLWpk-1VZu_yOWIvs8hlOf-H4rzLyUzCQt</a><br /><br />More HAIR tutorials: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLWpk-1VZu_yO5VKQxmx2w6qVn_goJSo2m">https://www.youtube.com/playlist?list=PLWpk-1VZu_yO5VKQxmx2w6qVn_goJSo2m</a><br /><br />---------------------------------------------------------------------------------------<br /><br />My name is Lucy, I'm a Dutchwoman here to offer an alternative approach to beauty.<br /><br />On this channel you'll find a decade's worth of hair tutorials where I show you how to braid, pin and style your own hair. I recreate hairstyles from movies, tv shows or history and have regularly come up with my own, which I love to share with you!<br /><br />I really enjoy diving into history to find out how women went about their beauty and dressing rituals in days past. Vintage and history-themed videos are my joy, as is my latest passion: sewing and costuming.<br /><br />You'll find a bit of lifestyle content here as well, ranging from cozy chats over a cup of tea (my beloved Tea Time videos) to personal vlogs and slow &amp; conscious living videos. <br /><br />Enjoy browsing!<br /><br />Love,<br />Lucy<br /><br />-----------------------------------------------------------------------------------------<br /><br />Blog: <a rel="nofollow" target="blank" href="http://www.loepsie.com">http://www.loepsie.com</a><br />Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/Loepsies">http://instagram.com/Loepsies</a>{% endraw %}
