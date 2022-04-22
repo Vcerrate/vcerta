@@ -1,0 +1,15 @@
+---
+title: "Is technology harmful to youngsters? - 6 Minute English"
+image: "https:\/\/i.ytimg.com\/vi\/StEB_wntlZ0\/hqdefault.jpg"
+vid_id: "StEB_wntlZ0"
+categories: "Education"
+tags: ["learn English","English vocabulary","speak English"]
+date: "2022-04-22T04:31:25+03:00"
+vid_date: "2022-04-16T12:00:11Z"
+duration: "PT6M23S"
+viewcount: "46207"
+likeCount: "1695"
+dislikeCount: ""
+channel: "BBC Learning English"
+---
+{% raw %}Improve your English vocabulary and listening in just six minutes! In this programme, Neil and Sam take a look at a new report which finds little evidence to link technology with mental health problems in young people, and teach you related vocabulary.<br /><br />This week's question <br />On average how many hours per day do British teenagers spend on their screens?<br />a) 5 and a half hours<br />b) 6 and a half hours<br />c) 7 and a half hours<br />Listen to the programme to find out the answer. <br /><br />Vocabulary<br />adolescent<br />young person in the process of developing into an adult<br /><br />smoking gun<br />information or evidence that proves that something is true or that someone has committed a crime<br /><br />savvy<br />having a good understanding and practical knowledge of something<br /><br />app blocker<br />software that blocks pop-up apps and websites and allows users to set timers which limit their amount of screen time <br /><br />designed for addiction<br />immersive video games and social media which are designed to manipulate human psychology <br /><br />digital native<br />someone who is very familiar and comfortable using digital technology and computers because they have grown up with them<br /><br />This episode of 6 Minute English was originally published as a web exclusive on bbclearningenglish.com.<br />To download the audio and a transcript, go to:<br /><a rel="nofollow" target="blank" href="https://www.bbc.co.uk/learningenglish/english/features/6-minute-english/ep-210906">https://www.bbc.co.uk/learningenglish/english/features/6-minute-english/ep-210906</a><br /><br />[Cover: Getty Images]<br /><br />More 6 Minute English episodes:<br />How to disagree better<br /><a rel="nofollow" target="blank" href="https://youtu.be/rWHGKGS7zSc​​">https://youtu.be/rWHGKGS7zSc​​</a><br /><br />Meditation and your brain<br /><a rel="nofollow" target="blank" href="https://youtu.be/sm6EtQg-hxw​​">https://youtu.be/sm6EtQg-hxw​​</a><br /><br />No more bosses<br /><a rel="nofollow" target="blank" href="https://youtu.be/ktgDXNML2uI​​">https://youtu.be/ktgDXNML2uI​​</a><br /><br />How can we make the web a better place? <br /><a rel="nofollow" target="blank" href="https://youtu.be/wMQjmpVgor8​​">https://youtu.be/wMQjmpVgor8​​</a><br /><br />Learn to talk about broken hearts in 6 minutes!<br /><a rel="nofollow" target="blank" href="https://youtu.be/WBLuy_YU-Zw​​">https://youtu.be/WBLuy_YU-Zw​​</a><br /><br />Coronavirus vs other pandemics<br /><a rel="nofollow" target="blank" href="https://youtu.be/kjVd228S-yQ​​">https://youtu.be/kjVd228S-yQ​​</a><br /><br />#bbclearningenglish #learnenglish #tech #technology #newgeneration{% endraw %}
