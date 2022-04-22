@@ -1,0 +1,15 @@
+---
+title: "Most Talked About Scenes, Part 2!  | The Big Bang Theory"
+image: "https:\/\/i.ytimg.com\/vi\/_eh9pP3umuA\/hqdefault.jpg"
+vid_id: "_eh9pP3umuA"
+categories: "Entertainment"
+tags: ["TheBigBangTheory","WarnerBrosTV","mosttalkedaboutscenes"]
+date: "2022-04-22T04:47:01+03:00"
+vid_date: "2022-04-16T16:00:24Z"
+duration: "PT13M7S"
+viewcount: "174108"
+likeCount: "1730"
+dislikeCount: ""
+channel: "Warner Bros. TV"
+---
+{% raw %}Because we promised, here is part two of the most talked about scenes and moments from the hit show The Big Bang Theory!<br /><br />#TheBigBangTheory<br />#MostPopularEpisodes! <br /><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/bigbangtheory/">https://www.instagram.com/bigbangtheory/</a><br /><br />Subscribe to Warner Bros TV! <a rel="nofollow" target="blank" href="https://www.youtube.com/warnerbrostv">https://www.youtube.com/warnerbrostv</a><br /><br />Keep up with us on social<br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@warnerbrostv">https://www.tiktok.com/@warnerbrostv</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/warnerbrostv">https://www.instagram.com/warnerbrostv</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/warnerbrostv">https://twitter.com/warnerbrostv</a><br /><a rel="nofollow" target="blank" href="https://www.warnerbros.com/tv">https://www.warnerbros.com/tv</a><br /><br />The Big Bang Theory created by Chuck Lorre and Bill Prady premiered on CBS on September 24, 2007, and concluded on May 16, 2019, having broadcast 279 episodes over 12 seasons.[<br /><br />The show originally centered on five characters living in Pasadena, California: Leonard Hofstadter (Johnny Galecki) and Sheldon Cooper (Jim Parsons), both physicists at Caltech, who share an apartment; Penny (Kaley Cuoco), a waitress and aspiring actress who lives across the hall; and Leonard and Sheldon's similarly geeky and socially awkward friends and co-workers, aerospace engineer Howard Wolowitz (Simon Helberg) and astrophysicist Raj Koothrappali (Kunal Nayyar). Over time, supporting characters were promoted to starring roles, including neuroscientist Amy Farrah Fowler (Mayim Bialik), microbiologist Bernadette Rostenkowski (Melissa Rauch), and comic book store owner Stuart Bloom (Kevin Sussman).<br /><br />The show was filmed in front of a live audience and produced by Warner Bros. Television and Chuck Lorre Productions. It ultimately reached the no. 1 spot in its eleventh season. It was nominated for the Emmy Award for Outstanding Comedy Series from 2011 to 2014 and won the Emmy Award for Outstanding Lead Actor in a Comedy Series four times for Parsons. In total, it won seven Emmy Awards from 46 nominations. Parsons also won the Golden Globe for Best Actor in a Television Comedy Series in 2011. In 2017, the series spawned a prequel series, Young Sheldon, based on Parsons' character Sheldon Cooper; it also airs on CBS.{% endraw %}
