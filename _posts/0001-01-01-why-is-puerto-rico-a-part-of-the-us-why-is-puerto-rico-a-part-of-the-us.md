@@ -1,0 +1,15 @@
+---
+title: "Why is Puerto Rico a Part of the US?"
+image: "https:\/\/i.ytimg.com\/vi\/4N9qWEY-9rQ\/hqdefault.jpg"
+vid_id: "4N9qWEY-9rQ"
+categories: "Education"
+tags: ["geography","history","flags"]
+date: "2022-04-23T21:55:32+03:00"
+vid_date: "2022-04-23T17:00:03Z"
+duration: "PT2M27S"
+viewcount: "1091"
+likeCount: "125"
+dislikeCount: ""
+channel: "Trebbie"
+---
+{% raw %}Why is Puerto Rico a Part of the US? | In this video, I answer why Puerto Rico is a part of the US and why it isn't a state.<br />I hope you enjoy(ed) the video! Thank you and have a good day :)<br />-----------------------------------------------------------------------<br />➤ Sources<br />If you see this message, I forgot to put in the sources I used. Feel free to remind me in the comments to feel this in!<br />-----------------------------------------------------------------------<br />➤ Music<br />If you see this message, I forgot to put in the music I used. Feel free to remind me in the comments to feel this in!<br />-----------------------------------------------------------------------<br />➤ My Other Socials<br />Miscellaneous Channel: <a rel="nofollow" target="blank" href="https://bit.ly/3M2UIjH">https://bit.ly/3M2UIjH</a><br />Stock Footage Channel: <a rel="nofollow" target="blank" href="https://bit.ly/3M6JWJ7">https://bit.ly/3M6JWJ7</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/trebbiegeo">https://twitter.com/trebbiegeo</a><br />Discord: <a rel="nofollow" target="blank" href="https://discord.io/trebbie">https://discord.io/trebbie</a><br />-----------------------------------------------------------------------<br />➤ Equipment<br />Headphones: Samson SR350 (<a rel="nofollow" target="blank" href="https://amzn.to/3kb3ga3)">https://amzn.to/3kb3ga3)</a><br />Microphone: Neewer NW-7000 (<a rel="nofollow" target="blank" href="https://amzn.to/387aF4C)">https://amzn.to/387aF4C)</a><br />Keyboard: Amazon Basics (<a rel="nofollow" target="blank" href="https://amzn.to/2ZW3Lvj)">https://amzn.to/2ZW3Lvj)</a><br />Mouse: NPET M70 (<a rel="nofollow" target="blank" href="https://amzn.to/39mL3n3)">https://amzn.to/39mL3n3)</a><br />Mousepad: JIALONG Black Deskpad (<a rel="nofollow" target="blank" href="https://amzn.to/3ckdlgp)">https://amzn.to/3ckdlgp)</a><br />Monitor: 2xDell E2014H (<a rel="nofollow" target="blank" href="https://amzn.to/2TawRFd)">https://amzn.to/2TawRFd)</a><br />-----------------------------------------------------------------------<br />➤ Software<br />Video Editor: Adobe Premiere Pro<br />Image Editor: paint.net<br />Recording: OBS<br />-----------------------------------------------------------------------<br />➤ My PC<br />Case: DEEPCOOL MATREXX 55<br />CPU: AMD Ryzen 7 3700X<br />GPU: Zotac GeForce GTX 1070<br />PSU: EVGA 500W 80+<br />RAM: Corsair Vengence 2x8GB 2133MHz <br />SSD: ADATA 128GB NVMe SSD <br />Motherboard: MSI B450 TOMAHAWK Max <br />-----------------------------------------------------------------------<br />➤ Miscellaneous<br />Current Sub Count - 23,448{% endraw %}
