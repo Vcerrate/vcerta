@@ -1,0 +1,15 @@
+---
+title: "Seoul Apt makeover & Apt tour 🏠| bypadapada"
+image: "https:\/\/i.ytimg.com\/vi\/mgFZucBQEDY\/hqdefault.jpg"
+vid_id: "mgFZucBQEDY"
+categories: "Entertainment"
+tags: ["seoul","living alone","seoul apartments"]
+date: "2022-04-23T08:08:21+03:00"
+vid_date: "2022-04-15T12:37:34Z"
+duration: "PT15M"
+viewcount: "17152"
+likeCount: ""
+dislikeCount: ""
+channel: "bypadapada"
+---
+{% raw %}Hey everybody! <br /><br />I'm Tolkyn, 25 yrs old. Currently living in Seoul, South Korea. <br /><br />This channel is a space where I hope to share some simple yet happy moments of my life. Hope you enjoy them too. <br /><br />_____<br />Where to find me: <br />INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/bypadapada/">https://www.instagram.com/bypadapada/</a><br />EMAIL: bypadapada@gmail.com<br />_____<br />Equipments:<br />- Iphone 12 <br />Editing tools:<br />- Final Cut Pro<br />University background<br />BA: Korea University, Media &amp; Communication<br />MA: NYU, Gallatin<br /><br />_____<br />furniture details: <br />bed frame <a rel="nofollow" target="blank" href="https://ohou.se/productions/389373/selling">https://ohou.se/productions/389373/selling</a><br />trolley organizer <a rel="nofollow" target="blank" href="https://ohou.se/productions/1077809/selling">https://ohou.se/productions/1077809/selling</a><br />glass table <a rel="nofollow" target="blank" href="https://ohou.se/productions/578250/selling">https://ohou.se/productions/578250/selling</a><br />glass coffee table <a rel="nofollow" target="blank" href="https://ohou.se/productions/857866/selling">https://ohou.se/productions/857866/selling</a><br />mirror <a rel="nofollow" target="blank" href="https://ohou.se/productions/1028194/selling">https://ohou.se/productions/1028194/selling</a><br />mat <a rel="nofollow" target="blank" href="https://ohou.se/productions/857600/selling">https://ohou.se/productions/857600/selling</a><br />sofa <a rel="nofollow" target="blank" href="https://ohou.se/productions/814002/selling">https://ohou.se/productions/814002/selling</a> <br /><br /><br />_____<br />music: <br />Music by Kabwasa - Jazz &amp; Blues - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=4F8378DE">https://thmatc.co/?l=4F8378DE</a> <br />Music by Jeffrey Lenh - idk - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=95C2CCF9">https://thmatc.co/?l=95C2CCF9</a><br />Music by mj apanay - 11:23 - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=2043BC1Bmu">https://thmatc.co/?l=2043BC1Bmu</a><br />Music by Hariz - Border - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=6F4AE7C7">https://thmatc.co/?l=6F4AE7C7</a><br />Music by Anja Kotar - Midnight in Paris - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=1E48CF82">https://thmatc.co/?l=1E48CF82</a><br />Music by Remil - Evening Tea - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=73ED249C">https://thmatc.co/?l=73ED249C</a><br />Music by Chief Takinawa - Caffe Latte - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=09A4DCAC">https://thmatc.co/?l=09A4DCAC</a><br /><br /><br />_____<br />Thanks💙{% endraw %}
