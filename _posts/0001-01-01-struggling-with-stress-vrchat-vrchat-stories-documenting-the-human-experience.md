@@ -1,0 +1,15 @@
+---
+title: "Struggling With Stress | VRCHAT"
+image: "https:\/\/i.ytimg.com\/vi\/7Rw1OltOtbw\/hqdefault.jpg"
+vid_id: "7Rw1OltOtbw"
+categories: "Gaming"
+tags: ["VRChat","vr chat","vr chat stories"]
+date: "2022-04-24T06:12:25+03:00"
+vid_date: "2022-04-23T16:00:03Z"
+duration: "PT10M4S"
+viewcount: "2127"
+likeCount: "231"
+dislikeCount: ""
+channel: "Humans of VR"
+---
+{% raw %}VRCHAT STORIES | documenting the human experience in virtual reality<br />&quot;Spreading Kindness&quot; merch at humansofvirtualreality.com<br />🔴 Important: YouTube doesn't notify you of my newest videos unless you subscribe and click the bell icon<br /><br />Best VRCHAT Playlist ► <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=lSQRspXph_E&amp;list=PLEpL7jmkYp0O2qIOJBQcji1yjhuCcoLVM">https://www.youtube.com/watch?v=lSQRspXph_E&amp;list=PLEpL7jmkYp0O2qIOJBQcji1yjhuCcoLVM</a><br /><br />PATREON PERKS ► <a rel="nofollow" target="blank" href="http://patreon.com/humans_of_vr">http://patreon.com/humans_of_vr</a><br />TIKTOK ► <a rel="nofollow" target="blank" href="https://www.tiktok.com/@humansofvr">https://www.tiktok.com/@humansofvr</a><br />TWITCH ► <a rel="nofollow" target="blank" href="https://www.twitch.tv/HumansOfVR">https://www.twitch.tv/HumansOfVR</a><br />DISCORD COMMUNITY ► <a rel="nofollow" target="blank" href="https://discord.gg/WeyB6NU">https://discord.gg/WeyB6NU</a><br />TWITTER ► <a rel="nofollow" target="blank" href="https://twitter.com/Humans_of_VR">https://twitter.com/Humans_of_VR</a><br /><br />The &quot;Spreading Kindness&quot; merch segment of the video is voiced by Respectable Adult: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/RespectableAdult">https://www.youtube.com/c/RespectableAdult</a><br />Every interviewee has given permission to appear in this video. All gameplay footage was recorded and edited by Humans of VR<br /><br />&quot;Imagine a world where anything is possible. Join a game of capture the flag in outer space. Share stories around a campfire while roasting marshmallows, then moments later experience a retro game of bowling with an alien and robot. In VRChat there is something around every corner that will delight, thanks to the power of true user generated content. Jump into hundreds of awe inspiring environments and meet unique avatars every day. Watch a movie on the moon. Ride the Titanic. Step into a new world every time you come online. In VRChat, you are one of us. Enjoy your stay.&quot; - VRChat<br /><br />This VRchat series is inspired by Syrmor Disrupt Azeal Thoraya Maronesy &amp; IamLucid . If you're interested in VRchat anyone can play it for free with a Virtual Reality / VR Headset like the Oculus Rift S HTC Vive Cosmos Valve Index and Oculus / Meta Quest 2 . If you don't have a VR headset don't worry you can still play using only a computer! VRChat offers a social VR chat experience. Check out the community and remember VRChat is free so there is no reason not to try it!<br /><br />#VRChat #VR #gaming #vrchatstories #VirtualReality{% endraw %}
