@@ -1,0 +1,15 @@
+---
+title: "HARD PLAY ПРОБУЕТ ТУХЛУЮ АКУЛУ С ТИМА МАЦОНИ. САМОЕ ВОНЮЧЕЕ МЯСО"
+image: "https:\/\/i.ytimg.com\/vi\/5qhPwXHtpyM\/hqdefault.jpg"
+vid_id: "5qhPwXHtpyM"
+categories: "Entertainment"
+tags: ["hard play","хард плей","тима мацони"]
+date: "2022-04-25T02:45:14+03:00"
+vid_date: "2022-04-24T17:11:18Z"
+duration: "PT25M22S"
+viewcount: "56419"
+likeCount: "9817"
+dislikeCount: ""
+channel: "Hard Play"
+---
+{% raw %}СТРИМЛЮ ТУТ - <a rel="nofollow" target="blank" href="https://wasd.tv/hardplay">https://wasd.tv/hardplay</a><br />Телеграм - <a rel="nofollow" target="blank" href="https://t.me/hplegion">https://t.me/hplegion</a><br />Тима Мацони - <a rel="nofollow" target="blank" href="https://inlnk.ru/agmLx2">https://inlnk.ru/agmLx2</a><br />Оповещение о стримах - <a rel="nofollow" target="blank" href="https://goo.gl/L75cVB">https://goo.gl/L75cVB</a> (поставь + в вк)<br />Я ВКонтакте - <a rel="nofollow" target="blank" href="https://vk.com/hard_rus">https://vk.com/hard_rus</a><br />Какая еда самая противная? Сюрстреминг? А вот и нет! Самое тухлое мясо оказалось у акулы - традиционное исландское блюдо Хакарл. Пробуем это блюдо вместе с нашим старым другом Тимой Мацони! Приятного просмотра<br /><br />Обязательно подпишись :<br />Наш мерч - <a rel="nofollow" target="blank" href="http://hardplaystyle.ru">http://hardplaystyle.ru</a> <br />Инстаграм - <a rel="nofollow" target="blank" href="https://www.instagram.com/hard.inst">https://www.instagram.com/hard.inst</a><br />Паблик ВКонтакте - <a rel="nofollow" target="blank" href="https://vk.com/hp_legion">https://vk.com/hp_legion</a><br />Роспись от меня ВКонтакте - <a rel="nofollow" target="blank" href="https://signalerts.ru/buy/4767">https://signalerts.ru/buy/4767</a><br />Оповещение о стримах - <a rel="nofollow" target="blank" href="https://goo.gl/L75cVB">https://goo.gl/L75cVB</a> (поставь + в вк)<br />Наш Discord - <a rel="nofollow" target="blank" href="https://discord.gg/hardplay">https://discord.gg/hardplay</a><br /> <br />Все серии Смешные нарезки ( плейлист ) :<br /><a rel="nofollow" target="blank" href="https://goo.su/906h">https://goo.su/906h</a><br /><br />Не забудь оценить :<br />Прохождение игр - <a rel="nofollow" target="blank" href="https://goo.su/8zWV">https://goo.su/8zWV</a><br />Давай глянем - <a rel="nofollow" target="blank" href="https://goo.su/8zWW">https://goo.su/8zWW</a><br />Для спонсоров - <a rel="nofollow" target="blank" href="https://goo.su/8ZxH">https://goo.su/8ZxH</a><br />Кооп-Стримы - <a rel="nofollow" target="blank" href="https://goo.su/8ZWW">https://goo.su/8ZWW</a><br />Смешные нарезки - <a rel="nofollow" target="blank" href="https://goo.su/8zWz">https://goo.su/8zWz</a><br />Мистика/Заброшки - <a rel="nofollow" target="blank" href="https://goo.su/8zx">https://goo.su/8zx</a><br />Еда/Кухня - <a rel="nofollow" target="blank" href="https://goo.su/8zxI">https://goo.su/8zxI</a><br /><br />#Тимамацони #HardPlay #тухлаяакула<br />HARD PLAY ПРОБУЕТ ТУХЛУЮ АКУЛУ С ТИМА МАЦОНИ{% endraw %}
