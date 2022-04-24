@@ -1,0 +1,15 @@
+---
+title: "The Kid LAROI - Thousand Miles (Official Video)"
+image: "https:\/\/i.ytimg.com\/vi\/GS-666L0VLE\/hqdefault.jpg"
+vid_id: "GS-666L0VLE"
+categories: "Music"
+tags: ["the kid laroi","thekidlaroi","laroi"]
+date: "2022-04-24T18:04:22+03:00"
+vid_date: "2022-04-22T04:00:11Z"
+duration: "PT3M18S"
+viewcount: "3206488"
+likeCount: "160859"
+dislikeCount: ""
+channel: "The Kid LAROI."
+---
+{% raw %}Official Video for &quot;Thousand Miles&quot; by The Kid LAROI<br /><br />Listen &amp; Download &quot;Thousand Miles&quot; out now: <a rel="nofollow" target="blank" href="https://thekidlaroi.lnk.to/ThousandMiles">https://thekidlaroi.lnk.to/ThousandMiles</a><br /><br />Lyrics:<br />I know that look on your face<br />You’re coming my way, you’re coming my way tonight<br />Here goes another mistake<br />I know I’m gon’ make, I know I’m gon’ make tonight <br /> <br />Oh, you should let it go, you’re better off alone<br />Cause I’m about to f*ck it up with you <br />I know that look on your face<br />You’re coming my way, you’re coming my way tonight<br /><br />And I will never change <br />I couldn’t even, if I wanted for you <br />There’s nothing left to say <br />If I was you, if I was you then I would stay<br />A thousand miles away (a thousand miles away) <br /><br />It’s hard to give it all up<br />Tryna block you out but you’re evading my thoughts<br />And you got, ten fingers wrapped around my heart<br />Wish I could give you everything that you want<br />But I won’t, no <br /> <br />You should let it go, you’re better off alone<br />Cause I’m about to f*ck it up with you <br />I know that look on your face<br />You’re coming my way<br />Tomorrow we’ll say goodbye<br /> <br />And I will never change <br />I couldn’t even if I wanted for you (oh)<br />There’s nothing left to say <br />If I was you, if I was you then I would stay<br />A thousand miles away (a thousand miles away) <br /> <br />Here in your arms, I’m already gone<br />You got me wrong, and I played along<br /> <br />I know that look on your face<br />You’re coming my way, you’re coming my way tonight<br />Here goes another mistake<br />I know i’m gonna make, I know i’m gonna make tonight <br /> <br />And I will never change <br />I couldn’t even, if I wanted for you <br />There’s nothing left to say <br />If I was you, if I was you then I would stay<br />A thousand miles away (a thousand miles away)<br /><br />Follow The Kid LAROI<br />Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/thekidlaroi">https://www.facebook.com/thekidlaroi</a><br />Instagram - <a rel="nofollow" target="blank" href="https://www.instagram.com/thekidlaroi/">https://www.instagram.com/thekidlaroi/</a><br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/thekidlaroi">https://twitter.com/thekidlaroi</a><br />TikTok - <a rel="nofollow" target="blank" href="https://www.tiktok.com/@thekidlaroi">https://www.tiktok.com/@thekidlaroi</a><br /> <br />#TheKidLAROI #ThousandMiles{% endraw %}
