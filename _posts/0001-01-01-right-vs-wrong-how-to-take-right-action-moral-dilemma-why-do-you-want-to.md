@@ -1,0 +1,15 @@
+---
+title: "Right vs Wrong | How to take Right Action? | Moral Dilemma |"
+image: "https:\/\/i.ytimg.com\/vi\/GsSPT9TjjfY\/hqdefault.jpg"
+vid_id: "GsSPT9TjjfY"
+categories: "Education"
+tags: ["Meditation","Morality","Moral Dilemma"]
+date: "2022-04-24T09:51:08+03:00"
+vid_date: "2020-09-25T10:08:39Z"
+duration: "PT13M44S"
+viewcount: "1873"
+likeCount: "73"
+dislikeCount: ""
+channel: "I In Intelligence"
+---
+{% raw %}Why do you want to know what is right and what is wrong? Can anyone tell you? Can any book, can any teacher impart to you the knowledge of what is right and what is wrong? If you follow the authority of a book or of a teacher, you are merely imitating a pattern of thought, are you not? And do you discover anything through imitation, through conformity? You follow in order to achieve a certain result; and is that process not based on fear? Is that which is right to be discovered through fear, or only through direct experience? <br /><br />As long as the mind is caught in the dual process of right and wrong, there must obviously be incessant conflict. But is it not possible to discover what is true all the time without being caught in the conflict of right and wrong? That is our problem, is it not? What is right and what is wrong will vary according to the conditioning and experience of each person, and therefore it has very little significance; but to know what is true all the time - surely, that is important.<br /><br />Seeking security in success, the mind must conform to what is right, and so the battle is set going between what is right and what is wrong, the everlasting conflict of duality.<br /><br />Image Source - BBC, Ghetty Images<br /><br />Timeline:<br /><br />00:30 - Who decides Right and Wrong?<br />01:41 - Research Paper by Dr Hauser on Moral Minds<br />02:24 - Slavery was considered a Moral Act<br />03:15 - Morality vs Inner Realization<br />04:25 - The Universe's Right and Wrong<br />05:10 - Nandkishor Das meets a Monk (A story on Right vs Wrong)<br />08:38 - The Intelligence of Krishna, Buddha, Jesus, Mahavir, Muhammad, and Guru Nanak<br />10:08 - 3 Questions to ask before you make any decision<br />11:32 - Self Knowledge, the path to make every decision right<br /><br />___________________________________________________________________ <br />Check out our other videos: <br />Yoga Sutras of Patanjali - <a rel="nofollow" target="blank" href="https://youtu.be/bTGKutsRzGQ">https://youtu.be/bTGKutsRzGQ</a><br />Life after Death - <a rel="nofollow" target="blank" href="https://youtu.be/iLYc4q7KvBU">https://youtu.be/iLYc4q7KvBU</a><br />___________________________________________________________________ <br /><br />Instagram - <a rel="nofollow" target="blank" href="https://www.instagram.com/iinintelligence">https://www.instagram.com/iinintelligence</a> <br />Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/iinintelligence">https://www.facebook.com/iinintelligence</a><br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/iinintelligence">https://twitter.com/iinintelligence</a><br /><br />#Morality #Rightdecisions #karma{% endraw %}
