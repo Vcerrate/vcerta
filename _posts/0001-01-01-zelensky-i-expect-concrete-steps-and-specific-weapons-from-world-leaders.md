@@ -1,0 +1,15 @@
+---
+title: "Zelensky: \"I expect concrete steps and \"specific weapons\" from world leaders!\""
+image: "https:\/\/i.ytimg.com\/vi\/hbeOO9KtLzU\/hqdefault.jpg"
+vid_id: "hbeOO9KtLzU"
+categories: "News-Politics"
+tags: ["russian losses","zelensky","irpin ukraine"]
+date: "2022-04-24T17:36:05+03:00"
+vid_date: "2022-04-24T13:01:09Z"
+duration: "PT2M37S"
+viewcount: "301"
+likeCount: "12"
+dislikeCount: ""
+channel: "Breaking News USA"
+---
+{% raw %}Zelensky: &quot;I expect concrete steps and &quot;specific weapons&quot; from world leaders!&quot;<br /><br />Ukrainian President Volodymyr Zelensky said he would meet top U.S. officials Sunday in Kyiv as heavy fighting continues in Ukraine's east and south over the Easter weekend.<br /><br />The White House has yet to confirm the visit, which Zelenskiy said will include U.S. Secretary of State Anthony Blinken and U.S. Defense Secretary Lloyd Austin.<br /><br />Zelenskiy said he &quot;expects specific things and specific weapons&quot; from world leaders who will visit the country after announcing he would meet Blinken and Austin in Kyiv on Sunday. The potential visit will be the first visit by senior US officials since the start of the war. The White House declined to comment on the potential trip.<br /><br />Losses in Odessa: At least eight people, including a three-month-old baby, have died in Russian missile strikes on the southwestern port city of Odessa, Zelenskiy said Saturday, condemning the attack, which came a day before many Ukrainians celebrate Easter .<br /><br />An evacuation corridor from the besieged southern city of Mariupol was &quot;interrupted&quot; by Russian forces on Saturday, a Ukrainian official said. Ukrainian officials said more than 100,000 people still remain in the shelled city, which the Russian government claims is controlled. Ukrainian fighters continue to defend at the city's huge Azovstal steel plant, where civilians have been hiding for weeks and supplies are running low.<br /><br />Russia has said the goal of its invasion is to gain “full control” over southern Ukraine as well as the eastern region of Donbass and create a land corridor connecting Russia with Crimea, a peninsula it annexed in 2014. A briefing from the British Ministry of Defense on Saturday said Russian forces had made little progress in the past 24 hours in the face of Ukrainian counterattacks.<br /><br />Ukrainian officials said Saturday that Russia is forcibly deporting some Mariupol residents to Primorsky Krai in Russia's Far East, about 8,000 kilometers (4,970 miles) from Ukraine. In early April, Deputy Prime Minister of Ukraine Iryna Vereshchuk estimated that since the start of the war, about 45,000 Ukrainian citizens have been forcibly deported to Russia.<br /><br />Ukrainian intelligence has also accused Russia of planning to draft Ukrainian civilians from the occupied Kherson and Zaporizhia regions, according to a UK military intelligence update released on Saturday. This would be a violation of international law, the UK Department of Defense said in a statement.{% endraw %}
