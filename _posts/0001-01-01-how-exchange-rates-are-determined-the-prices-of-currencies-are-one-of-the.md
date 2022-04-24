@@ -1,0 +1,15 @@
+---
+title: "How Exchange Rates Are Determined"
+image: "https:\/\/i.ytimg.com\/vi\/-7ZSav8xvMU\/hqdefault.jpg"
+vid_id: "-7ZSav8xvMU"
+categories: "Education"
+tags: ["EconomicsExplained","Economics Explained","Exchange rate"]
+date: "2022-04-24T20:07:52+03:00"
+vid_date: "2021-02-12T18:38:37Z"
+duration: "PT9M31S"
+viewcount: "29551"
+likeCount: "1419"
+dislikeCount: ""
+channel: "Money & Macro"
+---
+{% raw %}The prices of currencies are one of the most tricky subjects in economics. When will a currency appreciate, and when will it depreciate? <br /><br />WANT TO HELP ME PRODUCE MORE CONTENT LIKE THIS?<br />△ Liked the in-depth research and want to help me do more? Consider buying me a coffee at <a rel="nofollow" target="blank" href="https://ko-fi.com/moneymacro">https://ko-fi.com/moneymacro</a><br />△ For some extra benefits consider supporting me longer term on: <a rel="nofollow" target="blank" href="https://www.patreon.com/moneymacro">https://www.patreon.com/moneymacro</a><br />△ Finally, for other one-time donations: <a rel="nofollow" target="blank" href="https://www.paypal.com/donate?hosted_button_id=9JRG5URQ9KEHS">https://www.paypal.com/donate?hosted_button_id=9JRG5URQ9KEHS</a><br /><br />5 BOOKS THAT INSPIRED THIS CHANNEL<br />The Narrow Corridor: States, Societies, and the Fate of Liberty: <a rel="nofollow" target="blank" href="https://amzn.to/3gr6pSV">https://amzn.to/3gr6pSV</a><br />Money Changes Everything: How Finance Made Civilization Possible: <a rel="nofollow" target="blank" href="https://amzn.to/3mt3xbY">https://amzn.to/3mt3xbY</a><br />Adaptive Markets: Financial Evolution at the Speed of Thought: <a rel="nofollow" target="blank" href="https://amzn.to/3sCkS3a">https://amzn.to/3sCkS3a</a><br />House of Debt: How They (and You) Caused the Great Recession, and How We Can Prevent It from Happening Again: <a rel="nofollow" target="blank" href="https://amzn.to/3gqXNeZ">https://amzn.to/3gqXNeZ</a><br />The Third Pillar: How Markets and the State Leave the Community Behind: <a rel="nofollow" target="blank" href="https://amzn.to/382Agwo">https://amzn.to/382Agwo</a><br /><br />Of course, this depends on supply and demand in foreign exchange markets. But, what determines this? There are two major theories in economics that try to explain this. The first is purchasing power parity and the second is interest rate parity. In this video, I discuss both as well as highlight the role of arbitrage and expectations. <br /><br />Want to know more? Watch the video, or read it all in the script here: <a rel="nofollow" target="blank" href="https://www.moneymacro.rocks/blog/">https://www.moneymacro.rocks/blog/</a><br /><br />Narrated and produced by Dr. Joeri Schasfoort (University of Cape Town)<br /><a rel="nofollow" target="blank" href="https://twitter.com/joerischasfoort">https://twitter.com/joerischasfoort</a><br /><a rel="nofollow" target="blank" href="https://www.linkedin.com/in/joeri-schasfoort/">https://www.linkedin.com/in/joeri-schasfoort/</a>{% endraw %}
