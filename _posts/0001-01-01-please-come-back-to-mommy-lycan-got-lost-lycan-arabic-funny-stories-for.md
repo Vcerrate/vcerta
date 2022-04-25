@@ -1,0 +1,15 @@
+---
+title: "Please Come Back to Mommy! Lycan Got Lost 🌟 Lycan Arabic Funny Stories For Kids"
+image: "https:\/\/i.ytimg.com\/vi\/odoo039KMyU\/hqdefault.jpg"
+vid_id: "odoo039KMyU"
+categories: "Education"
+tags: ["lycan arabic","lycan","lycan cartoons"]
+date: "2022-04-25T16:16:10+03:00"
+vid_date: "2022-02-14T13:21:01Z"
+duration: "PT21M50S"
+viewcount: "1653645"
+likeCount: "11051"
+dislikeCount: ""
+channel: "LYCAN - Arabic"
+---
+{% raw %}Oh no! Lycan got angry at mommy and ran away. Now he doesn't know the way home!<br />#LycanArabic #getlost #safetytips #Lycan #woavid #woababycartoonvideo #kidscartoons #toyskids #Kids #2dcartoon<br /><br />Please Come Back to Mommy! Lycan Got Lost 🌟 Lycan Arabic Funny Stories For Kids<br /><br />💖 Lycan Arabic - YouTube: <a rel="nofollow" target="blank" href="https://go.woanetwork.com/LycanArabic">https://go.woanetwork.com/LycanArabic</a><br />💖 Cartoon For Kids: <a rel="nofollow" target="blank" href="https://go.woanetwork.com/PlaylistCartoonForKids">https://go.woanetwork.com/PlaylistCartoonForKids</a><br />💖 Woa Kids Studio: <a rel="nofollow" target="blank" href="https://go.woanetwork.com/FanpageWoaKidsStudio">https://go.woanetwork.com/FanpageWoaKidsStudio</a><br />💖 Baby Panda World apps: <a rel="nofollow" target="blank" href="https://go.woanetwork.com/LearningAppForKids">https://go.woanetwork.com/LearningAppForKids</a><br /><br />✨✨✨✨✨✨✨✨✨✨✨<br /><br />LYCAN is a 2D little wolf who lives with many other wild animals. Together they live their humanoid lives, experience struggles, discover new places, learn new lessons everyday in every episode.<br />The channel builds up series of 2D animation with the main purposes of entertainment and education. We release a new episode everyday. Stay tuned, hit the subscribe button and ring the bell to not miss any.<br /><br />All audio and visual content in this channel is owned by SCONNECT CO., LTD., audiojungle.net and licenced under Creative Commons Attribution.<br /><a rel="nofollow" target="blank" href="https://creativecommons.org/licenses/by/4.0/">https://creativecommons.org/licenses/by/4.0/</a><br /><br />✨✨✨✨✨✨✨✨✨✨✨<br /><br />Please Come Back to Mommy! Lycan Got Lost<br /><br />About us:<br />► Our Merch: <a rel="nofollow" target="blank" href="https://store.wolfooworld.com/​">https://store.wolfooworld.com/​</a><br />► Baby Panda World apps: <a rel="nofollow" target="blank" href="https://go.woanetwork.com/LearningAppForKids">https://go.woanetwork.com/LearningAppForKids</a><br />► TikTok: <a rel="nofollow" target="blank" href="https://go.woanetwork.com/TikTokWolfooStories">https://go.woanetwork.com/TikTokWolfooStories</a><br />► Facebook: <a rel="nofollow" target="blank" href="https://go.woanetwork.com/FanpageWolfooAndFriends">https://go.woanetwork.com/FanpageWolfooAndFriends</a><br />► Gmail: info@woanetwork.com<br />► Visit WOA Network website!: <a rel="nofollow" target="blank" href="https://woanetwork.com">https://woanetwork.com</a><br />THANKS FOR WATCHING<br />AND DON’T FORGET TO SUBSCRIBE FOR MORE CARTOONS!{% endraw %}
