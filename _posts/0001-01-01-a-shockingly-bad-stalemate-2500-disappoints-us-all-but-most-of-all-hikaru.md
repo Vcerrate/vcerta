@@ -1,0 +1,15 @@
+---
+title: "A Shockingly Bad Stalemate!"
+image: "https:\/\/i.ytimg.com\/vi\/ZLJe_tecUWM\/hqdefault.jpg"
+vid_id: "ZLJe_tecUWM"
+categories: "Gaming"
+tags: ["chess","hikaru nakamura","gmhikaru"]
+date: "2022-04-25T19:29:50+03:00"
+vid_date: "2022-04-19T15:45:15Z"
+duration: "PT14S"
+viewcount: "57957"
+likeCount: "2377"
+dislikeCount: ""
+channel: "GMHikaru Clips"
+---
+{% raw %}2500 disappoints us all, but most of all Hikaru.<br />-----------------------------<br /><br />👕 MERCH ► <a rel="nofollow" target="blank" href="https://streamlabs.com/gmhikaru/merch">https://streamlabs.com/gmhikaru/merch</a><br /><br />♟️ LEARN CHESS  &amp; PLAY WITH ME ► <a rel="nofollow" target="blank" href="https://go.chess.com/hikaru">https://go.chess.com/hikaru</a> <br /><br />🎁 GIVE CHESS ► <a rel="nofollow" target="blank" href="https://www.chess.com/membership/gift?ref_id=15448422">https://www.chess.com/membership/gift?ref_id=15448422</a><br /><br />📽️  GMHIKARU MAIN YOUTUBE CHANNEL ► <a rel="nofollow" target="blank" href="https://www.youtube.com/c/GMHikaruClips?sub_confirmation=1">https://www.youtube.com/c/GMHikaruClips?sub_confirmation=1</a><br /><br />🎞️ MORE GMHIKARU YOUTUBE ► <a rel="nofollow" target="blank" href="https://www.youtube.com/c/moreGMHikaru?sub_confirmation=1">https://www.youtube.com/c/moreGMHikaru?sub_confirmation=1</a><br /><br />💜 TWITCH ► <a rel="nofollow" target="blank" href="https://www.twitch.tv/gmhikaru">https://www.twitch.tv/gmhikaru</a><br /><br />💖 INSTAGRAM ► <a rel="nofollow" target="blank" href="https://www.instagram.com/gmhikaru/">https://www.instagram.com/gmhikaru/</a><br /><br />🐦 TWITTER ► <a rel="nofollow" target="blank" href="https://twitter.com/gmhikaru">https://twitter.com/gmhikaru</a><br /><br />✨ TIKTOK ► <a rel="nofollow" target="blank" href="https://www.tiktok.com/@hikarugm">https://www.tiktok.com/@hikarugm</a><br /><br />💛 DISCORD ► <a rel="nofollow" target="blank" href="https://discord.gg/gmhikaru">https://discord.gg/gmhikaru</a><br /><br />💙 FACEBOOK  ►  <a rel="nofollow" target="blank" href="https://facebook.com/GMHikaru">https://facebook.com/GMHikaru</a><br /><br />💪 GFUEL ► <a rel="nofollow" target="blank" href="https://gfuel.ly/2LS5Rct​">https://gfuel.ly/2LS5Rct​</a> and use CODE HIKARU <br /><br />💚 SUPPORT  ► <a rel="nofollow" target="blank" href="https://streamlabs.com/gmhikaru">https://streamlabs.com/gmhikaru</a><br /><br />🤣 REDDIT ► <a rel="nofollow" target="blank" href="https://www.reddit.com/r/HikaruNakamura/">https://www.reddit.com/r/HikaruNakamura/</a><br /><br />━━━━━━━━━━━━━<br /><br />🎥 Edit by: ChaeDoc - <a rel="nofollow" target="blank" href="https://twitter.com/ChaeDoc?s=20">https://twitter.com/ChaeDoc?s=20</a><br />👌Channel Management - ChaeDoc - <a rel="nofollow" target="blank" href="https://twitter.com/ChaeDoc?s=20">https://twitter.com/ChaeDoc?s=20</a><br />📧 Business inquiries only: teamhikaru@unitedtalent.com or teamgmhikaru@gmail.com<br /><br />-------------------------------------------------<br /><br />#gmhikaru​ #clips​ #Shorts{% endraw %}
