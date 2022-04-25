@@ -1,0 +1,15 @@
+---
+title: "What Needs To Be In Poppy Playtime | Chapter 2 | Granny Long Legs | Character Concepts"
+image: "https:\/\/i.ytimg.com\/vi\/sKZc7iLPmIo\/hqdefault.jpg"
+vid_id: "sKZc7iLPmIo"
+categories: "Gaming"
+tags: ["Poppy Playtime","poppy play time huggy","poppy playtime huggy wuggy"]
+date: "2022-04-25T23:29:26+03:00"
+vid_date: "2022-04-24T21:30:17Z"
+duration: "PT9M1S"
+viewcount: "55993"
+likeCount: "1629"
+dislikeCount: ""
+channel: "Gamerjoob"
+---
+{% raw %}What Needs To Be In Poppy Playtime | Chapter 2 | Granny Long Legs | Character Concepts<br /><br />In todays video I talk about an idea for a Poppy Playtime concept character: Granny Long Legs<br /><br />Granny Long Legs are a fan Concept character that would exists in the world of Poppy Playtime<br /><br />In this video we look into Granny Long Legs  and also the area that they reside in. We take look at their creepy Toy Factory, their back story and also how to run and hide from this creepy toy<br /><br />Thank you for watching, We hope you enjoy! As always remember to like, comment, share, subscribe, and ring that bell! <br />and tell us down what you think and what you'd like to see going forward with the Poppy Playtime series.<br /><br />#PoppyPlaytime #huggy #huggywuggy<br /><br />You must stay alive in this horror/puzzle adventure. Try to survive the vengeful toys waiting for you in the abandoned toy factory. Use your GrabPack to hack electrical circuits or nab anything from afar. Explore the mysterious facility... and don't get caught.<br /><br />Poppy Playtime.  In-Game. You must stay alive in this horror/puzzle adventure. Try to survive the vengeful toys waiting for you in the abandoned toy factory. Use your GrabPack to hack electrical circuits or nab anything from afar<br /><br />Poppy Playtime, poppy playtime chapter 1, poppy play time huggy, poppy playtime huggy wuggy, poppy playtime jump scare, poppy playtime let's play, let's play poppy playtime, poppy playtime bron, huggy, bron, huggy wuggy, poppy playtime scary, poppy playtime game, huggy game, scary toy game, poppy playtime horror game, poppy playtime chapter 2, poppy playtime next chapter, poppy playtime new character, poppy playtime mommy character, poppy playtime mommy long legs theory, poppy playtime mommy long legs, poppy playtime chapter 2 trailer, mommy long legs explained, mommy long legs, mommy long legs poppy play time<br /><br />Instagram<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/gamerjoob/">https://www.instagram.com/gamerjoob/</a><br />Facebook <br /><a rel="nofollow" target="blank" href="https://www.facebook.com/GamerJoob/">https://www.facebook.com/GamerJoob/</a><br />Twitter <br /><a rel="nofollow" target="blank" href="https://twitter.com/GamerJoob">https://twitter.com/GamerJoob</a><br /><br />Poppy Playtime published by MOB Games<br />Developed by MOB Games<br />All rights reserved.<br /><br />Credits<br />Music- <a rel="nofollow" target="blank" href="https://www.purple-planet.com">https://www.purple-planet.com</a>{% endraw %}
