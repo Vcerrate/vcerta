@@ -1,0 +1,15 @@
+---
+title: "World's Most Reasonable Trumpist (Still Says Trump Won 2020)"
+image: "https:\/\/i.ytimg.com\/vi\/9RxORLx0DiU\/hqdefault.jpg"
+vid_id: "9RxORLx0DiU"
+categories: "News-Politics"
+tags: ["2022 midterms","2022 elections","trump supporter interview"]
+date: "2022-04-25T13:18:36+03:00"
+vid_date: "2022-04-24T19:00:05Z"
+duration: "PT25M39S"
+viewcount: "25508"
+likeCount: "966"
+dislikeCount: ""
+channel: "David Pakman Show"
+---
+{% raw %}--JR Majewski, Republican candidate for Congress in Ohio's 9th district, joins David to discuss, the 2020 election, the Constitution, his campaign platform, and much more<br />---<br />Become a Member: <a rel="nofollow" target="blank" href="https://www.davidpakman.com/membership">https://www.davidpakman.com/membership</a><br />Become a Patron: <a rel="nofollow" target="blank" href="https://www.patreon.com/davidpakmanshow">https://www.patreon.com/davidpakmanshow</a><br />Book David Pakman: <a rel="nofollow" target="blank" href="https://www.cameo.com/davidpakman">https://www.cameo.com/davidpakman</a><br />---<br />Subscribe to the SECOND channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/pakmanlive">https://www.youtube.com/pakmanlive</a><br />Follow David on Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/dpakman">http://www.twitter.com/dpakman</a><br />David on Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/david.pakman">http://www.instagram.com/david.pakman</a><br />TDPS Subreddit: <a rel="nofollow" target="blank" href="http://www.reddit.com/r/thedavidpakmanshow/">http://www.reddit.com/r/thedavidpakmanshow/</a><br />Pakman Discord: <a rel="nofollow" target="blank" href="https://www.davidpakman.com/discord">https://www.davidpakman.com/discord</a><br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/davidpakmanshow">http://www.facebook.com/davidpakmanshow</a><br />Leave a Voicemail Line: (219)-2DAVIDP<br />---<br />David tech:<br />-Camera: Sony PXW-X70 <a rel="nofollow" target="blank" href="https://amzn.to/3emv1v1">https://amzn.to/3emv1v1</a><br />-Microphone: Shure SM7B: <a rel="nofollow" target="blank" href="https://amzn.to/3hEVtSH">https://amzn.to/3hEVtSH</a><br />-Voice Processor: dbx 266xs <a rel="nofollow" target="blank" href="https://amzn.to/3B1SV8N">https://amzn.to/3B1SV8N</a><br />-Stream Controller: Elgato Stream Deck <a rel="nofollow" target="blank" href="https://amzn.to/3B4jPNq">https://amzn.to/3B4jPNq</a><br />-Microphone Cloudlifter: <a rel="nofollow" target="blank" href="https://amzn.to/2T9bhne">https://amzn.to/2T9bhne</a><br /><br />-Timely news is important! We upload new clips every day! Make sure to subscribe!<br /><br />Get 2 free months of Artlist: <a rel="nofollow" target="blank" href="https://bit.ly/3DsDxnr">https://bit.ly/3DsDxnr</a><br /><br />-Timely news is important! We upload new clips every day! Make sure to subscribe!<br /><br />Broadcast on April 20, 2022<br /><br />#davidpakmanshow #jrmajewski #2022midterms{% endraw %}
