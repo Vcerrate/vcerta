@@ -1,0 +1,15 @@
+---
+title: "ASMR for People Who Get Bored Easily"
+image: "https:\/\/i.ytimg.com\/vi\/o17vblC63is\/hqdefault.jpg"
+vid_id: "o17vblC63is"
+categories: "Entertainment"
+tags: ["ASMR","АСМР","asmr tapping"]
+date: "2022-04-25T11:06:32+03:00"
+vid_date: "2022-03-24T16:15:51Z"
+duration: "PT24M23S"
+viewcount: "1275854"
+likeCount: "46073"
+dislikeCount: ""
+channel: "Coromo Sara. ASMR"
+---
+{% raw %}Preview collection ✨<br /><br />This video includes tapping, scratching, brushing, crinkle sound (plastic wrap), ear cleaning, lid sound, whispering, mic pulling and more.<br /><br />【Preview collection video playlist】<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLRChxMJ6CyUcHjMSiLheH99-QQQivd9QV">https://youtube.com/playlist?list=PLRChxMJ6CyUcHjMSiLheH99-QQQivd9QV</a><br /><br />⭐️Preview Timestamps:<br />00:00 1<br />01:45 2<br />04:39 3<br />05:28 4<br />07:20 5<br />09:18 6<br />10:35 7<br />14:29 8<br />15:56 9<br />17:58 10<br />19:48 11<br />21:25 12<br />22:45 13<br /><br />1 <a rel="nofollow" target="blank" href="https://youtu.be/B6DX4DhfR-U">https://youtu.be/B6DX4DhfR-U</a><br />2 <a rel="nofollow" target="blank" href="https://youtu.be/8idmWkzyjLg">https://youtu.be/8idmWkzyjLg</a><br />3 <a rel="nofollow" target="blank" href="https://youtu.be/VH880_lMO2A">https://youtu.be/VH880_lMO2A</a><br />4 <a rel="nofollow" target="blank" href="https://youtu.be/H5EWgvy7aYQ">https://youtu.be/H5EWgvy7aYQ</a><br />5 <a rel="nofollow" target="blank" href="https://youtu.be/XIpDbdoaHuo">https://youtu.be/XIpDbdoaHuo</a><br />6 <a rel="nofollow" target="blank" href="https://youtu.be/aTdhdG_7Ldc">https://youtu.be/aTdhdG_7Ldc</a><br />7 <a rel="nofollow" target="blank" href="https://youtu.be/71s2PEt0nOQ">https://youtu.be/71s2PEt0nOQ</a><br />8 <a rel="nofollow" target="blank" href="https://youtu.be/-kPzIs652qI">https://youtu.be/-kPzIs652qI</a><br />9 <a rel="nofollow" target="blank" href="https://youtu.be/x1eNeXGoPrM">https://youtu.be/x1eNeXGoPrM</a><br />10 <a rel="nofollow" target="blank" href="https://youtu.be/pYhJEf_ZFYY">https://youtu.be/pYhJEf_ZFYY</a><br />11 <a rel="nofollow" target="blank" href="https://youtu.be/tJisYdbmUBE">https://youtu.be/tJisYdbmUBE</a><br />12 <a rel="nofollow" target="blank" href="https://youtu.be/X8s_QEKlZyA">https://youtu.be/X8s_QEKlZyA</a><br />13 <a rel="nofollow" target="blank" href="https://youtu.be/kRpqIw1b77g">https://youtu.be/kRpqIw1b77g</a><br /><br />Thank you for watching :)<br />I hope you have nice dreams🌙<br /><br />💖🐱Coromo Sara.<br /><br />୨୧┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈୨୧<br />🎀 Twitter： <a rel="nofollow" target="blank" href="https://twitter.com/Coromo_xx">https://twitter.com/Coromo_xx</a><br />🎀 Instagram：<a rel="nofollow" target="blank" href="https://www.instagram.com/coromo.asmr/">https://www.instagram.com/coromo.asmr/</a><br />🦉TikTok：<a rel="nofollow" target="blank" href="https://vt.tiktok.com/ZSJbfQDFr/">https://vt.tiktok.com/ZSJbfQDFr/</a><br />🔮Tingles：<a rel="nofollow" target="blank" href="https://tingles.app.link/Coromo.-ASMR">https://tingles.app.link/Coromo.-ASMR</a>{% endraw %}
