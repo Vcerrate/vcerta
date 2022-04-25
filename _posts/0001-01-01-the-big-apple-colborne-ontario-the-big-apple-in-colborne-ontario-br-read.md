@@ -1,0 +1,15 @@
+---
+title: "The Big Apple (Colborne, Ontario)"
+image: "https:\/\/i.ytimg.com\/vi\/MwO_wWQQ1Fw\/hqdefault.jpg"
+vid_id: "MwO_wWQQ1Fw"
+categories: "Travel-Events"
+tags: ["the big apple","apple farm","colborne ontario"]
+date: "2022-04-25T11:18:29+03:00"
+vid_date: "2018-11-01T15:58:40Z"
+duration: "PT5M32S"
+viewcount: "6873"
+likeCount: "56"
+dislikeCount: ""
+channel: "Christopher Rudder"
+---
+{% raw %}The Big Apple in Colborne, Ontario<br />Read Blog Post: <a rel="nofollow" target="blank" href="https://ontarioadventures.ca/things-to-do-in-kingston-this-weekend/">https://ontarioadventures.ca/things-to-do-in-kingston-this-weekend/</a><br />Like Kingston, The Big Apple is another one of those places you drive by on your or from someplace else. When driving by it’s hard to miss Mr. Applehead, an observatory and the world's largest apple-shaped structure in which you can climb and discover breathtaking vistas of the surrounding countryside. Meh. I’ll save that, the petting zoo and the mini-golf course for the children. Me, I’m after that apple pie, it’s a legend around these parts.<br /><br />Rudderless Travel<br /><a rel="nofollow" target="blank" href="http://www.ruderlesstravel.com">http://www.ruderlesstravel.com</a> <br /><br />Equipment Used In This Video:<br />iPhone 6:<br /><a rel="nofollow" target="blank" href="http://amzn.to/2gsqjeA">http://amzn.to/2gsqjeA</a><br />iStabilizer:<br /><a rel="nofollow" target="blank" href="http://amzn.to/2hEKDtY">http://amzn.to/2hEKDtY</a><br />Canon EOS Rebel T5i:<br /><a rel="nofollow" target="blank" href="http://bit.ly/2hlL5Ou">http://bit.ly/2hlL5Ou</a><br />Aputure Imaging Industries V-Mic D2:<br /><a rel="nofollow" target="blank" href="http://amzn.to/2hpkL6J">http://amzn.to/2hpkL6J</a><br />Canon XA30:<br /><a rel="nofollow" target="blank" href="http://bit.ly/2gwufjg">http://bit.ly/2gwufjg</a><br />Rode NTG-1<br /><a rel="nofollow" target="blank" href="http://amzn.to/2gE1yiC">http://amzn.to/2gE1yiC</a><br />DJI Mavic Pro<br /><a rel="nofollow" target="blank" href="http://click.dji.com/AJtAxO5SPl1tEvdQnOWu?pm=link">http://click.dji.com/AJtAxO5SPl1tEvdQnOWu?pm=link</a><br /><br />See more at the Rudderless Travel Store:<br /><a rel="nofollow" target="blank" href="https://www.rudderlesstravel.com/store/">https://www.rudderlesstravel.com/store/</a><br /><br />Rudderless Travel Social Media:<br />Facebook:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/rudderless.travel/">https://www.facebook.com/rudderless.travel/</a><br />Twitter:<br /><a rel="nofollow" target="blank" href="https://twitter.com/Rudderless_Trav">https://twitter.com/Rudderless_Trav</a><br />Instagram:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/rudderless_travel/">https://www.instagram.com/rudderless_travel/</a><br />Google +:<br /><a rel="nofollow" target="blank" href="https://plus.google.com/u/0/+ChristopherRudder">https://plus.google.com/u/0/+ChristopherRudder</a><br />Pinterest:<br /><a rel="nofollow" target="blank" href="https://www.pinterest.com/RudderlessTravel">https://www.pinterest.com/RudderlessTravel</a>{% endraw %}
