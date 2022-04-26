@@ -1,0 +1,15 @@
+---
+title: "陳珊妮 Sandee Chan - 成為一個厲害的普通人 Be An Extraordinary Ordinary Person ft.呂士軒 (Official Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/Q9rEL75Crik\/hqdefault.jpg"
+vid_id: "Q9rEL75Crik"
+categories: "Music"
+tags: ["陳珊妮","成為一個厲害的普通人","Be An Extraordinary Ordinary Person"]
+date: "2022-04-26T21:18:33+03:00"
+vid_date: "2019-09-24T11:00:14Z"
+duration: "PT5M28S"
+viewcount: "1002050"
+likeCount: "17314"
+dislikeCount: ""
+channel: "sandeechan"
+---
+{% raw %}陳珊妮巡迴演唱會：404 (not found)－2020/2/1完整重擊追加場<br /><br />我們都走在時代的刀口上<br />無能與力量同時在醞釀<br /><br />當清醒者失語<br />無力抵抗<br />與其靜默療傷<br /><br />不如再唱一場！<br />-<br /><br />演出日期：2020/2/1(六）<br />演出地點：Legacy Taipei<br />網路購票：<a rel="nofollow" target="blank" href="https://pse.is/L2SM4">https://pse.is/L2SM4</a><br />實體購票：7-11 ibon（iNDIEVOX獨立音樂網）<br />＿＿＿＿＿＿＿＿＿<br /><br />去年冬天不冷，冷的是心。<br /><br />這世界上有很多遊戲規則，是為多數人設計的，<br />我們偶爾會忘記這件事。<br /><br />跨年那天，一篇 #交換2019 的發文，與你們交換了一份新年禮物：這一年最令人沮喪的憂慮與心事。家暴的陰影破碎的家，對凱彤的思念，同婚公投，生老病死...<br /><br />這麼多年的音樂創作，走過類比音樂的時代，走出第一年同志熱線的小教室，跨過那些被稱為地下音樂的分類，我想說的是：這世界會改變的，我看過這樣的風景，有點漫長，有點麻煩，但總會有少數人，從不迴避衝突，用最深的熱情對抗表面和諧的冷酷。<br /><br />所有配不上這個時代的普通人，都在創造新的時代。<br /><br />可以的，我們可以的...by 公主<br /><br />＿＿＿＿＿＿＿＿＿<br /><br />「用三個詞 描述一下你現在的生活」<br />他想了很久 面對未來一切毫無把握<br />原來生活不過是 停下來就傾倒的單車<br />帶走了他最愛的創作歌手 <br />這才看懂<br />「慢性的無力感」是什麼<br /><br />他第一次 感覺愛情漸漸死於行動<br />與七百萬人 逆向而來的惡寒交手<br />有人單身怕了啊 有人正逃離該死的家<br />大人們忙著包裝傷口藉口<br />補補縫縫<br />深怕再失去什麼<br /><br />我要成為～<br />小王子的那朵玫瑰<br />我要成為～<br />風之谷的一段配樂<br />我要成為～ <br />當年的我的志願<br /><br />『用三個詞 描述一下你現在的生活』 <br />他想了很久 比從前在意別人怎麼說<br />原來孤獨不過是 來自一點點與眾不同<br />記憶正疊加淡出舊愛摯友 <br />生死病痛<br />提醒我抓緊什麼<br /><br />那些過去的知音<br />像嘴邊淡去的煙霧<br />逐漸冷卻的赤子心<br />也大幅降低情緒的限度<br /> <br />悲傷再重依舊拉不下臉<br />像那句我愛你在大人世界裡依舊插不上嘴<br /> <br />可笑的是<br />點了根菸卻點不著這的火花<br />成為個夾心學著說謊<br />外面再塗上他們喜歡的果醬<br /> <br />總有天我會打破那扇窗戶的<br />反正從來不屑他們的大拇哥<br />總有天當我脫下紗布了<br />誰都別想別想再掐住了<br /><br />我要成為～<br />小王子的那朵玫瑰<br />(不再沈睡了  不再害怕成見的 勇氣都是珍貴的 都是珍貴的)<br />我要成為～<br />風之谷的一段配樂<br />(不再心碎的  那個聲音一定能被聽見的 一定能被聽見的)<br />我要成為～<br />煙盒裡最後那根菸<br />(不再被拒絕的  沒人能夠把那把火熄滅的  把那把火熄滅的)<br />我要成為自己<br />拒絕被世界改變<br />(就是今天了  是今天了)<br /><br />可以的<br />我們可以的 <br />可以的<br />＿＿＿＿＿＿＿＿＿<br /><br />成為一個厲害的普通人  ft.呂士軒<br />詞曲：陳珊妮 Sandee Chan／呂士軒 Trout Fresh<br />編曲吉他：徐研培 Eric Hsu<br />和聲編寫：陳珊妮 Sandee Chan<br />錄音師：陳文駿 AJ Chen<br />混音：陳文駿 AJ Chen ＠強力錄音室<br /><br />製作公司 Production Studio｜大樂音樂<br /><br />導演 Director｜陳珊妮<br />副導 Assistant Director｜談宗藩<br /><br />製片Producer｜吳容宸 Edison Wu<br />場景經理 Location Manager｜李宗勳<br />現場製片助理Production Support｜王琦凱 潘玨文 李政諺 劉彥宏<br />選角Casting｜陳靜媚(Lucy) 蔡佳恩 陳庭維<br /><br />攝影師D.O.P｜曾崴榆<br />攝影大助First Assistant Camera ｜劉于豪<br />攝影助理 Assistant Camera ｜蔡亞玲 賴建榮<br />場務 Grip｜許俊平<br /><br />美術 Art Director｜陳冠霓<br />妝髮 Make up &amp; Hair style｜洪丌涵<br /><br />演員 Actress｜呂士軒 吳建恆 小倩 Eve 阿Q 賴儀珊 李韋均 蔡宇軒 楊于萱 鄧紹杰<br /><br />剪接 Editor｜陳珊妮 談宗藩 <br />調光Colorist ｜陳珊妮 QFX<br />攝影器材 Camera Equipment｜和寬影視器材<br />交通Transportation｜廖桑大車隊<br /><br />平面設計 Graphic Design：畢展熒<br />後期VFX ：QFX<br /><br />特別感謝：<br />建恆<br />EVE a.k.a酷酷小乖乖<br />李依蒨<br />吳依儒<br /><br />　<br />所有和我們 #交換2019 的你們{% endraw %}
