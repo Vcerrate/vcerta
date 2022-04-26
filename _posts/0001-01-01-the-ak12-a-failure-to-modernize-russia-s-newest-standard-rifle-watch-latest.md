@@ -1,0 +1,15 @@
+---
+title: "The AK12 - A failure to modernize. [Russia's newest standard rifle]"
+image: "https:\/\/i.ytimg.com\/vi\/4cJbOAVDQxQ\/hqdefault.jpg"
+vid_id: "4cJbOAVDQxQ"
+categories: "Sports"
+tags: ["Afghanistan","Kalashnikov","AK74"]
+date: "2022-04-26T11:38:34+03:00"
+vid_date: "2022-04-21T16:00:02Z"
+duration: "PT27M53S"
+viewcount: "160143"
+likeCount: "8521"
+dislikeCount: ""
+channel: "9-Hole Reviews"
+---
+{% raw %}Watch latest videos, sometimes even early releases! Sign up for the newsletter: <a rel="nofollow" target="blank" href="https://www.slateblackindustries.com/service/newsletter/">https://www.slateblackindustries.com/service/newsletter/</a><br /><br />The AK12 is the latest standard issued weapon for the Russian armed forces... but is it a step forward? <br /><br />As an AK400 prototype derivative, the current issued AK12 has a lot of questionable &quot;advancements&quot;. On paper, it packs a lot of futuristic features, but is the weapon designed for use with corrosive ammunition in the Russian inventory? Does the dust cover really retain zero? Is it optimized for mechanized warfare? <br /><br />While it took us a while to work on this video, an interesting note to keep in mind that @Brandon Herrera and @Polenar Tactical also worked on the AK12 on one of the same weekends that we did (despite not knowing so), and we all came out with a shockingly similar conclusion: the AK12... is inferior to the modernized AK74 / AK74m. <br /><br />We'd also like to thank the following contributors: <br />@Oxide <br />Jeff Gurwitch from @Modern Tactical Shooting <br />@KLAYCO47 <br />@Rifle Dynamics helping confirm the early AK12 and it's lack of a Chrome lined barrel<br />@Garand Thumb for the footage <br />@Hagge Bänke - Helped confirm the AK12 stuff from his end since they have a TR3 on hand<br /><br /><br />Consider supporting us via Patreon 👉  <a rel="nofollow" target="blank" href="http://www.patreon.com/9HoleReviews">http://www.patreon.com/9HoleReviews</a> (you an also access the Practical Accuracy Scoreboard here)<br /><br />0:00 - Intro<br />00:10 - Video opening<br />00:47 - AK12 intro<br />02:36 - Background<br />03:25 - Rifle Features<br />05:10 - General Deficiencies<br />09:08 - Accuracy test<br />11:13 - Recoil test<br />13:22 - Corrosive Munitions<br />19:15 - Missed Modernization Goals<br />20:31 - Missed Troop Feedback<br />22:18 - Alternatives<br />24:08 - Conclusion<br />25:51 - Final thoughts<br />26:29 - Special Thanks<br /><br /><br />We have a discount for Slate Black Industries MLOK accessories! <br />👉 www (dot) slateblackindustries (dot) com <br />Discount code: 9HOLE<br /><br />Shopping with this link costs you nothing, but provides us with equipment: <a rel="nofollow" target="blank" href="https://www.amazon.com/?tag=sbi09-20">https://www.amazon.com/?tag=sbi09-20</a><br /><br />This video's editing by Agency Communications LLC<br />Music by Tyops (THANKS!!!)<br /><br />__________________________________________________________________<br />We love mail:<br />9 Hole Reviews<br />21175 Tomball Pkwy. No. 480<br />Houston, Texas 77070{% endraw %}
