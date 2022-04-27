@@ -1,0 +1,15 @@
+---
+title: "The Halal Travel Podcast Sidetalk #2 | Probably the Most Kecoh Games Day"
+image: "https:\/\/i.ytimg.com\/vi\/GOmGrUOSOW8\/hqdefault.jpg"
+vid_id: "GOmGrUOSOW8"
+categories: "Entertainment"
+tags: ["Spelling Bee","Podcast","podcast singapore"]
+date: "2022-04-27T15:35:27+03:00"
+vid_date: "2022-04-27T06:19:59Z"
+duration: "PT28M16S"
+viewcount: "15"
+likeCount: "1"
+dislikeCount: ""
+channel: "Halal Trip"
+---
+{% raw %}After many The Halal Travel Podcast episodes, we decided to let loose and have fun by playing a bunch of games. Come play with us as we work our brains out to find out who can come up with the most Malay words in a minute while also testing our English knowledge with a Spelling Bee game! It is probably the Most Kecoh Games Day ever!<br /><br />🔴 Subscribe for more videos on discovering Halal food by clicking <a rel="nofollow" target="blank" href="herehttps://www.youtube.com/halaltrip/?sub_confirmation=1">herehttps://www.youtube.com/halaltrip/?sub_confirmation=1</a> <br /><br />👍 Like, Share and Comment on the Video!<br /><br />--------RECOMMENDED VIDEOS TO WATCH------------<br /><br />🛑 We also recommend our Dua Video Series for You to Check Out!<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLqVJtQ36iRtYdKEi_S0AqqIyuq4JFM69R">https://www.youtube.com/playlist?list=PLqVJtQ36iRtYdKEi_S0AqqIyuq4JFM69R</a><br /><br />💕Our Most Watched Videos:<br /><br />🤲🏻 Isthikhara Dua<br /><a rel="nofollow" target="blank" href="https://youtu.be/SeUlGlqhWTg">https://youtu.be/SeUlGlqhWTg</a><br /><br />🚗 Dua when Starting a Journey on a Plane, Car, or Any Mode of Transport<br /><a rel="nofollow" target="blank" href="https://youtu.be/VGCPtF6XVIY">https://youtu.be/VGCPtF6XVIY</a><br /><br />-----------------------CONNECT WITH US-------------------------<br /><br />You can find us on:<br />Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/HalalTrip/">https://www.facebook.com/HalalTrip/</a><br />Instagram - <a rel="nofollow" target="blank" href="http://instagram.com/HalalTrip">http://instagram.com/HalalTrip</a><br />LinkedIn - <a rel="nofollow" target="blank" href="https://www.linkedin.com/company/halaltrip">https://www.linkedin.com/company/halaltrip</a><br />Telegram - <a rel="nofollow" target="blank" href="https://t.me/HalalTripHT">https://t.me/HalalTripHT</a><br /><br />🎧 Listen to &quot;The Halal Travel Podcast&quot;: <a rel="nofollow" target="blank" href="https://open.spotify.com/show/0ynhK2wYEWy2fXfS3JG8o6">https://open.spotify.com/show/0ynhK2wYEWy2fXfS3JG8o6</a><br /><br />Feel free to email us at info@halaltrip.com<br />Visit our website at <a rel="nofollow" target="blank" href="https://www.halaltrip.com">https://www.halaltrip.com</a><br />Download the HalalTrip app on Google Play or App Store<br /><br />#Halaltrip #TheHalalTravelPodcastSidetalk #GamesDay<br /><br />-----------------------------------------Credits--------------------------------------------<br />Music: Blue Sky - Quincas Moreira{% endraw %}
