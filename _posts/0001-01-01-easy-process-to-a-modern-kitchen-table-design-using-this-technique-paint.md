@@ -1,0 +1,15 @@
+---
+title: "Easy Process To A Modern Kitchen Table Design Using This Technique | Paint & Epoxy"
+image: "https:\/\/i.ytimg.com\/vi\/XQrh8u67SWc\/hqdefault.jpg"
+vid_id: "XQrh8u67SWc"
+categories: "Howto-Style"
+tags: ["epoxy table","epoxy resin","epoxy"]
+date: "2022-04-28T19:53:07+03:00"
+vid_date: "2022-04-28T13:00:28Z"
+duration: "PT8M44S"
+viewcount: "1251"
+likeCount: "111"
+dislikeCount: ""
+channel: "Leggari Products"
+---
+{% raw %}We’re going to show you how you can upgrade an old dining room table to give it a new look using our single items from our store. This kitchen table remodel has no construction required, and the new look is amazing! The table was still strong and sturdy so we painted the legs and coated the table top using our epoxy, dirty pour technique! <br /><br /><br /><br />Get single items here<br /><a rel="nofollow" target="blank" href="https://rebrand.ly/Epoxy-Single-Items">https://rebrand.ly/Epoxy-Single-Items</a> <br /><br /><br />Some of the things you'll see in this video are<br />0:00 Project intro<br />0:30 Sanding <br />1:03 Painting Legs<br />1:28 Primer<br />1:48 Mixing Epoxy<br />2:26 Pouring Epoxy<br />4:17 Dispersing Effects<br />4:37 Denatured Alcohol<br />4:56 Spray Paint Color<br />6:02 Edges<br />6:22 Urethane Top Coat<br />6:56 Countertop Options<br />7:13 Final Look<br /><br /><br /><br /><br />Follow these Hashtags 👇🤩<br />#Leggari #LeggariInstallations #LeggariCountertops<br /><br /><br />If you’re not already a Leggari subscriber, click here:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/leggari/?sub_confirmation=1">https://www.youtube.com/user/leggari/?sub_confirmation=1</a> <br /><br /><br /><br /><br />About Us:<br />Leggari is a coating based channel (metallic epoxy &amp; concrete overlay) that will show you how you can use our products as amazing DIY projects to transform your existing surfaces! You can renovate things like kitchens, bathrooms, basements, patios &amp; more! With Leggari you can renovate in no time, imitating real stone or creating a designer concrete look! <br />You can watch hundreds of videos that show you the step by step process of resurfacing your existing surfaces!<br /><br /><br />– Tim Krumland and Tylor Svangren, Leggari Founders<br /><br /><br />#epoxy #epoxycountertops #leggaristone <br /><br /><br />FIND US ON SOCIAL MEDIA<br /><br /><br />Our Social Media is filled with projects done by customers around the world and we also give sneak peeks of projects we're working on, stay up to date and follow us! <br /><br /><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/leggari/">https://www.instagram.com/leggari/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://business.facebook.com/leggari">https://business.facebook.com/leggari</a><br />Pinterest: <a rel="nofollow" target="blank" href="https://www.pinterest.com/leggari/">https://www.pinterest.com/leggari/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/leggari">https://twitter.com/leggari</a>{% endraw %}
