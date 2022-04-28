@@ -1,0 +1,15 @@
+---
+title: "To Be Beautiful ▶ FAZBEAR FRIGHTS SONG (BOOK 1)"
+image: "https:\/\/i.ytimg.com\/vi\/ElmPfMsyCNY\/hqdefault.jpg"
+vid_id: "ElmPfMsyCNY"
+categories: "Music"
+tags: ["Kyle Allen Music","Kyle Allen Music Fazbear Frights","Kyle Allen Music FNAF"]
+date: "2022-04-28T06:35:50+03:00"
+vid_date: "2022-04-01T14:00:12Z"
+duration: "PT4M45S"
+viewcount: "5548884"
+likeCount: "72327"
+dislikeCount: ""
+channel: "Kyle Allen Music"
+---
+{% raw %}DOWNLOAD NOW ▶ <a rel="nofollow" target="blank" href="https://bit.ly/ToBeBeautiful">https://bit.ly/ToBeBeautiful</a><br />In this story of Fazbear Frights, Sarah struggles with confidence in her appearance. She always compares herself to the popular girls in school (aka &quot;the beautifuls&quot; as she calls them) and wishes she could look like them to fit in. Despite her friend Abby telling her she's perfect the way she is, Sarah doesn't listen. That's when she runs into an animatronic named Eleanor. <br /><br />Like this song? Consider subscribing! <br />SUBSCRIBE ▶ <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCHS0hTD4x-w5sUHxNhi6xiw">https://www.youtube.com/channel/UCHS0hTD4x-w5sUHxNhi6xiw</a><br /><br />Check out these awesome people! <br />Delta-10 ▶ <a rel="nofollow" target="blank" href="https://bit.ly/2ZqDxRM">https://bit.ly/2ZqDxRM</a><br />Tohru ▶ <a rel="nofollow" target="blank" href="https://bit.ly/Tohru">https://bit.ly/Tohru</a><br />Elsie Lovelock ▶ <a rel="nofollow" target="blank" href="https://bit.ly/ElsieLovelock">https://bit.ly/ElsieLovelock</a><br />Scyrel ▶ <a rel="nofollow" target="blank" href="https://bit.ly/3JIBzlu">https://bit.ly/3JIBzlu</a><br />Smashing ▶ <a rel="nofollow" target="blank" href="https://bit.ly/39yAmNo">https://bit.ly/39yAmNo</a><br />Victory Summery ▶ <a rel="nofollow" target="blank" href="http://bit.ly/2PuluIH​​">http://bit.ly/2PuluIH​​</a><br />KL Allen ▶ <a rel="nofollow" target="blank" href="https://bit.ly/KLAllen">https://bit.ly/KLAllen</a><br />Bnitta ▶ <a rel="nofollow" target="blank" href="https://bit.ly/BnittaFiverr">https://bit.ly/BnittaFiverr</a><br />BLIND ▶ <a rel="nofollow" target="blank" href="https://bit.ly/2Xjhr2V">https://bit.ly/2Xjhr2V</a><br /><br />Entire video was created in Blender and rendered with Eevee. <br />Music was created in FL Studio and mixed/mastered in Cubase.<br /><br />Special thanks to our focus research group for their feedback on revisions! <br />MinifigJoeSFM, MLSpence, Eve, TavisFox, Loïc<br /><br />Follow me on social media!<br />Discord ▶ <a rel="nofollow" target="blank" href="https://discord.com/invite/kyleallenmusic">https://discord.com/invite/kyleallenmusic</a><br />Twitter ▶ <a rel="nofollow" target="blank" href="https://twitter.com/kyleallenmusic">https://twitter.com/kyleallenmusic</a><br />Facebook ▶ <a rel="nofollow" target="blank" href="https://www.facebook.com/KyleAllenMusic">https://www.facebook.com/KyleAllenMusic</a><br />Instagram ▶ <a rel="nofollow" target="blank" href="https://www.instagram.com/kyleallenmusic">https://www.instagram.com/kyleallenmusic</a><br /><br />#ToBeBeautiful #FazbearFrights #FNAF{% endraw %}
