@@ -1,0 +1,15 @@
+---
+title: "Make a \"Block Lotto Bird\" Quilt with Jenny Doan of Missouri Star (Video Tutorial)"
+image: "https:\/\/i.ytimg.com\/vi\/RYvnwBuN5qA\/hqdefault.jpg"
+vid_id: "RYvnwBuN5qA"
+categories: "Howto-Style"
+tags: ["MSQC","Missouri Star Quilt Co","Jenny Doan"]
+date: "2022-04-29T23:16:18+03:00"
+vid_date: "2022-04-29T04:00:20Z"
+duration: "PT19M28S"
+viewcount: "36544"
+likeCount: "3021"
+dislikeCount: ""
+channel: "Missouri Star Quilt Company"
+---
+{% raw %}Shop Block Lotto Bird quilt supplies here: <a rel="nofollow" target="blank" href="https://bit.ly/BlockLottoBird_yt">https://bit.ly/BlockLottoBird_yt</a><br />Find the pattern here: <a rel="nofollow" target="blank" href="http://www.blocklotto.com/2013/04/april-is-for-the-birds/">http://www.blocklotto.com/2013/04/april-is-for-the-birds/</a><br /><br />Jenny Doan demonstrates how to make an adorable bird quilt using precut fat quarters or scraps. This pattern was designed by Jean-sophie Wood, creator of the Block Lotto blog. <br /><br />During the early 2000s,  Jean-sophie designed quilt block patterns for her blog. Every month, quilters mailed in their finished blocks, and one lucky entrant won the lot! The Block Lotto is now a distant memory, but Jean-sophie’s patterns are still available, including this delightful Bird Block. <br /><br />Feather your nest with these sweet patchwork birds; they’re great scrap busters and such a joy to make! <br /><br />Get the supplies needed to make this quilt by clicking the link below:<br /><a rel="nofollow" target="blank" href="https://www.missouriquiltco.com/blogs/fridays-with-jenny/block-lotto-bird-block?utm_campaign=qt_t446&amp;utm_medium=Social&amp;utm_source=youtube&amp;utm_content=msqc&amp;utm_term=qt_t446">https://www.missouriquiltco.com/blogs/fridays-with-jenny/block-lotto-bird-block?utm_campaign=qt_t446&amp;utm_medium=Social&amp;utm_source=youtube&amp;utm_content=msqc&amp;utm_term=qt_t446</a><br /><br />Learn to sew with Jenny Doan as she teaches quilting tutorials from the heart. She’s the smiling face of Missouri Star Quilt Company! Stitching together simplified quilts full of love and laughter, Jenny makes quilting friendlier than ever before. With over half a million YouTube subscribers and more than 150 million views to date, she has sparked enthusiasm for quilting across the globe. <br /><br />Missouri Star Quilt Company provides totally FREE quick and easy quilting, sewing, and craft tutorials every single week because we love to help you create! Follow along with these fun online classes to learn more about quilt design and quilting techniques. It’s an inspiration for everyone—from beginners to advanced quilters. To make quilting easier than ever before, precut fabrics are used as the building blocks of most projects. These quilt fabrics like layer cakes, charm packs, and jelly rolls make textile patchwork as easy as pie! Plus, we offer quilt patterns and quilting supplies along with gorgeous quilt material to simplify your experience. We hope you enjoy our quilting tutorials. Be sure to subscribe so you don’t miss a single one!<br /><br />#missouristar #blocklottobird #howtoquilt{% endraw %}
