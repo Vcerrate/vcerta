@@ -1,0 +1,15 @@
+---
+title: "SERENA WILLIAMS JUST ACCOMPLISHED A LONGTIME GOAL 😇 A BUILDING NAMED AFTER HER ON NIKE’S CAMPUS"
+image: "https:\/\/i.ytimg.com\/vi\/gW7HAr1eWzk\/hqdefault.jpg"
+vid_id: "gW7HAr1eWzk"
+categories: "Sports"
+tags: ["serena williams","serena williams daughter","alexis olympia"]
+date: "2022-04-29T04:32:30+03:00"
+vid_date: "2022-04-28T19:00:13Z"
+duration: "PT3M15S"
+viewcount: "1065"
+likeCount: "90"
+dislikeCount: ""
+channel: "ASH TENNIS TV"
+---
+{% raw %}Serena Williams’ achievements have been set in stone — literally. The Serena Williams building is set to open on the Nike World Headquarters campus in Beaverton, Oregon this week, and it’s massive. <br /><br />According to Nike, the geographic namesake covers the equivalent of 140 full-size tennis courts and is 1 million square feet, the largest building on the campus. Complete with 140,000 square feet of showrooms.<br /><br />A color lab, materials library and a 140-seat Olympia Theater, named after Williams’ daughter, the building is where Nike’s consumer creation team will bring new ideas to life and “create the future of sport.” Williams says that this accomplishment has been a dream of hers since she was young.<br /><br />“When I was just a kid, I visited the Nike campus and I saw that athletes get buildings,” she said on Instagram on Wednesday morning. “After that visit, I knew I wanted two things: to be a Nike athlete and to have a building.”<br /><br />Williams, shared with her 14.6 million Instagram followers that having her own building is “beyond an honor,” saying she had chill bumps from seeing the result of her “blood, sweat, and many tears.”<br /><br />The Serena Williams building was designed to foster a more cohesive and collaborative work culture, according to Architectural Digest, with design teams to work in a single, integrated environment.<br /><br />“Now, design teams at Nike can consider a product from its initial sketch through product development and into the way it retails in a store, all in a single building,” Jeff Kovel, principal design director at Skylab, the firm that designed the building, told Architectural Digest.<br /><br />Only a few female athletes have buildings named after them on the campus, including two-time Olympic gold medalist soccer player Mia Hamm and Olympic gold-medalist, long-distance runner Joan Benoit Samuelson. Hamm played as a forward for the U.S. national women’s soccer team from 1987 to 2004. <br /><br />2022 has proven to be a landmark year for Williams, as “King Richard,” a biographical drama film about herself and her family, received six Academy Award nominations, and took home the Oscar for best actor. She hopes the new Serena Williams building impacts others just as much as it’s impacted her.<br /><br />“The whole building takes your breath away. Every element, everywhere you go, is an opportunity to be inspired. I hope this building encourages people to bring out the best of themselves and to dream bigger than they thought possible,” she told Nike.{% endraw %}
