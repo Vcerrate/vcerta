@@ -1,0 +1,15 @@
+---
+title: "Next week on Escape From Vault Disney...."
+image: "https:\/\/i.ytimg.com\/vi\/rl6Bhp-fV60\/hqdefault.jpg"
+vid_id: "rl6Bhp-fV60"
+categories: "Comedy"
+tags: ["Escape","Vault","Disney...."]
+date: "2022-04-30T16:14:53+03:00"
+vid_date: "2022-04-30T07:01:32Z"
+duration: "PT31S"
+viewcount: "545"
+likeCount: "69"
+dislikeCount: ""
+channel: "Tony Goldmark"
+---
+{% raw %}Photoshop by Taylor Estremera<br /><br />Apple Podcasts: <a rel="nofollow" target="blank" href="https://podcasts.apple.com/us/podcast/escape-from-vault-disney/id1489530311">https://podcasts.apple.com/us/podcast/escape-from-vault-disney/id1489530311</a><br />Audible: <a rel="nofollow" target="blank" href="https://www.audible.com/pd/Escape-From-Vault-Disney-Podcast/B08JJQ785C">https://www.audible.com/pd/Escape-From-Vault-Disney-Podcast/B08JJQ785C</a><br />Google Play: <a rel="nofollow" target="blank" href="https://play.google.com/music/listen?u=0#/ps/Igq6vgrmu465fu5rqydmvariala">https://play.google.com/music/listen?u=0#/ps/Igq6vgrmu465fu5rqydmvariala</a><br />Pipedream Podcasts: <a rel="nofollow" target="blank" href="https://www.pipedreampodcasts.com/escape-from-vault-disney">https://www.pipedreampodcasts.com/escape-from-vault-disney</a><br />RSS feed: <a rel="nofollow" target="blank" href="http://escapefromvaultdisney.libsyn.com">http://escapefromvaultdisney.libsyn.com</a><br />Follow this show on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/efvdpodcast">https://twitter.com/efvdpodcast</a><br /><br />The Walt Disney Company has created (and acquired) some of the greatest, most acclaimed works of art in the history of cinema and television, and also unfathomable amounts of absolute garbage. And Disney+ is loaded with both! Join YouTube personality Tony Goldmark, aka Some Jerk With A Camera, and a rotating series of guests as each week they pick a Disney+ title completely at random, dissect it for your amusement, and determine it to be &quot;Disney Plus&quot; or &quot;Disney Minus.&quot; It's ESCAPE FROM VAULT DISNEY!<br /><br />DISCLAIMER: This video, like every video on this channel, is intended only for mature audiences. While the topic at hand is a form of media commonly associated with small children, the purpose of this video is to present a mixture of analysis and comedy about said media from a distinctly adult perspective, which may possibly include profane language and references to sex, drugs and/or violence. YouTube, like many websites, collects personal data on its users. The Child Online Privacy Protection Act (COPPA) has made it illegal to collect personal data on children younger than 13, and rather than fix their own algorithm, YouTube is essentially threatening to pass the blame onto content creators whose work may seem &quot;attractive&quot; to children. For these reasons, the producers of this video feel compelled to state, in no uncertain terms, that if you allow a child under 13 years old to watch this YouTube channel, you are a bad parent or guardian.{% endraw %}
