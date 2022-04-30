@@ -1,0 +1,15 @@
+---
+title: "Bodybangers, Alex Parker, Alis Shuka - Bum Bum"
+image: "https:\/\/i.ytimg.com\/vi\/A4q8IL0suB0\/hqdefault.jpg"
+vid_id: "A4q8IL0suB0"
+categories: "Music"
+tags: ["EDM","Electronic Dance Music","Diversity"]
+date: "2022-04-30T10:51:55+03:00"
+vid_date: "2022-04-26T16:48:04Z"
+duration: "PT2M12S"
+viewcount: "22161"
+likeCount: "1680"
+dislikeCount: ""
+channel: "Diversity"
+---
+{% raw %}🔊 Bum Bum by Bodybangers, Alex Parker, Alis Shuka<br /><br />✨ Follow Diversity's Playlists on Spotify:<br />➥ <a rel="nofollow" target="blank" href="https://divr.link/SpotifyPlaylists">https://divr.link/SpotifyPlaylists</a><br /><br />🎧 Stream/Download:<br />➥ <a rel="nofollow" target="blank" href="https://lnk.to/BAABumBum">https://lnk.to/BAABumBum</a> <br /><br />🎵 Genre: Brazilian Bass<br />Playlist: <a rel="nofollow" target="blank" href="http://diversity.moe/BrazilianBass">http://diversity.moe/BrazilianBass</a><br /><br />🌸 Bodybangers<br /><a rel="nofollow" target="blank" href="https://www.bodybangers.de/">https://www.bodybangers.de/</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/bodybangers/">https://www.instagram.com/bodybangers/</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/Bodybangers">https://www.facebook.com/Bodybangers</a><br /><br />🌸 Alex Parker<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/alexparkero...">https://www.instagram.com/alexparkero...</a> <br /><a rel="nofollow" target="blank" href="https://www.facebook.com/djalexparker/">https://www.facebook.com/djalexparker/</a> <br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@alexparkermusic/">https://www.tiktok.com/@alexparkermusic/</a> <br /><a rel="nofollow" target="blank" href="https://twitter.com/alexparkerdj">https://twitter.com/alexparkerdj</a> <br /><br />🌸 Alis Shuka<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/alis.shuka/">https://www.instagram.com/alis.shuka/</a> <br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@alis.shuka">https://www.tiktok.com/@alis.shuka</a> <br /><br />💽 Label: SME<br /><br />🎨 Artwork by liang xing<br /><a rel="nofollow" target="blank" href="https://www.pixiv.net/users/15387072">https://www.pixiv.net/users/15387072</a><br /><a rel="nofollow" target="blank" href="http://liang-xing.deviantart.com/">http://liang-xing.deviantart.com/</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/liangxing719">https://twitter.com/liangxing719</a><br /><a rel="nofollow" target="blank" href="https://www.patreon.com/liangxing">https://www.patreon.com/liangxing</a><br /><br />⭐️ Diversity<br /><a rel="nofollow" target="blank" href="http://diversity.moe/follow">http://diversity.moe/follow</a><br /><br />📄 Submit your music:<br /><a rel="nofollow" target="blank" href="http://diversity.moe/demo">http://diversity.moe/demo</a><br /><br />✏️ For business inquiries and other issues please contact: hello@divergemusic.group{% endraw %}
