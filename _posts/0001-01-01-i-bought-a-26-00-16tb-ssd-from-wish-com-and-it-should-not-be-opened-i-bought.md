@@ -1,0 +1,15 @@
+---
+title: "I bought a $26.00 16TB SSD From Wish.com and It Should Not Be Opened"
+image: "https:\/\/i.ytimg.com\/vi\/s8DNubmPfL4\/hqdefault.jpg"
+vid_id: "s8DNubmPfL4"
+categories: "Science-Technology"
+tags: ["I Bought a 10000W Solar Panel From Wish.com for $37.00","I Bought The Most Expensive Mini PC for my Minecraft Server How Good Is It? | Morefine S500+ Review","I bought a $30 21TB SSDs From Wish.com and Got A Sophisticated Scam Instead"]
+date: "2022-05-01T05:41:44+03:00"
+vid_date: "2022-04-27T16:00:29Z"
+duration: "PT10M13S"
+viewcount: "26680"
+likeCount: "1895"
+dislikeCount: ""
+channel: "Jays Tech Vault"
+---
+{% raw %}I bought a $40.00 16TB SSD from wish.com. Something that should cost tens of thousands of dollars. What will I get? will I get what I paid $40.00 for or will I loose my money again. Today in this video we continue the quest of trying to find real stuff on wish.com. Will I get anything interesting or will it be a fake from wish.com. Will I get what I bought? A 16TB SSD.<br /><br />================== [Second Channel] ==================<br />Make sure to subscribe to the dedicated review channel for cool tech products: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCUN3oCcqc_kQg0q9uAfNCww">https://www.youtube.com/channel/UCUN3oCcqc_kQg0q9uAfNCww</a><br /><br />================== [Minecraft Server] ==================<br />I have my own Minecraft server that I host, and play on frequently. <br /><br />Public Minecraft Server (Java and Bedrock) IP: avn.gg<br />Bedrock Port:19132<br />Java Port: 25565<br /><br />Minecraft Server Discord Server: <a rel="nofollow" target="blank" href="https://discord.gg/3HKdGvNaqR">https://discord.gg/3HKdGvNaqR</a><br /><br />================== [Attributions] ======================<br />Producer: Jay Avenian<br />Editor: Jay Avenian<br /><br />=================== [Donations] ======================<br />Want to donate hardware to make future videos better? Mail in hardware which I use in a wide range of content, everything from viewer made PCs to doing stupid stuff with hardware. I recycle responsibly and try to find good homes for the stuff I receive.<br /><br />Mail To:<br />Please email me at jaystechvault@gmail.com to get my mailing address if you want to send in hardware.<br /><br />Want to donate Crypto?<br />Ethereum: 0x2373C46F3A739018f0AD4A8e60b0B04839ed945f<br />Bitcoin: 39FY528H3gcsQ3qC2Y2K4j68i7Y5QdgvJw<br /><br />================== [Discord Server] ===================<br />I have a dedicated Discord server for my YouTube channel, to discuss everything from hardware to video suggestions.<br /><br />Official YouTube Channel Discord Server: <a rel="nofollow" target="blank" href="https://discord.gg/Rggu7QsvPc">https://discord.gg/Rggu7QsvPc</a><br /><br />=================== [Sponsors] =======================<br />Interested in sponsoring a video? I welcome all kinds of sponsorships but please keep them tech &amp; computer related. I love reviewing products so drop me an email at jaystechvault@gmail.com and we can get in touch.{% endraw %}
