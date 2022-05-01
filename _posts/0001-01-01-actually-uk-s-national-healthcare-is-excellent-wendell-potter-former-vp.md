@@ -1,0 +1,15 @@
+---
+title: "Actually, UK's National Healthcare Is Excellent"
+image: "https:\/\/i.ytimg.com\/vi\/X3XHK3RZYS8\/hqdefault.jpg"
+vid_id: "X3XHK3RZYS8"
+categories: "News-Politics"
+tags: ["wendell potter","single payer healthcare","national healtchare"]
+date: "2022-05-01T14:04:33+03:00"
+vid_date: "2015-03-07T00:30:00Z"
+duration: "PT9M31S"
+viewcount: "169956"
+likeCount: "1963"
+dislikeCount: ""
+channel: "David Pakman Show"
+---
+{% raw %}–Wendell Potter, Former VP of Corporate Communications at CIGNA, author of Deadly Spin and Obamacare: What’s In It For Me, joins David to dispel attacks on European government healthcare, which is more cost effective and leads to better health outcomes compared to US healthcare<br /><br />–On the Bonus Show: The World Health Organization on hearing loss and safe music levels, a professional selfie retoucher, Missouri allows for thieves to scrap your old car, more…<br /><br />Website: <a rel="nofollow" target="blank" href="http://www.davidpakman.com">http://www.davidpakman.com</a><br />Become a Member: <a rel="nofollow" target="blank" href="http://www.davidpakman.com/membership">http://www.davidpakman.com/membership</a><br />Be our Patron on Patreon: <a rel="nofollow" target="blank" href="http://www.patreon.com/davidpakman">http://www.patreon.com/davidpakman</a><br />Discuss This on Reddit: <a rel="nofollow" target="blank" href="http://www.reddit.com/r/thedavidpakmanshow/">http://www.reddit.com/r/thedavidpakmanshow/</a><br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/davidpakmanshow">http://www.facebook.com/davidpakmanshow</a><br />TDPS Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/davidpakmanshow">http://www.twitter.com/davidpakmanshow</a><br />David's Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/dpakman">http://www.twitter.com/dpakman</a><br />TDPS Gear: <a rel="nofollow" target="blank" href="http://www.davidpakman.com/gear">http://www.davidpakman.com/gear</a><br />24/7 Voicemail Line: (219)-2DAVIDP<br /><br />Subscribe to The David Pakman Show for more: <a rel="nofollow" target="blank" href="http://www.youtube.com/subscription_center?add_user=midweekpolitics">http://www.youtube.com/subscription_center?add_user=midweekpolitics</a><br /><br />Support TDPS by clicking (bookmark it too!) this link before shopping on Amazon: <a rel="nofollow" target="blank" href="http://www.amazon.com/?tag=thedavpaksho-20">http://www.amazon.com/?tag=thedavpaksho-20</a><br /><br />Broadcast on March 2, 2015 David's Instagram: <a rel="nofollow" target="blank" href="http://www.instagram.com/david.pakman">http://www.instagram.com/david.pakman</a> --Donate via Bitcoin: 15evMNUN1g4qdRxywbHFCKNfdCTjxtztfj<br /><br />--Donate via Ethereum: 0xe3E6b538E1CD21D48Ff1Ddf2D744ea8B95Ba1930<br /><br />--Donate via Litecoin: LhNVT9j5gQj8U1AbwLzwfoc5okDoiFn4Mt<br /><br /> --Donate via Bitcoin: 15evMNUN1g4qdRxywbHFCKNfdCTjxtztfj<br /><br />--Donate via Ethereum: 0xe3E6b538E1CD21D48Ff1Ddf2D744ea8B95Ba1930<br /><br />--Donate via Litecoin: LhNVT9j5gQj8U1AbwLzwfoc5okDoiFn4Mt{% endraw %}
