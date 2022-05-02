@@ -1,0 +1,15 @@
+---
+title: "The Decision (Audiobook) By Kevin Hart"
+image: "https:\/\/i.ytimg.com\/vi\/RkkDKjKbEIk\/hqdefault.jpg"
+vid_id: "RkkDKjKbEIk"
+categories: "Entertainment"
+tags: ["#audiobooks"]
+date: "2022-05-02T13:18:19+03:00"
+vid_date: "2022-01-05T00:10:17Z"
+duration: "PT5H55M6S"
+viewcount: "9184"
+likeCount: "223"
+dislikeCount: ""
+channel: "Audiobooks"
+---
+{% raw %}THE DECISION<br />By Kevin Hart<br /><br />BOOK SUMMARY <br />&quot;Are you ready to get your mind right and prepare for the battle of your life?&quot;<br />Superstar stand-up. Blockbuster actor. Celebrity-powerhouse. Kevin Hart is about to add one more significant title to his already impressive resume: Your life coach. Yes, you. <br />In this follow-up to the New York Times best-selling memoir, I Can't Make This Up, Kevin goes all-in on getting you mentally fit by skillfully breaking down and sharing the same tools and rules he's developed to elevate his own life, to inspire and help transform yours. Candid, raw, and authentic to the core, The Decision is filled with vision and the practical steps you’ll need to track and reach your goals. Join “Coach” Kevin as he puts you through the paces of what he dubs the Kevin Hart Mental Fitness Bootcamp. Learn the ins and outs of &quot;What-is-ness.&quot; Find out what “Cowboying up&quot; is all about. Get cozy with &quot;Teddy bearing.&quot; Discover why your comfort zone is just about the worst place on earth to be. Find out how to keep your b%llsh#t detector running smoothly, and just why your ugly-ass feet are nothing short of a blessing in disguise. Hear this, and an entire treasure trove of deeply insightful life-changing advice from the only dude out there who can make you cry like a baby from both laughter and self-reflection at the same time. The time to power-up those earbuds and get after the life of your dreams is now. Kevin Hart is hyped and ready. Are you?<br /><br />Guys checkout this must read new AWESOME book called THE TREASURE MAP CHECKLIST - The Clues for the Treasure Map to a Great Fortune - By Justin Allen. You can read the free sample chapters on Kindle, or purchase the eBook or paperback version. <br />👉 Here: <a rel="nofollow" target="blank" href="https://amzn.to/33w8FkW">https://amzn.to/33w8FkW</a><br />Or you can listen to the Free audiobook version on YouTube.<br />👉 Here: <a rel="nofollow" target="blank" href="https://youtu.be/ZrnREr60K0M">https://youtu.be/ZrnREr60K0M</a><br />Please Like &amp; Subscribe - Thank you...<br /><br /><br />FAIR USE COPYRIGHT DISCLAIMER <br />Copyright Disclaimer under section 107 of the Copyright Act 1976, allowance is made for “fair use” for purposes such as criticism, comment, news reporting, teaching, scholarship, education and research. Non-profit, educational or personal use tips the balance in favour of fair use. This is a public notice that under the Copyright law of fair use of the Section 107 of the Copyright Act. That the use of their content is for criticism, comments, teaching, research and for educational purposes to the public. Copyright owner take down request can email us on: utubeaudiobooks@gmail.com{% endraw %}
