@@ -1,0 +1,15 @@
+---
+title: "Mass Nucleic Acid Testing, Interest Groups Raked in $101.4 Billion | Truth Behind Nucleic Acid Test"
+image: "https:\/\/i.ytimg.com\/vi\/n0GWl_H2BI4\/hqdefault.jpg"
+vid_id: "n0GWl_H2BI4"
+categories: "News-Politics"
+tags: ["China observer","flee shanghai","shanghai lockdown"]
+date: "2022-05-02T15:42:44+03:00"
+vid_date: "2022-05-02T01:49:29Z"
+duration: "PT14M39S"
+viewcount: "17536"
+likeCount: "798"
+dislikeCount: ""
+channel: "China Observer"
+---
+{% raw %}On the afternoon of April 25, a severe storm hit Shanghai. And a video widely circulated online shows that people were still lining up out in the open for nucleic acid testing. But the storm was so severe that the tents were instantly blown away, and the testers wearing white isolation suits were also blown away.<br /> The person recording couldn’t help but shout, &quot;People are treated worse than dogs!&quot;<br />The Chinese government's approach begs the question: The Omicron variant of the virus, which is now spreading in China, is highly transmissible. With so many people crowded together in close proximity for nucleic acid testing, isn't that expanding the risk of the virus spreading through the population? And is it necessary for everyone to have daily nucleic acid testing?<br />Not only people, animals also need to do nucleic acid. <br />A video widely circulated online shows that fish, dogs, and even the floor all have to do nucleic acid testing, and dogs have to do not only throat swabs but also anal swabs.<br />The purpose of large-scale nucleic acid testing in China has always been questioned by the outside world. Some clues may be found from the recent official release by the city of Hefei.<br />It is because the profit is so much higher than the cost of counterfeiting, there have been many cases of fraudulent nucleic acid testing in China since the outbreak. The government's endless demand for frequent mass nucleic acid testing has brought huge profits for thousands of third-party nucleic acid testing organizations across China. In the meantime, the &quot;magic&quot; of said testing has also been inexplicable: some residents have been under lockdown and grounded for up to a month without leaving their homes, but have tested positive; others have been asked to test again and again in isolated environment until results came out positive.<br />According to published information, as of November 2021, Kingmed Diagnostics Group completed 220 million nucleic acid tests, the largest in the world.<br /> <br />Kingmed’s Q3 2021 financial report shows that the company's main revenue was 8.617 billion yuan, up 47.87% year-on-year; net profit attributable to shareholders was 1.672 billion yuan, up 58.52% year-on-year.<br /> <br />Boyu Capital Investment Management Co. was once one of the major shareholders of Kingmed Diagnostics Group, and Boyu Capital's de facto controller is Jiang Zhicheng, the grandson of former Communist Party leader Jiang Zemin.<br />#MassNucleicAcidTest#FleeShanghai#ZeroCOVID#ChinaEconomy#<br />All rights reserved.{% endraw %}
