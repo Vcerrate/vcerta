@@ -1,0 +1,15 @@
+---
+title: "How To Design A Room From START TO FINISH! (My Tips & Hacks)"
+image: "https:\/\/i.ytimg.com\/vi\/IqV3-LVLbyU\/hqdefault.jpg"
+vid_id: "IqV3-LVLbyU"
+categories: "People-Blogs"
+tags: ["Lone Fox Home","Drew Scott DIY","Imdrewscott DIY"]
+date: "2022-05-02T04:51:41+03:00"
+vid_date: "2020-05-14T18:46:37Z"
+duration: "PT15M1S"
+viewcount: "768799"
+likeCount: "29400"
+dislikeCount: ""
+channel: "Lone Fox"
+---
+{% raw %}☆ Shop Lone Fox (New Enamel Pins + Home Decor): <a rel="nofollow" target="blank" href="https://lonefox.com/">https://lonefox.com/</a><br />- Follow Lone Fox on Instagram: @lonefoxhome<br />- Shop my Amazon Favorites: <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/lonefoxhome">https://www.amazon.com/shop/lonefoxhome</a><br /><br />Hi there! Today I wanted to create a video that really dove into my process of designing a space. I share a lot of room makeovers here on the channel and have touched on my design process a few times however i felt this video would really help anybody wanting to take on a small or large design project.<br /><br />+ Check out Alexandra Gaters Video: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=FE5fSjLVLqo">https://www.youtube.com/watch?v=FE5fSjLVLqo</a><br /><br />JOIN THE LONE FOX FAMILY!<br />+ Fashion Youtube Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/DrewDaOne">https://www.youtube.com/user/DrewDaOne</a><br />+ Instagram (Lone Fox): <a rel="nofollow" target="blank" href="https://www.instagram.com/lonefoxhome/">https://www.instagram.com/lonefoxhome/</a><br />+ Instagram (Personal): <a rel="nofollow" target="blank" href="https://www.instagram.com/imdrewscott/">https://www.instagram.com/imdrewscott/</a><br />+ Pinterest : <a rel="nofollow" target="blank" href="http://www.pinterest.com/cardofmyeye">http://www.pinterest.com/cardofmyeye</a><br /><br />C O N T A C T<br />+ Any questions, inquiries or collabs : lonefoxhome@gmail.com<br /><br />E Q U I P M E N T<br />+ Canon 5D Mark III (Main Camera): <a rel="nofollow" target="blank" href="http://bit.ly/1PCIqsw">http://bit.ly/1PCIqsw</a><br />+ Canon G7X (Vlog Camera): <a rel="nofollow" target="blank" href="http://bit.ly/1jJiOkA">http://bit.ly/1jJiOkA</a><br />+ Sigma 35mm Lens: <a rel="nofollow" target="blank" href="http://bit.ly/1NErT68">http://bit.ly/1NErT68</a><br />+ Microphone: <a rel="nofollow" target="blank" href="http://bit.ly/1LXMql1">http://bit.ly/1LXMql1</a><br />+ Memory Card (BEST): <a rel="nofollow" target="blank" href="http://bit.ly/1Q9SNcz">http://bit.ly/1Q9SNcz</a><br />+ Tripod: <a rel="nofollow" target="blank" href="http://bit.ly/1RyMj6z">http://bit.ly/1RyMj6z</a><br /><br />M U S I C<br />+ Music by Fiji Blue - Butterflies - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=461487A6">https://thmatc.co/?l=461487A6</a><br /><br />T H A N K Y O U<br />Thanks so much for watching and I hope you enjoyed. Leave any future video ideas you would like to see in the comments below and don't forget to subscribe!{% endraw %}
