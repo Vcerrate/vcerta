@@ -1,0 +1,15 @@
+---
+title: "DECORATING WITH ELEGANT NEUTRALS ~ DECORATE WITH ME 2022 ~ FRENCH COUNTRY COTTAGE DECOR ~Monica Rose"
+image: "https:\/\/i.ytimg.com\/vi\/GxVGN7a0lv8\/hqdefault.jpg"
+vid_id: "GxVGN7a0lv8"
+categories: "Howto-Style"
+tags: ["DECORATING IDEAS","FARMHOUSE STYLE DECOR","DECORATE WITH ME"]
+date: "2022-05-02T09:58:49+03:00"
+vid_date: "2022-05-01T18:00:03Z"
+duration: "PT10M18S"
+viewcount: "4825"
+likeCount: ""
+dislikeCount: ""
+channel: "Monica Rose"
+---
+{% raw %}Go to <a rel="nofollow" target="blank" href="https://clcr.me/QjTCRq to">https://clcr.me/QjTCRq to</a> order Mixtiles &amp; use code MONICA25 to get 25% off when buying above $50! 🖼 Valid only for 30 days 🛍<br /><br />Come join me today while I decorate our family room using soft &amp; elegant neutrals. Thank you so much for watching!<br /><br /><br /><br />Commissionable and some non-commissional  links🌟<br /><br />Velvet panels <a rel="nofollow" target="blank" href="https://rstyle.me/+ZRq9wAaJ0TTzLZBBsrUzwA">https://rstyle.me/+ZRq9wAaJ0TTzLZBBsrUzwA</a><br />Paint colors in home: entryway, living room, office and stairwell is in “sackcloth” <br />Kitchen, dining and family room is in “anew gray” both are sherwin Williams brand. <br />Linen pillow covers <a rel="nofollow" target="blank" href="https://rstyle.me/+M9jxEz4jWOqc1VxF7n_W0g">https://rstyle.me/+M9jxEz4jWOqc1VxF7n_W0g</a><br />velvet pillow cover <a rel="nofollow" target="blank" href="https://rstyle.me/+Gl2Hp7VlzpdGyPS2JNJaAQ">https://rstyle.me/+Gl2Hp7VlzpdGyPS2JNJaAQ</a><br />Minky blankets <a rel="nofollow" target="blank" href="https://www.softminkyblankets.com/collections/mid-weight-blankets">https://www.softminkyblankets.com/collections/mid-weight-blankets</a><br />Kitchen lighting (over the island) <a rel="nofollow" target="blank" href="https://rstyle.me/+dXuYjTneXDg-l7441AkQDQ">https://rstyle.me/+dXuYjTneXDg-l7441AkQDQ</a><br />Area rug in office <a rel="nofollow" target="blank" href="https://rstyle.me/+bvQiXsuvqwNBxrGeCjT5GQ">https://rstyle.me/+bvQiXsuvqwNBxrGeCjT5GQ</a><br />Light over kitchen table <a rel="nofollow" target="blank" href="https://rstyle.me/+JNvz2ge4kXWKT9jP6VOiWA">https://rstyle.me/+JNvz2ge4kXWKT9jP6VOiWA</a><br />Where I get my furniture appliqués~ BellaRosaAppliques | Etsy<br />Floral screen saver Channel <a rel="nofollow" target="blank" href="https://youtu.be/pyQV9bwFsSE">https://youtu.be/pyQV9bwFsSE</a><br /><br /><br />Email: monicarosebiz@gmail.com<br />Business email: monica@influint.co<br />Instagram : <a rel="nofollow" target="blank" href="https://www.instagram.com/p/CHQagAAHW9N/?igshid=j0ubnq3an1a1a">https://www.instagram.com/p/CHQagAAHW9N/?igshid=j0ubnq3an1a1a</a><br /><br />Related: decorating ideas, elegant neutral decor, home decor, decorate with me, French country decorating, decorating inspiration, decorating ideas, farmhouse cottage<br />.<br />.<br />#DECORATINGWITHNEUTRALS<br />#FARMHOUSECOTTAGESTYLEDECOR<br />#MonicaRose<br /> <br /><br />---------------------------------------------<br /><br />Music By Epidemic:<br />epidemicsound.com<br /><br />----------------------------------------------{% endraw %}
