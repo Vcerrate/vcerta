@@ -1,0 +1,15 @@
+---
+title: "TEENAGER - Saison 1 - épisode #02 (série africaine, #Côted_Ivoire)"
+image: "https:\/\/i.ytimg.com\/vi\/pfjtawktbIY\/hqdefault.jpg"
+vid_id: "pfjtawktbIY"
+categories: "Film-Animation"
+tags: ["Mamiton","Cameroun","douala"]
+date: "2022-05-02T09:32:58+03:00"
+vid_date: "2020-02-01T11:15:00Z"
+duration: "PT24M54S"
+viewcount: "58259"
+likeCount: "809"
+dislikeCount: ""
+channel: "africa LOVE"
+---
+{% raw %}Abonne-toi ici <a rel="nofollow" target="blank" href="https://goo.gl/WTTvBV">https://goo.gl/WTTvBV</a> et appuie sur la CLOCHE pour être le premier informé  des nouveautés ! <br />Iris et rama  arrivent chez Yoann où sont déjà Eric, Yves et Joël  pour y passer la journée. Karla  est également chez son amie Sophonie pour y passer le weekend.  A l’école, Joël qui est convoqué par son professeur principal y retrouve Baeur son ami qu’il fait passer pour son tuteur. Eric et Pacôme assis dans la classe sont inquiets à cause de la disparition du poème destiné à Prisca qui finit par être affiché au tableau.<br /><br />Bienvenue sur africaLOVE la nouvelle chaîne Youtube des séries africaines et des films africains. Bénin, Burkina, Cameroun, Cote d'Ivoire, Sénégal, Togo, et bientôt beaucoup d'autres.<br /><br /><br />----------------------------------------<br />Clique sur tous les liens !<br />----------------------------------------<br /><br />BEST OF K-MER<br /><a rel="nofollow" target="blank" href="https://youtu.be/Q1ze3yEU8kg">https://youtu.be/Q1ze3yEU8kg</a><br /><a rel="nofollow" target="blank" href="https://youtu.be/VLssScOK528">https://youtu.be/VLssScOK528</a><br /><a rel="nofollow" target="blank" href="https://youtu.be/h-p3nRpg-EQ">https://youtu.be/h-p3nRpg-EQ</a><br /><a rel="nofollow" target="blank" href="https://youtu.be/mc62rldQpdc">https://youtu.be/mc62rldQpdc</a><br /><br />Aicha Kamoise<br /><a rel="nofollow" target="blank" href="https://youtu.be/e4AJNbJB7K4">https://youtu.be/e4AJNbJB7K4</a><br /><a rel="nofollow" target="blank" href="https://youtu.be/2NTTGximX5M">https://youtu.be/2NTTGximX5M</a><br /><a rel="nofollow" target="blank" href="https://youtu.be/6cvLqgDy-eg">https://youtu.be/6cvLqgDy-eg</a><br /><a rel="nofollow" target="blank" href="https://youtu.be/iIkauBya4Wc">https://youtu.be/iIkauBya4Wc</a><br /><br />Interviews de Stars <br /><a rel="nofollow" target="blank" href="https://youtu.be/rCesTeBxF5o">https://youtu.be/rCesTeBxF5o</a><br /><a rel="nofollow" target="blank" href="https://youtu.be/ncARELfxriQ">https://youtu.be/ncARELfxriQ</a><br /><br />Films Adultes <br /><a rel="nofollow" target="blank" href="https://youtu.be/Z1dMX1uh0_Q">https://youtu.be/Z1dMX1uh0_Q</a><br /><br />LES SERIES DE BABI<br /><a rel="nofollow" target="blank" href="https://youtu.be/9ueD7LZ94Hk">https://youtu.be/9ueD7LZ94Hk</a><br /><br />OUAGA DOUX GOUT<br /><a rel="nofollow" target="blank" href="https://youtu.be/8HOms8btrd4">https://youtu.be/8HOms8btrd4</a><br /><br />LOME VIVINA<br />goo.gl/5bSw6W<br /><br />Facebook : <a rel="nofollow" target="blank" href="https://www.facebook.com/africa.LOVE.fan">https://www.facebook.com/africa.LOVE.fan</a>{% endraw %}
