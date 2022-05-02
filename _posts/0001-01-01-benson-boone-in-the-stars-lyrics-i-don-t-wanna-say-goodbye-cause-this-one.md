@@ -1,0 +1,15 @@
+---
+title: "Benson Boone - In The Stars (Lyrics) \"I don't wanna say goodbye cause this one means forever\""
+image: "https:\/\/i.ytimg.com\/vi\/8eKRxAmOiK4\/hqdefault.jpg"
+vid_id: "8eKRxAmOiK4"
+categories: "Music"
+tags: ["BANGERSONLY","BENSON BOONE","IN THE STARS"]
+date: "2022-05-02T14:06:20+03:00"
+vid_date: "2022-04-29T14:32:02Z"
+duration: "PT3M37S"
+viewcount: "170392"
+likeCount: "6374"
+dislikeCount: ""
+channel: "BangersOnly"
+---
+{% raw %}In The Stars Lyrics - <a rel="nofollow" target="blank" href="https://www.lyricsonly.io/new-lyrics/benson-boone-in-the-stars?rq=benson">https://www.lyricsonly.io/new-lyrics/benson-boone-in-the-stars?rq=benson</a><br /><br />Sunday mornings were your favorite<br />I used to meet you down at road<br />You did your hair up like you were famous<br />Even though it’s only Church where we were going<br /><br />Now Sunday mornings I just sleep in<br />It’s like i buried my faith with you<br />I’m screaming at a god I don’t know if I believe in<br />Cause I don’t know what else I can do<br /><br />I’m still holding on to everything that’s dead and gone<br />I don’t want to say goodbye cause this one means forever<br />Now you’re in the stars and 6 feets never felt so far<br />Here I am alone between the heavens and the embers<br /><br />Oh it hurts so hard<br />For a million different reasons<br />You took the best of my heart<br />And left the rest in pieces<br /><br />Digging through your old birthday letters<br />A crumpled 20 still in the box<br />I don’t think that I could ever find a way to spend it<br />Even if it’s the last 20 that I got<br /><br />I’m still holding on to everything that’s dead and gone<br />I don’t want to say goodbye cause this one means forever<br />Now you’re in the stars and 6 feets never felt so far<br />Here I am alone between the heavens and the embers<br /><br />Oh it hurts so hard<br />For a million different reasons<br />You took the best of my heart<br />And left the rest in pieces<br /><br />I’m still holding holding holding on<br />I’m still holding holding holding on<br />I’m still holding holding holding on<br />Im still (oooh) I’m still holding on<br /><br />I’m still holding on to everything that’s dead and gone<br />I don’t want to say goodbye cause this one means forever<br />Now you’re in the stars and 6 feets never felt so far<br />Here I am alone between the heavens and the embers<br /><br />Oh it hurts so hard<br />For a million different reasons<br />You took the best of my heart<br />And left the rest in pieces<br /><br />Submissions / Inquiries - nick@bangersonlyhq.com<br /><br />Partner Channels:<br />ChillOnly - <a rel="nofollow" target="blank" href="https://bit.ly/3uYHKe3">https://bit.ly/3uYHKe3</a><br />SauceOnly - <a rel="nofollow" target="blank" href="https://bit.ly/30gjpSP">https://bit.ly/30gjpSP</a><br />BagOnly - <a rel="nofollow" target="blank" href="https://bit.ly/38eIimn">https://bit.ly/38eIimn</a><br />VibesOnly - <a rel="nofollow" target="blank" href="https://bit.ly/30dN2nQ">https://bit.ly/30dN2nQ</a>{% endraw %}
