@@ -1,0 +1,15 @@
+---
+title: "HIDE N SEEK BUDGET CHALLENGE!"
+image: "https:\/\/i.ytimg.com\/vi\/bWQzCDcaS30\/hqdefault.jpg"
+vid_id: "bWQzCDcaS30"
+categories: "Entertainment"
+tags: ["morejstu","hide and seek","budget challenge"]
+date: "2022-05-03T19:30:58+03:00"
+vid_date: "2021-04-06T19:01:11Z"
+duration: "PT13M54S"
+viewcount: "1805987"
+likeCount: "60413"
+dislikeCount: ""
+channel: "JStu"
+---
+{% raw %}We did a hide and seek budget challenge! <br />CHECK OUT OUR MERCH! ► <a rel="nofollow" target="blank" href="https://jstushop.com">https://jstushop.com</a><br /><br />CHECK OUT THE PODCAST!<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCw5RoKFMqm9QexzDpABz2qw">https://www.youtube.com/channel/UCw5RoKFMqm9QexzDpABz2qw</a><br /><br />For this budget challenge, we changed it up a bit.. instead of the having different money budgets we put different time slots at the bottom of the plinko board! Whatever amount of time you land on, that's the amount of time you have to hide. Preston went out of the warehouse while we all hid and then we went around trying to find us. Who had the best hiding spot?! Let us know! <br /><br />BOOK US ON CAMEO!<br /><a rel="nofollow" target="blank" href="https://www.cameo.com/morejstu?qid=1616629868">https://www.cameo.com/morejstu?qid=1616629868</a> <br /><br />Follow us on INSTAGRAM!<br />⚡️Justin - <a rel="nofollow" target="blank" href="https://www.instagram.com/itsjustinstuart">https://www.instagram.com/itsjustinstuart</a><br />⚡️Andrew - <a rel="nofollow" target="blank" href="https://www.instagram.com/andrewscites">https://www.instagram.com/andrewscites</a> <br />⚡️Hyper - <a rel="nofollow" target="blank" href="https://www.instagram.com/hyperfenton">https://www.instagram.com/hyperfenton</a><br />⚡️Hyper Fenton Spotify:  <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/2q5QIs6iibW6xyHZZRSeh2?si=741AihjaQneU70VdgLUv8A">https://open.spotify.com/artist/2q5QIs6iibW6xyHZZRSeh2?si=741AihjaQneU70VdgLUv8A</a><br /><br />VLOG CHANNEL - @JStuStudios <br /><br />----------------------------------------­­­­­­­­---------------------------------­-­-­-­-­-<br />Our motto on this channel is LAUGH DAILY! Why is this our motto? Because we believe in the importance of laughing daily, we strive to bring joy to people's lives by watching our content. <br />&quot;A joyful heart is good medicine, but a crushed spirit dries up the bones.&quot;  Proverbs 17:22  We love this verse and it is the driving force behind our videos and why we do what we do! <br /><br />----------------------------------------­­­­­­­­---------------------------------­-­-­-­-­-<br />• Questions about MERCH? Email our merch support! : support@bunkerbranding.com <br />• Contact (Business Only) : JStuStudios@gmail.com<br />----------------------------------------­­­­­­­­---------------------------------­-­-­-­-­-<br />Thanks so much for watching and for all your continued support. We are so grateful for you watching, commenting and being a huge part of this channel and our crazy adventures! You guys rock!{% endraw %}
