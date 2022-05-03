@@ -1,0 +1,15 @@
+---
+title: "Critzreal is carrying !"
+image: "https:\/\/i.ytimg.com\/vi\/06a-doBbF9k\/hqdefault.jpg"
+vid_id: "06a-doBbF9k"
+categories: "Gaming"
+tags: ["ShuTFT","tft set 6.5 ezreal","3 star ezreal"]
+date: "2022-05-03T06:18:26+03:00"
+vid_date: "2022-05-02T14:36:36Z"
+duration: "PT8M16S"
+viewcount: "2629"
+likeCount: "62"
+dislikeCount: ""
+channel: "ShuTFT"
+---
+{% raw %}Critzreal is carrying !<br />Today I've made 3 star ezreal, hope you are going to enjoy the video ! <br />#tft #3star #ezreal<br /><br />Timestamps:<br />0:00 2 star etreal<br />0:37 3 star ezreal<br /><br />Let me know what do you think about this build ! <br /><br />If you have a build that you would like to see in future videos, make sure to write it down into comments section !<br /><br /><br />This channel is focused on a short videos from a game TFT, the main goal is to create entertaining videos with both meta and non-meta builds including 3 star champions as a main carries. In each set there should be a video with at least 1 build option for most of the champions.<br /><br /><br />SUBSCRIBE to my youtube channel !<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/ShuTFT?sub_confirmation=1">https://www.youtube.com/c/ShuTFT?sub_confirmation=1</a><br /><br />JOIN our Discord: <br /><a rel="nofollow" target="blank" href="https://discord.gg/56NZf8g2Sr">https://discord.gg/56NZf8g2Sr</a><br /><br />TFT set 6 playlist<br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLTYI5RL9cZ7P5xeXnHtjU4i7jKX_Vaf5N">https://youtube.com/playlist?list=PLTYI5RL9cZ7P5xeXnHtjU4i7jKX_Vaf5N</a><br /><br />TFT set 6 - 5 costs playlist<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLTYI5RL9cZ7PxHzdqorqP7MNqZ4tvDesz">https://www.youtube.com/playlist?list=PLTYI5RL9cZ7PxHzdqorqP7MNqZ4tvDesz</a><br /><br />TFT set 5.5 playlist<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLTYI5RL9cZ7PARDZKxO_aYuYT6orCYm44">https://www.youtube.com/playlist?list=PLTYI5RL9cZ7PARDZKxO_aYuYT6orCYm44</a><br /><br /><br />Music:<br /><br />Track: Marin Hoxha &amp; Caravn - Eternal [NCS Release]<br />Music provided by NoCopyrightSounds.<br />Watch: <a rel="nofollow" target="blank" href="https://youtu.be/hECg1-wUyKg">https://youtu.be/hECg1-wUyKg</a><br />Free Download / Stream: <a rel="nofollow" target="blank" href="http://ncs.io/Eternal">http://ncs.io/Eternal</a><br /><br />Track: Tom Wilson - Be Myself [NCS Release]<br />Music provided by NoCopyrightSounds.<br />Watch: <a rel="nofollow" target="blank" href="https://youtu.be/LG1iV_wzcTw">https://youtu.be/LG1iV_wzcTw</a><br />Free Download / Stream: <a rel="nofollow" target="blank" href="http://ncs.io/BeMyself">http://ncs.io/BeMyself</a><br /><br />Track: Rogers &amp; Dean - Jungle [NCS Release]<br />Music provided by NoCopyrightSounds.<br />Watch: <a rel="nofollow" target="blank" href="https://youtu.be/QnL5P0tFkwM">https://youtu.be/QnL5P0tFkwM</a><br />Free Download / Stream: <a rel="nofollow" target="blank" href="http://ncs.io/Jungle">http://ncs.io/Jungle</a>{% endraw %}
