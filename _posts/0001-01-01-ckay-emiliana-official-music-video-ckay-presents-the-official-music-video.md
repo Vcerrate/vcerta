@@ -1,0 +1,15 @@
+---
+title: "CKay - Emiliana [Official Music Video]"
+image: "https:\/\/i.ytimg.com\/vi\/Ypr5QN7Xn_M\/hqdefault.jpg"
+vid_id: "Ypr5QN7Xn_M"
+categories: "Music"
+tags: ["Ckay Love Nwantiti Official Video","Ckay ft. Joeboy & Kuami Eugene","ckay love nwantinti instrumental"]
+date: "2022-05-04T06:00:10+03:00"
+vid_date: "2022-04-01T10:00:19Z"
+duration: "PT2M52S"
+viewcount: "15000230"
+likeCount: "192120"
+dislikeCount: ""
+channel: "CKay"
+---
+{% raw %}Ckay presents the official music video for Emiliana<br /><br />Subscribe: <a rel="nofollow" target="blank" href="http://bit.ly/SubscribetoCkay">http://bit.ly/SubscribetoCkay</a> <br /><br />Listen to 'Emiliana': <a rel="nofollow" target="blank" href="https://warnermusicsa.lnk.to/emiliana">https://warnermusicsa.lnk.to/emiliana</a><br /><br />Follow CKay On:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/ckayyo/">https://www.facebook.com/ckayyo/</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/ckay_yo">https://twitter.com/ckay_yo</a><br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/ckay_yo/">https://instagram.com/ckay_yo/</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@ckay_yo">https://www.tiktok.com/@ckay_yo</a><br /><br />CKay - Emiliana Lyrics<br /><br />Verse 1:<br />All because of you<br />I be on the phone all night long<br />No be small thing wey you do to me oh nuh nuh nuh<br />I be on my business shawty<br />but you be on my mind shawty<br />Ebelebe oloma my honey ahh<br /><br />Pre-Chorus:<br />Kiss me through the cellular<br />Kiss me through the phone<br />Can’t you see I’m into ya<br />Can’t you see I’m in love<br />Kiss me through the cellular<br />Kiss me through the phone<br />You’re messing with my medula<br />Highkey I don kolo oh no<br /><br />Chorus:<br />Emiliana oh Emiliana oh<br />Emiliana oh no<br />Emiliana oh Emiliana oh<br />Emiliana oh no<br />You’re one in a million oh<br />in a million oh<br />in a million oh no<br />My Emiliana oh<br />Emiliana oh<br />Emiliana oh no<br /><br />Verse 2:<br />Girl I wanna, wanna know what it feel like<br />(what it feel like)<br />Make I know as e be for real life<br />(for real life)<br />Inna my condo<br />loving up your body in fast and slow mo<br />If I hit you with my combo<br />Girl you will never ever let me go,<br />hold on to me<br /><br />Pre-Chorus:<br />Kiss me through the cellular<br />Kiss me through the phone<br />Can’t you see I’m into ya<br />Can’t you see I’m in love<br />Kiss me through the cellular<br />Kiss me through the phone<br />You’re messing with my medula<br />Highkey I don kolo oh no<br /><br />Chorus:<br />Emiliana oh Emiliana oh<br />Emiliana oh no<br />Emiliana oh Emiliana oh<br />Emiliana oh no<br />You’re one in a million oh<br />in a million oh<br />in a million oh no<br />My Emiliana oh<br />Emiliana oh<br />Emiliana oh no<br /><br /><br /><br /><br />#Emiliana <br />#Emiliana_acoustic <br />#Emiliana_ckay <br />#Ckay<br />#Emilianackay<br />#Ckay_emiliana<br />#Emobeats<br />#Afrobeats{% endraw %}
