@@ -1,0 +1,15 @@
+---
+title: "Rami Malek Pretended to be His Identical Twin Brother"
+image: "https:\/\/i.ytimg.com\/vi\/HvBwJrc_-ns\/hqdefault.jpg"
+vid_id: "HvBwJrc_-ns"
+categories: "Comedy"
+tags: ["jimmy","jimmy kimmel","jimmy kimmel live"]
+date: "2022-05-04T04:32:50+03:00"
+vid_date: "2015-09-02T20:00:01Z"
+duration: "PT4M9S"
+viewcount: "5580974"
+likeCount: "119788"
+dislikeCount: ""
+channel: "Jimmy Kimmel Live"
+---
+{% raw %}Rami talks about his identical twin brother and recalls the time he pretended to be him to help him cheat in class. <br /><br />SUBSCRIBE to get the latest #KIMMEL: <a rel="nofollow" target="blank" href="http://bit.ly/JKLSubscribe">http://bit.ly/JKLSubscribe</a><br /><br />Watch the latest Halloween Candy Prank: <a rel="nofollow" target="blank" href="http://bit.ly/KimmelHalloweenCandy">http://bit.ly/KimmelHalloweenCandy</a><br /><br />Watch Mean Tweets: <a rel="nofollow" target="blank" href="http://bit.ly/JKLMeanTweets8">http://bit.ly/JKLMeanTweets8</a><br /><br />Connect with Jimmy Kimmel Live Online:<br /><br />Visit the Jimmy Kimmel Live WEBSITE: <a rel="nofollow" target="blank" href="http://bit.ly/JKLWebsite">http://bit.ly/JKLWebsite</a><br />Like Jimmy Kimmel Live on FACEBOOK: <a rel="nofollow" target="blank" href="http://bit.ly/JKLFacebook">http://bit.ly/JKLFacebook</a><br />Follow Jimmy Kimmel Live on TWITTER: <a rel="nofollow" target="blank" href="http://bit.ly/JKLTwitter">http://bit.ly/JKLTwitter</a><br />Follow Jimmy Kimmel Live on INSTAGRAM: <a rel="nofollow" target="blank" href="http://bit.ly/JKLInstagram">http://bit.ly/JKLInstagram</a><br /><br />About Jimmy Kimmel Live:<br /><br />Jimmy Kimmel serves as host and executive producer of Emmy-winning &quot;Jimmy Kimmel Live,&quot; ABC's late-night talk show.<br /> <br />&quot;Jimmy Kimmel Live&quot; is well known for its huge viral video successes with 2.5 billion views on YouTube alone. Some of Kimmel's most popular comedy bits include - Mean Tweets, Lie Witness News, Jimmy's Twerk Fail Prank, Unnecessary Censorship, YouTube Challenge, The Baby Bachelor, Movie: The Movie, Handsome Men's Club, Jimmy Kimmel Lie Detective and music videos like &quot;I (Wanna) Channing All Over Your Tatum&quot; and a Blurred Lines parody with Robin Thicke, Pharrell, Jimmy and his security guard Guillermo.<br /> <br />Now in its thirteenth season, Kimmel's guests have included: Johnny Depp, Meryl Streep, Tom Cruise, Halle Berry, Harrison Ford, Jennifer Aniston, Will Ferrell, Katy Perry, Tom Hanks, Scarlett Johansson, Channing Tatum, George Clooney, Larry David, Charlize Theron, Mark Wahlberg, Kobe Bryant, Steve Carell, Hugh Jackman, Kristen Wiig, Jeff Bridges, Jennifer Garner, Ryan Gosling, Bryan Cranston, Jamie Foxx, Amy Poehler, Ben Affleck, Robert Downey Jr., Jake Gyllenhaal, Oprah, and unfortunately Matt Damon.<br /><br />Rami Malek Pretended to be His Identical Twin Brother<br /><a rel="nofollow" target="blank" href="https://youtu.be/HvBwJrc_-ns">https://youtu.be/HvBwJrc_-ns</a>{% endraw %}
