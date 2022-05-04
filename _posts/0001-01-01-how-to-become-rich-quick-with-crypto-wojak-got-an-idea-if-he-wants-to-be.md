@@ -1,0 +1,15 @@
+---
+title: "How to become rich quick with crypto"
+image: "https:\/\/i.ytimg.com\/vi\/Gi4b2rtwqqQ\/hqdefault.jpg"
+vid_id: "Gi4b2rtwqqQ"
+categories: "People-Blogs"
+tags: ["crypto","rich","money"]
+date: "2022-05-04T10:13:34+03:00"
+vid_date: "2022-05-03T15:31:39Z"
+duration: "PT1M9S"
+viewcount: "6142"
+likeCount: "526"
+dislikeCount: ""
+channel: "Zero Budget Stories"
+---
+{% raw %}Wojak got an idea. If he wants to be rich, just change the currency...<br />But will Bogdanoff let this happen ?<br /><br />Become a channel member now and get multiples advantages :<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCfsMC2nwKBli_ZLbkWGSl8w/join">https://www.youtube.com/channel/UCfsMC2nwKBli_ZLbkWGSl8w/join</a><br /><br />📩 For business inquiries, contact me on this address :<br />zerobudgetstories@gmail.com<br /><br />Visit my website (NFT shop, news, partnerships and more)<br /><a rel="nofollow" target="blank" href="https://www.zerobudgetstories.com/">https://www.zerobudgetstories.com/</a><br /><br />Affiliates<br />Get 20% cash back on every Binance's trading fees : <a rel="nofollow" target="blank" href="https://accounts.binance.com/en/register?ref=WCC5IDP2">https://accounts.binance.com/en/register?ref=WCC5IDP2</a><br />Store your crypto safely using Ledger : <a rel="nofollow" target="blank" href="https://shop.ledger.com?r=01632913cdaa">https://shop.ledger.com?r=01632913cdaa</a><br />Buy Bitcoin or other crypto instantly with low commissions : <a rel="nofollow" target="blank" href="https://buy.paybis.com/lQdFa8">https://buy.paybis.com/lQdFa8</a><br />Automate your crypto trading : <a rel="nofollow" target="blank" href="https://www.coinrule.com?fp_ref=zerobudgetstories">https://www.coinrule.com?fp_ref=zerobudgetstories</a><br /><br />Donations<br />If you want to support the channel by donating the price of a coffee, it's always warmly welcomed!<br /><br />📌 Bitcoin (BTC)<br />3FyVET59QoYoy6hv7184DQ9ZnnUNWmTpWr<br /><br />📌 Ethereum (ETH)<br />0x28A7D79AFa6053D7a176D13019582d62A05bfcF6<br /><br />📌 Cardano (ADA)<br />addr1vxhvucsuwq85pjtyuve4u0rdwtdd2q79vpqaa5jj7lhh3zg77h0vt<br /><br />📌 Yearn Finance (YFI)<br />0xA7FD0bB6A9eA3f74935b97203Ed8C7Cccf42bA59<br /><br />Thanks to all the persons who are watching this channel and the videos<br /><br />NFT's releases<br />I'm going to create one unique NFT per achivements on this channel. Tru the grow of this channel, I want to mark the moments in time by doing digital art running on the blockchain.<br /><br />🎨 1th NFT : 1,000 subscribers<br />🎨 2th NFT : 10,000 subscribers<br />🎨 3th NFT : 100,000 subscribers<br />🎨 4th NFT : 1,000,000 subscribers<br /><br />It will be available on Rarible when the treshold is hit.<br /><br />Thanks for everything and for your fidelity.<br /><br />Song: GRÄF - Money<br />Link: <a rel="nofollow" target="blank" href="https://youtu.be/zPzTFzS5LdM">https://youtu.be/zPzTFzS5LdM</a><br />Music promoted by FreeMusicWave.<br /><br />#Bogdanoff #Crypto #Binance{% endraw %}
