@@ -1,0 +1,15 @@
+---
+title: "THE ONLY GLAIVIER PVP BUILD YOU WILL EVER NEED!! | 3v3 | OUTPLAYED | PVP | Lost Ark | Highlights"
+image: "https:\/\/i.ytimg.com\/vi\/HSaAhTSkoXA\/hqdefault.jpg"
+vid_id: "HSaAhTSkoXA"
+categories: "People-Blogs"
+tags: ["GLAIVIER","BUILD","NEED!!"]
+date: "2022-05-04T15:54:50+03:00"
+vid_date: "2022-05-03T16:01:01Z"
+duration: "PT9M59S"
+viewcount: "487"
+likeCount: "18"
+dislikeCount: ""
+channel: "Soulgrot"
+---
+{% raw %}I am trying to hit Grandmaster with Glaivier at the moment, come by the stream and watch my struggles. Here is the build that I used to hit 2200MMR with a 70% win rate. I hope you guys enjoy!!<br /> <br />0:00 SKILLS<br />2:54 STATS<br />2:57 COMBOS<br />6:16 GAMEPLAY<br /><br /><br />MUSIC - METR- LIKE THIS<br /><br />TAGS:<br />#LostArk #LostArkPVP #LostArkMontage #LostArkPVPMontage #LostArkRelease #LostArkEU #LostArk2022 #LostArk2021 #LostArkNA #LostArkBlade #LostArkDeathblade #LostArkReaper #LostArkDemonic #LostArkShadowhunter #LostArkDestroyer #LostArkWarlord #LostArkGunlancer #LostArkBerserker #LostArkPaladin #LostArkHolyknight #LostArkBattlemaster #LostArkWardancer #LostArkSoulmaster #LostArkSoulfist #LostArkLancemaster #LostArkinfighter #LostArkScrapper #LostArkStriker #LostArkHunter #LostArkWarrior #LostArkMagician #LostArkFighter #LostArkAssasin #LostArkHawkeye #LostArkSharpshooter #LostArkScouter #LostArkDevilhunter #LostArkDeadeye #LostArkGunslinger #LostArkBlaster #LostArkArtillerist #LostArkBard #LostArkArcana #LostArkSummoner #LostArkSorceress #LostArkBladePVP #LostArkDeathBladePVP #LostArkReaperPVP #LostArkDemonicPVP #LostArkShadowhunterPVP #LostArkDestroyerPVP #LostArkWarlordPVP #LostArkGunlancerPVP #LostArkBerserkerPVP #LostArkPaladinPVP #LostArkHolyknightPVP #LostArkBattlemasterPVP #LostArkWardancerPVP #LostArkSoulmasterPVP #LostArkSoulfistPVP #LostArkLancemasterPVP #LostArkinfighterPVP #LostArkScrapperPVP #LostArkStrikerPVP #LostArkHunterPVP #LostArkWarriorPVP #LostArkMagicianPVP #LostArkFighterPVP #LostArkAssasinPVP #LostArkHawkeyePVP #LostArkSharpshooterPVP #LostArkScouterPVP #LostArkDevilhunterPVP #LostArkDeadeyePVP #LostArkGunslingerPVP #LostArkBlasterPVP #LostArkArtilleristPVP #LostArkBardPVP #LostArkArcanaPVP #LostArkSummonerPVP #LostArkSorceressPVP #LostArkBladeMontage #LostArkDeathbladeMontage #LostArkReaperMontage #LostArkDemonicMontage #LostArkShadowhunterMontage #LostArkDestroyerMontage #LostArkWarlordMontage #LostArkGunlancerMontage #LostArkBerserkerMontage #LostArkPaladinMontage #LostArkHolyknightMontage #LostArkBattlemasterMontage #LostArkWardancerMontage #LostArkSoulmasterMontage #LostArkSoulfistMontage #LostArkLancemasterMontage #LostArkinfighterMontage #LostArkScrapperMontage #LostArkStrikerMontage #LostArkHunterMontage #LostArkWarriorMontage #LostArkMagicianMontage #LostArkFighterMontage #LostArkAssasinMontage #LostArkHawkeyeMontage #LostArkSharpshooterMontage #LostArkScouterMontage #LostArkDevilhunterMontage #LostArkDeadeyeMontage #LostArkGunslingerMontage #LostArkBlasterMontage #LostArkArtilleristMontage #LostArkBardMontage #LostArkArcanaMontage #LostArkSummonerMontage #LostArkSorceressMontage{% endraw %}
