@@ -1,0 +1,15 @@
+---
+title: "THIS TEXT WILL GET YOU GIRLS | How to Text A Girl You Like"
+image: "https:\/\/i.ytimg.com\/vi\/wKh-NeO2wbE\/hqdefault.jpg"
+vid_id: "wKh-NeO2wbE"
+categories: "Entertainment"
+tags: ["dates","how to get a girlfriend","pickup lines"]
+date: "2022-05-04T22:28:03+03:00"
+vid_date: "2016-09-10T14:30:01Z"
+duration: "PT4M8S"
+viewcount: "2763788"
+likeCount: "40777"
+dislikeCount: ""
+channel: "Based Zeus"
+---
+{% raw %}Get the InstaGame course and turn your IG profile into a DATE-MAGNET: <a rel="nofollow" target="blank" href="https://godlytexting.com/instagame-course-signup">https://godlytexting.com/instagame-course-signup</a> <br />_<br />Learn how to make girls OBSESSED with YOU over text (The Godly Texting Guide): <a rel="nofollow" target="blank" href="https://godlytexting.com">https://godlytexting.com</a><br />_<br />Learn how to APPROACH &amp; ATTRACT any Girl (The God Approach course): <a rel="nofollow" target="blank" href="http://bit.ly/godapproach">http://bit.ly/godapproach</a> <br />Checkout my personal jewelry brand: <a rel="nofollow" target="blank" href="https://ronnjewelry.com/">https://ronnjewelry.com/</a><br />_<br />Get the BEST opening line EVER discovered for apps like Tinder &amp; Hinge (my friend Jesse's new video): <a rel="nofollow" target="blank" href="https://endlessoptions.com/basedzeus">https://endlessoptions.com/basedzeus</a><br />_<br />GET THE TEXTING MINI-COURSE (100% FREE): <a rel="nofollow" target="blank" href="https://godlytexting.com/get-free-mini-course-right-away">https://godlytexting.com/get-free-mini-course-right-away</a> <br />_<br />Learn how to SEND the PERFECT Tinder Message + MY SCREENSHOTS: <a rel="nofollow" target="blank" href="https://bit.ly/2MuIDVj">https://bit.ly/2MuIDVj</a><br />_<br />Learn The Facetime HACK that gets me 10x MORE DATES: <a rel="nofollow" target="blank" href="https://basedzeus.clickfunnels.com/optin22609080">https://basedzeus.clickfunnels.com/optin22609080</a><br /><br />SUBSCRIBE! <a rel="nofollow" target="blank" href="http://bit.ly/29xqSWN">http://bit.ly/29xqSWN</a><br />Learn how to make girls OBSESSED with YOU over text: <a rel="nofollow" target="blank" href="http://godlytexting.com/">http://godlytexting.com/</a><br /><br />The HANGOUT TEST EXPLAINED! How do I know if a girl likes me through text? Does she like me? Why does she text me all the time? ALL these questions answered and more in today's episode! <br /><br />SUBSCRIBE! <a rel="nofollow" target="blank" href="http://bit.ly/29xqSWN">http://bit.ly/29xqSWN</a><br /><br />Join the BasedLympian Army:<br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/iambasedzeus">https://twitter.com/iambasedzeus</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/iambasedzeus/">https://www.instagram.com/iambasedzeus/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/iambasedzeus">https://www.facebook.com/iambasedzeus</a><br /><br />Background Music by: Superstaar Beats &amp; PatternBased{% endraw %}
