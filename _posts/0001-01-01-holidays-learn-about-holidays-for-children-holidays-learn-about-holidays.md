@@ -1,0 +1,15 @@
+---
+title: "Holidays | Learn about Holidays for Children"
+image: "https:\/\/i.ytimg.com\/vi\/XyMBvHiErhA\/hqdefault.jpg"
+vid_id: "XyMBvHiErhA"
+categories: "Education"
+tags: ["holiday","holidays","learn about holidays"]
+date: "2022-05-05T22:46:35+03:00"
+vid_date: "2015-02-06T13:23:59Z"
+duration: "PT5M46S"
+viewcount: "329712"
+likeCount: "4109"
+dislikeCount: ""
+channel: "Kids Learning Videos"
+---
+{% raw %}Holidays!  Learn about Holidays for Kids<br /><br />Learn about your favorite holidays with this fun video.  This video talks about many different holidays that people in the United States and other places in the world enjoy.  Kids and Children will learn about each holiday and enjoy seeing fun pictures in the video.<br /><br />Click Here to Learn More about Columbus Day - <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=vf82WAw0Iqw&amp;index=31&amp;list=PLsujH_u89cJ90fibc6mYg4bieFtoeocxO">https://www.youtube.com/watch?v=vf82WAw0Iqw&amp;index=31&amp;list=PLsujH_u89cJ90fibc6mYg4bieFtoeocxO</a><br /><br />Visit our channel for more great videos for kids and children - <a rel="nofollow" target="blank" href="http://www.youtube.com/kidslearningvideo">http://www.youtube.com/kidslearningvideo</a><br /><br />--Subscribe to Kids Learning Videos--<br /><a rel="nofollow" target="blank" href="http://www.youtube.com/subscription_center?add_user=kidslearningvideo">http://www.youtube.com/subscription_center?add_user=kidslearningvideo</a><br /><br />--Educational Toys for Kids--<br /><a rel="nofollow" target="blank" href="https://www.amazon.com/shop/kidslearningvideos">https://www.amazon.com/shop/kidslearningvideos</a><br /><br />--Popular Videos and Songs—<br />Animal Sounds Song - <a rel="nofollow" target="blank" href="https://youtu.be/V7R_M52EAkI?list=PLsujH_u89cJ-_59BMCSMdDXdwDlUJ1LO9">https://youtu.be/V7R_M52EAkI?list=PLsujH_u89cJ-_59BMCSMdDXdwDlUJ1LO9</a><br />The Three Little Pigs - <a rel="nofollow" target="blank" href="https://youtu.be/HtHjB6rRmQc?list=PLsujH_u89cJ9Qn3J0u_qlCPUrTZafhJSQ">https://youtu.be/HtHjB6rRmQc?list=PLsujH_u89cJ9Qn3J0u_qlCPUrTZafhJSQ</a><br />Old MacDonald Had a Farm - <a rel="nofollow" target="blank" href="https://youtu.be/o2xEz9ceqpo?list=PLsujH_u89cJ-_59BMCSMdDXdwDlUJ1LO9">https://youtu.be/o2xEz9ceqpo?list=PLsujH_u89cJ-_59BMCSMdDXdwDlUJ1LO9</a><br /><br />--Check out our Website—<br /><a rel="nofollow" target="blank" href="http://www.kidslearningvideos.com">http://www.kidslearningvideos.com</a><br /><br />--Follow Kids Learning Videos--<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/KidsLearningVideo">https://www.facebook.com/KidsLearningVideo</a><br />Roku:  <a rel="nofollow" target="blank" href="https://channelstore.roku.com/details/599303/kids-learning">https://channelstore.roku.com/details/599303/kids-learning</a><br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/26Emt3nquf2tasxreun94d">https://open.spotify.com/artist/26Emt3nquf2tasxreun94d</a>{% endraw %}
