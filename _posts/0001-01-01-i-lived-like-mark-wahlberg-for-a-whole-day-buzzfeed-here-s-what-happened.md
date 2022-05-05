@@ -1,0 +1,15 @@
+---
+title: "I Lived Like Mark Wahlberg For A Whole Day | BuzzFeed"
+image: "https:\/\/i.ytimg.com\/vi\/sH-q9CWz3b8\/hqdefault.jpg"
+vid_id: "sH-q9CWz3b8"
+categories: "People-Blogs"
+tags: ["buzzfeed","buzzfeedvideo","mark wahlberg"]
+date: "2022-05-05T15:26:05+03:00"
+vid_date: "2018-11-25T00:00:04Z"
+duration: "PT10M20S"
+viewcount: "1421370"
+likeCount: "18851"
+dislikeCount: ""
+channel: "BuzzFeedVideo"
+---
+{% raw %}Here's what happened when I lived like Mark Wahlberg for a day. <br /><br /><a rel="nofollow" target="blank" href="https://www.buzzfeed.com/spenceralthouse/i-lived-like-mark-wahlberg-for-24-hours">https://www.buzzfeed.com/spenceralthouse/i-lived-like-mark-wahlberg-for-24-hours</a><br /><br />Credits: <a rel="nofollow" target="blank" href="https://www.buzzfeed.com/bfmp/videos/68114">https://www.buzzfeed.com/bfmp/videos/68114</a><br /><br />Check out more awesome videos at BuzzFeedVideo!<br /><a rel="nofollow" target="blank" href="https://bit.ly/YTbuzzfeedvideo">https://bit.ly/YTbuzzfeedvideo</a><br /><br />GET MORE BUZZFEED:<br /><a rel="nofollow" target="blank" href="https://www.buzzfeed.com">https://www.buzzfeed.com</a><br /><a rel="nofollow" target="blank" href="https://www.buzzfeed.com/videos">https://www.buzzfeed.com/videos</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/buzzfeedvideo">https://www.youtube.com/buzzfeedvideo</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/asis">https://www.youtube.com/asis</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/buzzfeedmultiplayer">https://www.youtube.com/buzzfeedmultiplayer</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/buzzfeedviolet">https://www.youtube.com/buzzfeedviolet</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/perolike">https://www.youtube.com/perolike</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/ladylike">https://www.youtube.com/ladylike</a><br /><br />BuzzFeedVideo<br />BuzzFeed’s flagship channel. Sometimes funny, sometimes serious, always shareable. New videos posted daily!<br />To see behind-the-scenes &amp; more, follow us on Instagram @buzzfeedvideo <a rel="nofollow" target="blank" href="http://bit.ly/2JRRkKU">http://bit.ly/2JRRkKU</a><br /><br />Love BuzzFeed? Get the merch! BUY NOW: <a rel="nofollow" target="blank" href="https://goo.gl/gQKF8m">https://goo.gl/gQKF8m</a><br />MUSIC<br /><br />Licensed via Audio Network<br />SFX Provided By AudioBlocks<br />(<a rel="nofollow" target="blank" href="https://www.audioblocks.com)">https://www.audioblocks.com)</a><br /><br />STILLS<br />Lee Point Buoy<br />simplycmb/Getty Images<br /><br />VIDEO<br />Timelapse of sunrise over Manhattan skyline<br />sborisov/Getty Images<br />Twilight to Sunrise timelapse of Financial District skyscrapers from New York City Harbor<br />francois-roux/Getty Images<br />Time lapse - Sunset behind Statue of Liberty<br />Redshift-Blueshift/Getty Images{% endraw %}
