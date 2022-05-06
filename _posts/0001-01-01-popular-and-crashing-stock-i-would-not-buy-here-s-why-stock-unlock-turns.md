@@ -1,0 +1,15 @@
+---
+title: "Popular (And CRASHING) Stock I WOULD NOT BUY - Here's Why"
+image: "https:\/\/i.ytimg.com\/vi\/AkKPqP7krMY\/hqdefault.jpg"
+vid_id: "AkKPqP7krMY"
+categories: "Education"
+tags: ["investing","stock market","learn"]
+date: "2022-05-06T11:01:23+03:00"
+vid_date: "2022-05-05T20:59:55Z"
+duration: "PT18M19S"
+viewcount: "10181"
+likeCount: "638"
+dislikeCount: ""
+channel: "Daniel Pronk"
+---
+{% raw %}Stock Unlock turns you into a better investor. 7 Day Free Trial:<br /><a rel="nofollow" target="blank" href="https://www.stockunlock.com">https://www.stockunlock.com</a><br /><br />Join my community and ask me questions:<br /><a rel="nofollow" target="blank" href="https://www.Patreon.com/DanielPronk">https://www.Patreon.com/DanielPronk</a><br /><br />My Free 20 Step investor Checklist:<br /><a rel="nofollow" target="blank" href="https://drive.google.com/file/d/1VFMFQT4CMTqsomMYqoZvmCjQolTC8Lo2/view">https://drive.google.com/file/d/1VFMFQT4CMTqsomMYqoZvmCjQolTC8Lo2/view</a><br /><br />My Best U.S Stocks Watchlist &amp; Research:<br /><a rel="nofollow" target="blank" href="https://stockunlock.com/watchlistShare/f673c455-f46b-46f3-b62e-bb3a41ba1f47">https://stockunlock.com/watchlistShare/f673c455-f46b-46f3-b62e-bb3a41ba1f47</a><br /><br />My Best Canadian Stocks Watchlist &amp; Research:<br /><a rel="nofollow" target="blank" href="https://stockunlock.com/watchlistShare/b84186b9-50ff-42d6-a400-429e8e2cd6be">https://stockunlock.com/watchlistShare/b84186b9-50ff-42d6-a400-429e8e2cd6be</a><br /><br />My Favorite ETFs Watchlist &amp; Research:<br /><a rel="nofollow" target="blank" href="https://stockunlock.com/watchlistShare/2b1a811a-73fd-466d-8133-7fc6d3791d2d">https://stockunlock.com/watchlistShare/2b1a811a-73fd-466d-8133-7fc6d3791d2d</a><br /><br />DOWN 80% - Is Shopify Stock CHEAP In 2022?<br /><br />Hello everyone, I am Daniel Pronk and in todays video I discuss SHOP Shopify stock after its Q1 earnings to see if the stock is cheap or still expensive. SHOP is a stock that I have talked about historically on my channel and always said it's looking expensive. In todays video, I go over SHOPs Q1 earnings to see if it's getting cheap yet or is still expensive.<br /><br />Disclaimer: I am NOT a financial advisor, and nothing I say is meant to be a recommendation to buy or sell any financial instrument. I will NEVER ask you to send me money to trade for you. Please report any suspicious emails or fake social media profiles claiming to be me. Don't invest money you can't afford to lose. There are no guarantees or certainties in trading or investing.<br /><br />My videos may contain affiliate links or sponsorship to products I believe will add value to your life and help you. No matter what I or anyone else says, it’s important to do your own research before making a financial decision.<br /><br />See Full Disclaimer Here:<br /><a rel="nofollow" target="blank" href="https://www.danielpronk.com/disclaimer">https://www.danielpronk.com/disclaimer</a>{% endraw %}
