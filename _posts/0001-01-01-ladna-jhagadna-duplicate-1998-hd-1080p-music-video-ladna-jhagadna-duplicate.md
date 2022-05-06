@@ -1,0 +1,15 @@
+---
+title: "Ladna Jhagadna - Duplicate (1998) *HD* 1080p Music Video"
+image: "https:\/\/i.ytimg.com\/vi\/beZqtcNlwm0\/hqdefault.jpg"
+vid_id: "beZqtcNlwm0"
+categories: "Entertainment"
+tags: ["Ladna Jhagadna","Ladna Jhagadna- Duplicate","Ladna Jhagadna HD"]
+date: "2022-05-06T06:00:03+03:00"
+vid_date: "2012-05-03T18:17:09Z"
+duration: "PT5M10S"
+viewcount: "4730793"
+likeCount: "17023"
+dislikeCount: ""
+channel: "MissDiLBaRaKHDSongs"
+---
+{% raw %}Ladna Jhagadna - Duplicate (1998) HD 1080p Music Video with lyrics. <br /><br /><br /><br />ladna jhagarna jhagarke akarna<br /><br />fighting, quarreling, quarreling and then sulking,<br /><br /><br /><br />chhoro chhoro in baaton ko<br /><br />let these things go<br /><br /><br /><br />in se hoga kya<br /><br />what can come of them?<br /><br /><br /><br />chhoti chhoti baaton pe chirhna bigarna<br /><br />taking offense, getting riled over little things,<br /><br /><br /><br />samjho samjho in baaton se kuchh bhi nahin milta<br /><br />understand that you gain nothing by such talk<br /><br /><br /><br />aao &quot;darling&quot; ham donon ab ghul-milke rahenge<br /><br />come, darling, let's the two of us live in harmony<br /><br /><br /><br />tum hamen &quot;good&quot; kahana ham tumhen &quot;very good&quot; kahenge<br /><br />you'll tell me &quot;good,&quot; and i'll say to you, &quot;very good&quot;<br /><br /><br /><br /><br /><br /><br /><br />ham tumko bolen &quot;sorry&quot; tum hamko bolo &quot;sorry&quot;<br /><br />i'll tell you, &quot;sorry,&quot; and you tell me &quot;sorry&quot;<br /><br /><br /><br />gusse ka pare nahin tum par koi daura ya koi dhori<br /><br />may you never be overcome by hotheadedness<br /><br /><br /><br />&quot;darling&quot; meri baat ko tum samjho na<br /><br />darling, you understand what i'm saying, right?<br /><br /><br /><br />baahon men hamen tum le lo paas tumhaare jab ham<br /><br />when i'm near you, take me in your arms<br /><br /><br /><br />tum hamko bolo &quot;thank you&quot; ham tumko bolen &quot;welcome&quot;<br /><br />say &quot;thank you&quot; to me and i'll say &quot;welcome!&quot;<br /><br /><br /><br />&quot;darling&quot; aisa hoga tum bhi kaho na<br /><br />tell me that's how it'll be, darling!<br /><br /><br /><br /><br /><br />ham donon ki ho &quot;marriage&quot; aur &quot;marriage&quot; ka ho &quot;function&quot;<br /><br />it'll be our marriage, and marriage's function;<br /><br /><br /><br />chehare ke bulb jalte ho dil ka dil se &quot;connection&quot;<br /><br />may the face's bulb burn from the heart-to-heart connection<br /><br /><br /><br />&quot;darling&quot; meri baat ko tum samjho na<br /><br />darling, you understand what i'm saying, don't you?<br /><br /><br /><br />main ghar se jab bhi jaauun tum kaho mujhe &quot;goodbye&quot;<br /><br />whenever i leave the house, tell me good-bye;<br /><br /><br /><br />main lautke jab ghar aauun tum bolo &quot;darling hi&quot;<br /><br />when i return home, tell me, &quot;darling, hi!&quot;<br /><br /><br /><br />&quot;darling&quot; aisa hoga tum bhi kaho na<br /><br />tell me that's how it'll be, darling!{% endraw %}
