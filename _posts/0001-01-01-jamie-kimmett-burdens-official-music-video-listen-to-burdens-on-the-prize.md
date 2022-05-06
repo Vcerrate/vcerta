@@ -1,0 +1,15 @@
+---
+title: "Jamie Kimmett - Burdens (Official Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/DquWxeycBIQ\/hqdefault.jpg"
+vid_id: "DquWxeycBIQ"
+categories: "Music"
+tags: ["Burdens (Official Music Video)","Gospel\/Christian","Jamie Kimmett"]
+date: "2022-05-06T21:36:45+03:00"
+vid_date: "2019-09-20T07:00:01Z"
+duration: "PT4M2S"
+viewcount: "476618"
+likeCount: "7450"
+dislikeCount: ""
+channel: "JamieKimmettVEVO"
+---
+{% raw %}Listen to #Burdens on the Prize Worth Fighting For EP: <br /><a rel="nofollow" target="blank" href="https://JamieKimmett.lnk.to/PrizeEPbm">https://JamieKimmett.lnk.to/PrizeEPbm</a><br /> <br />Connect with Jamie: <br />Email List: <a rel="nofollow" target="blank" href="https://JamieKimmett.lnk.to/emaillistbm">https://JamieKimmett.lnk.to/emaillistbm</a><br />Facebook: <a rel="nofollow" target="blank" href="https://JamieKimmett.lnk.to/FacebookVI">https://JamieKimmett.lnk.to/FacebookVI</a><br />Instagram: <a rel="nofollow" target="blank" href="https://JamieKimmett.lnk.to/Instagrambm">https://JamieKimmett.lnk.to/Instagrambm</a><br />Twitter: <a rel="nofollow" target="blank" href="https://JamieKimmett.lnk.to/Twitterbm">https://JamieKimmett.lnk.to/Twitterbm</a><br />Website: <a rel="nofollow" target="blank" href="https://JamieKimmett.lnk.to/Websitebm">https://JamieKimmett.lnk.to/Websitebm</a><br /> <br />Burdens<br /> <br />When the night comes <br />When you're all alone <br />When there’s trouble stirring in your soul <br /> <br />And if your world is falling apart <br />Just hold on for the morning break to dawn <br />Come and lay your burdens down <br />To the place where freedom is found <br />At the feet, at the feet of Jesus <br />Come and lay your burdens down <br /> <br />When the deepest sorrow weighs on your heart <br />When you’ve prayed for answers but the answers never come <br />For every tear that you cry <br />There's a promise He will make your burdens light <br /> <br />Come and lay your burdens down <br />To the place where freedom is found <br />At the feet, at the feet of Jesus <br />Come and lay your burdens down <br /> <br />Lay them down <br />Lay them down <br /> <br />When we see Him face to face <br />All our worries will surely fade away <br />In the presence of His glorious light <br />We’ll sing hallelujah to the one who gave us life <br /> <br />Come and lay your burdens down <br />To the place where freedom is found <br />At the feet, at the feet of Jesus <br />Come and lay your burdens down <br /> <br />Come and lay your burdens down <br />To the place where freedom is found <br />At the feet, at the feet of Jesus <br />Come and lay your burdens down <br />Come and lay your burdens down <br /> <br /> <br />Written by Jamie Kimmett &amp; Ben Cantelon <br />Produced by Jonathan Smith Recorded at The Brown Owl, Berry Hill, TN. <br /> <br /> Music by Jamie Kimmett performing “Burdens” (Official Music Video). (C) 2019 Provident Label Group LLC, a division of Sony Music Entertainment<br />#JamieKimmett #ChristianMusic{% endraw %}
