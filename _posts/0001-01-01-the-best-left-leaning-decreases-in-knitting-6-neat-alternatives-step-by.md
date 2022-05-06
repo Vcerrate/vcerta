@@ -1,0 +1,15 @@
+---
+title: "The best left-leaning decreases in knitting  - 6 neat alternatives step by step"
+image: "https:\/\/i.ytimg.com\/vi\/qxGPuEYp5hE\/hqdefault.jpg"
+vid_id: "qxGPuEYp5hE"
+categories: "Howto-Style"
+tags: ["left leaning decrease","left leaning decrease knitting","left slanting decrease"]
+date: "2022-05-06T10:51:04+03:00"
+vid_date: "2021-08-01T13:30:06Z"
+duration: "PT15M26S"
+viewcount: "11928"
+likeCount: "1197"
+dislikeCount: ""
+channel: "NimbleNeedles"
+---
+{% raw %}A step-by-step tutorial showing you left-leaning decreases, and an important theory you need to understand to get neater decrease lines. <br />►►► Read the full tutorial here: <a rel="nofollow" target="blank" href="https://nimble-needles.com/tutorials/the-best-left-leaning-decrease-in-knitting/">https://nimble-needles.com/tutorials/the-best-left-leaning-decrease-in-knitting/</a><br /><br />Chapters:<br />0:00 Introduction to left-leaning decreases<br />0:55 Part I: Left-leaning decreases - the theory behind the slant<br />5:22 Part II: The instructions for the various left-leaning decreases<br />6:33 SSPK - slip, slip purl, knit<br />7:22 SSK &amp; ptbl in the return row<br />9:44 K2tog left<br />12:36 SKPY - Slip, knit, pass, yank<br /><br />Finding the perfect left-leaning decrease is probably a problem as old as knitting itself. Sometimes it feels like no matter what you do, the resulting left-slanting decrease looks wonky. But there is a solution. Since every knitter knits with different tension, this video will show you altogether 6 different alternatives to knit a neat left-leaning decrease.<br />The first part of this video explains the theory - how is slant created and why does the knitting directions (so from right to left) influence the way decreases look like.<br />And then second part shows you the actual instructions (including slow-motion) of the various techniques.<br /><br />My knitting needles: <a rel="nofollow" target="blank" href="https://amzn.to/3pHJ69c">https://amzn.to/3pHJ69c</a><br />My yarn: <a rel="nofollow" target="blank" href="https://bit.ly/354ESkw">https://bit.ly/354ESkw</a><br />*Note: As an Etsy &amp; Amazon Associate I earn from qualifying purchases.<br /><br />Link to my second channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCDUgpVfqgFHcFGq-AkhktoQ">https://www.youtube.com/channel/UCDUgpVfqgFHcFGq-AkhktoQ</a><br /><br />►Buy my patterns here: <a rel="nofollow" target="blank" href="https://bit.ly/3aBRdzs">https://bit.ly/3aBRdzs</a><br />►Visit my blog for a free knitting school: <a rel="nofollow" target="blank" href="https://nimble-needles.com/learn-to-knit-for-beginners/">https://nimble-needles.com/learn-to-knit-for-beginners/</a><br />►Subscribe to my newsletter for a free pattern &amp; regular updates: <a rel="nofollow" target="blank" href="https://nimble-needles.com/newsletter/">https://nimble-needles.com/newsletter/</a><br />► View my projects on Instagram  <a rel="nofollow" target="blank" href="https://www.instagram.com/nimbleneedlez/">https://www.instagram.com/nimbleneedlez/</a>{% endraw %}
