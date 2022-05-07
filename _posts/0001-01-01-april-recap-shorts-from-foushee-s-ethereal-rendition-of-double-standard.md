@@ -1,0 +1,15 @@
+---
+title: "APRIL RECAP #Shorts"
+image: "https:\/\/i.ytimg.com\/vi\/-ldS5sCB1kk\/hqdefault.jpg"
+vid_id: "-ldS5sCB1kk"
+categories: "Music"
+tags: ["colorsstudios","colorsberlin","All Colors Shows"]
+date: "2022-05-07T23:56:22+03:00"
+vid_date: "2022-04-30T15:00:44Z"
+duration: "PT59S"
+viewcount: "20461"
+likeCount: "1722"
+dislikeCount: ""
+channel: "COLORS"
+---
+{% raw %}From Foushee's ethereal rendition of 'double standard' to D Smoke's slick new single 'Glide', head over to our YouTube channel to catch up on the new A COLORS SHOW episodes that we released over the past month.<br /><br />Follow<br />▶ Stream: <a rel="nofollow" target="blank" href="https://colors.lnk.to/allshowscxs">https://colors.lnk.to/allshowscxs</a><br />▶ Recap: ALL COLORS SHOWS: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLWa4R2I19VH7Mtxo3VvqwnNlXgLpf4_d3">https://youtube.com/playlist?list=PLWa4R2I19VH7Mtxo3VvqwnNlXgLpf4_d3</a><br /><br />—<br /><br />Follow COLORS:<br />▶ Apparel Shop: <a rel="nofollow" target="blank" href="https://colors.lnk.to/shopcxs">https://colors.lnk.to/shopcxs</a><br />▶ On Socials: <a rel="nofollow" target="blank" href="https://colors.lnk.to/socials">https://colors.lnk.to/socials</a><br />▶ On Spotify: <a rel="nofollow" target="blank" href="https://colors.lnk.to/Spotify">https://colors.lnk.to/Spotify</a><br />▶ On Apple Music: <a rel="nofollow" target="blank" href="https://colors.lnk.to/applemusic">https://colors.lnk.to/applemusic</a><br />▶ On the Web: <a rel="nofollow" target="blank" href="https://colorsxstudios.com">https://colorsxstudios.com</a><br />▶ Newsletter: <a rel="nofollow" target="blank" href="https://colorsxstudios.com/newsletter">https://colorsxstudios.com/newsletter</a><br /><br />Check out our curated playlists:<br />▶ ALL COLORS SHOWS: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLWa4R2I19VH7Mtxo3VvqwnNlXgLpf4_d3">https://youtube.com/playlist?list=PLWa4R2I19VH7Mtxo3VvqwnNlXgLpf4_d3</a><br />▶ JADE (Smooth): <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLWa4R2I19VH6mND1HUBeHJN1NMzi6VAFR">https://youtube.com/playlist?list=PLWa4R2I19VH6mND1HUBeHJN1NMzi6VAFR</a><br />▶ AMBER (Groove): <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLWa4R2I19VH5d2tiAhSYawnNuwuNxs53G">https://youtube.com/playlist?list=PLWa4R2I19VH5d2tiAhSYawnNuwuNxs53G</a><br />▶ RUBY (The Function): <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLWa4R2I19VH7WEZgUsNUMPQRGLfiyIHJz">https://youtube.com/playlist?list=PLWa4R2I19VH7WEZgUsNUMPQRGLfiyIHJz</a><br /><br />COLORSxSTUDIOS is a unique aesthetic music platform showcasing exceptional talent from around the globe. COLORS focuses on the most distinctive new artists and original sounds in an increasingly fragmented and saturated scene. All COLORS shows seek to provide clear, minimalistic stage that shines a spotlight on the artists, giving them the opportunity to present their music without distraction.<br /><br />#colors #shorts #recap{% endraw %}
