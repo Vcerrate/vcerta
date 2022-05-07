@@ -1,0 +1,15 @@
+---
+title: "Nathan Evans - The Last Shanty (Official Video)"
+image: "https:\/\/i.ytimg.com\/vi\/zw0FZs_J2IE\/hqdefault.jpg"
+vid_id: "zw0FZs_J2IE"
+categories: "Music"
+tags: ["Nathan","Evans","The"]
+date: "2022-05-07T09:38:42+03:00"
+vid_date: "2022-05-06T16:00:12Z"
+duration: "PT2M13S"
+viewcount: "22706"
+likeCount: "3565"
+dislikeCount: ""
+channel: "NathanEvansVEVO"
+---
+{% raw %}Nathan Evans – The Last Shanty | Official Video<br />Listen now: <a rel="nofollow" target="blank" href="https://umgt.de/the-last-shanty">https://umgt.de/the-last-shanty</a><br /> <br />Follow Nathan<br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@nathanevanss">https://www.tiktok.com/@nathanevanss</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/nathanevanss.ig/">https://www.instagram.com/nathanevanss.ig/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/NathanEvanss">https://twitter.com/NathanEvanss</a><br /> <br />Well me father often told me when I was just a lad<br />A sailor's life is very hard, the food is always bad<br />But now I've joined the navy, I'm aboard a man-o-war<br />And now I've found a sailor ain't a sailor any more<br /> <br />Don't haul on the rope, don't climb up the mast<br />If you see a sailing ship it might be your last<br />Just get your civvies ready for another run-ashore<br />A sailor ain't a sailor, ain't a sailor anymore<br /> <br />Well the killick of our mess he says we had it soft<br />It wasn't like that in his day when we were up aloft<br />We like our bunks and sleeping bags, but what's a hammock for?<br />Swinging from the deckhead, or lying on the floor?<br /> <br />Don't haul on the rope, don't climb up the mast<br />If you see a sailing ship it might be your last<br />Just get your civvies ready for another run-ashore<br />A sailor ain't a sailor, ain't a sailor anymore<br /> <br />They gave us an engine that first went up and down<br />Then with more technology the engine went around<br />We know our steam and diesels but what's a mainyard for?<br />A stoker ain't a stoker with a shovel anymore<br /> <br />Don't haul on the rope, don't climb up the mast<br />If you see a sailing ship it might be your last<br />Just get your civvies ready for another run-ashore<br />A sailor ain't a sailor, ain't a sailor anymore<br /> <br />Two cans of beer a day and that's your bleeding lot<br />And now we've got an extra one because they stopped The Tot<br />So we'll put on our civvy-clothes find a pub ashore<br />A sailor's just a sailor just like he was before<br /> <br />Don't haul on the rope, don't climb up the mast<br />If you see a sailing ship it might be your last<br />Just get your civvies ready for another run-ashore<br />A sailor ain't a sailor, ain't a sailor anymore<br /> <br />Don't haul on the rope, don't climb up the mast<br />If you see a sailing ship it might be your last<br />Just get your civvies ready for another run-ashore<br />A sailor ain't a sailor, ain't a sailor anymore<br /> <br />#NathanEvans #LastShanty #ShantyTok{% endraw %}
