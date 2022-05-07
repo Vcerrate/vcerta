@@ -1,0 +1,15 @@
+---
+title: "Kehlani - everything [Official Music Video]"
+image: "https:\/\/i.ytimg.com\/vi\/h9Se_2mvWec\/hqdefault.jpg"
+vid_id: "h9Se_2mvWec"
+categories: "Music"
+tags: ["kehlani","parrish","r&b"]
+date: "2022-05-07T15:44:31+03:00"
+vid_date: "2022-04-29T16:01:13Z"
+duration: "PT3M31S"
+viewcount: "1065758"
+likeCount: "49562"
+dislikeCount: ""
+channel: "Kehlani"
+---
+{% raw %}Kehlani - everything<br />Stream/Download 'blue water road': <a rel="nofollow" target="blank" href="https://kehlani.lnk.to/bluewaterroad">https://kehlani.lnk.to/bluewaterroad</a><br />Purchase album bundles: <a rel="nofollow" target="blank" href="https://kehlani.lnk.to/store">https://kehlani.lnk.to/store</a><br /><br />Follow Kehlani<br /><a rel="nofollow" target="blank" href="https://www.kehlani.com/">https://www.kehlani.com/</a><br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/t/ZTd4W3Nx3/">https://www.tiktok.com/t/ZTd4W3Nx3/</a><br /><a rel="nofollow" target="blank" href="https://facebook.com/Kehlanimusic">https://facebook.com/Kehlanimusic</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/Kehlani">https://twitter.com/Kehlani</a><br /><a rel="nofollow" target="blank" href="https://instagram.com/kehlani">https://instagram.com/kehlani</a><br /><br />Directed by - Kehlani + Khufu Najee<br />Production Company - Radiance Pictures <br />Executive Producer - Nuer Taqa <br />Commissioner/EP - Shadeh Smith<br />Management - David Ali<br />Producer - Zoey Pressey <br />Director of Photography - Jay Swuen <br />Production Designer - Taylor Venegas <br />Stylist - Oliver Vaughn<br />Makeup - Troye Batiste<br />Hair - Cesar Deleon Ramirez<br />Edit - Sebastian Zotoff &amp; Erin McCaffrey <br />Post Producer - Whit Johnson<br />Color - Johnny Thorpe <br />VFX - Retina Imageworks <br /><br />Production Manager - Autumn Maschi <br />Production Coordinator - Losa Meru <br />1st AD - Max Dean <br />2nd AD - ​​Lizzy Walker <br /><br />1st AC - Benjamin Hernandez<br />2nd AC - Saori Kinai <br />Camera Utility - Fernando Lopez<br />Steadicam Op - Garet Jatsek<br /><br />Gaffer - Jon Sohn<br />BBE - Aaron Trujillo<br />Key Grip -Tristan Aghajanian <br />BBG - Axel Cubias <br /><br />Set Decorator - Caitlyn Bell<br />Set Decorator - Sasha Massey<br /><br />Stylist Assistant - ​​Sophia Nieser <br /><br />PA - Carlos Martinez <br />PA - Leysser Parada <br />PA - Memetjan Semet <br />PA - Sebastian Romero<br /><br />Background -<br />Liz<br />Sara Kawai<br />Yann Ondele<br />Honey Allure<br />Mathan Cephas<br />Justin Hargrove<br />Jonathan Miles<br />Marissa Andrea<br />Kenneth Bruer<br />Imani Simon<br />Kayla Ellis<br />Lani W<br />Jahmani Lockett<br />Edwin Honoret<br />Joe Craze<br />Natasha<br />jjaahz <br />Pop<br />Be-Heard<br />Sebastian<br />Sly Griffin<br />K.O.<br />Prince Nduka<br />Obiora Anozie<br /><br />Subscribe for the latest official music videos, official audio videos, performances, behind the scenes and more from Kehlani: <a rel="nofollow" target="blank" href="https://Atlantic.lnk.to/KehlaniSubscribe">https://Atlantic.lnk.to/KehlaniSubscribe</a><br /><br />#Kehlani #bluewaterroad #everything{% endraw %}
