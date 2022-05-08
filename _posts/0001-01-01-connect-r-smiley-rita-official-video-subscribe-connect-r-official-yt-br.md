@@ -1,0 +1,15 @@
+---
+title: "Connect-R ❌ @Smiley - Rita 💍 Official Video"
+image: "https:\/\/i.ytimg.com\/vi\/h-RjDRJ88qs\/hqdefault.jpg"
+vid_id: "h-RjDRJ88qs"
+categories: "Music"
+tags: ["connect-r","connectr","smiley"]
+date: "2022-05-08T20:09:09+03:00"
+vid_date: "2021-07-15T07:30:10Z"
+duration: "PT2M57S"
+viewcount: "15185432"
+likeCount: "113189"
+dislikeCount: ""
+channel: "Connect-R"
+---
+{% raw %}SUBSCRIBE 🙌 Connect-R Official YT:<br /><a rel="nofollow" target="blank" href="http://smarturl.it/YTsubscribeConnect-R">http://smarturl.it/YTsubscribeConnect-R</a><br /><br />Concerte Connect-R: <br />Georgiana Slabu | +40.726.771.102<br /><br />Management Connect-R: <br />Marius China | marius.china@sprintmedia.ro | <a rel="nofollow" target="blank" href="https://www.instagram.com/mariuschina">https://www.instagram.com/mariuschina</a><br /><br />Booking Smiley | alexandru@hahahaproduction.com<br /><br />🙌  Follow Connect-R:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/connectr">https://www.instagram.com/connectr</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/connectrofficial">https://www.facebook.com/connectrofficial</a><br />Spotify: <a rel="nofollow" target="blank" href="https://smarturl.it/ConnectRonSpotify">https://smarturl.it/ConnectRonSpotify</a><br />Apple Music: <a rel="nofollow" target="blank" href="https://smarturl.it/ConnectRonAppleMusic">https://smarturl.it/ConnectRonAppleMusic</a><br /><br />🙌  Follow Smiley:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/smiley_omul">https://www.instagram.com/smiley_omul</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/smileyonline">https://www.facebook.com/smileyonline</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/smiley_omul">https://twitter.com/smiley_omul</a><br />Youtube channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/smileyomul">https://www.youtube.com/user/smileyomul</a><br />Official website: <a rel="nofollow" target="blank" href="http://smiley.ro">http://smiley.ro</a><br />Spotify: <a rel="nofollow" target="blank" href="http://bit.ly/SmileyonSpotify">http://bit.ly/SmileyonSpotify</a><br />Apple Music: <a rel="nofollow" target="blank" href="https://apple.co/2KiIVzT">https://apple.co/2KiIVzT</a><br /><br />Muzica: Mihalache Stefan, Andrei Tiberiu Maria, Serban Cazan, Leonard Croitoru<br />Text: Mihalache Stefan, Andrei Tiberiu Maria<br />Chitara: Damian Rusu<br />Mix-Master: George Hora, Tudor Ion<br />Video: Kobzzon<br /><br />(C) &amp; (P) 2021 Rappin'On Production | HaHaHa Production | Sprint Music<br /><br />Toate drepturile rezervate. Orice reupload poate fi raportat oricand la YT.<br /><br />All rights reserved. Unauthorized reproduction is a violation of applicable laws. In order to avoid copyright infringement, please do not upload this video on your channel.<br /><br />#ConnectR #Smiley{% endraw %}
