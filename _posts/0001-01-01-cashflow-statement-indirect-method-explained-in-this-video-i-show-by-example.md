@@ -1,0 +1,15 @@
+---
+title: "Cashflow Statement Indirect Method, explained"
+image: "https:\/\/i.ytimg.com\/vi\/YSdkZI1tXUQ\/hqdefault.jpg"
+vid_id: "YSdkZI1tXUQ"
+categories: "Education"
+tags: ["cashflow statement","how to prepare the cashflow statement","cashflow statement indirect method"]
+date: "2022-05-08T21:15:21+03:00"
+vid_date: "2022-01-30T17:28:56Z"
+duration: "PT12M32S"
+viewcount: "9993"
+likeCount: "453"
+dislikeCount: ""
+channel: "The Financial Controller"
+---
+{% raw %}In this video I show (by example) how to prepare the Cashflow Statement, the indirect method.<br /><br />-------------------------------------------------------------<br />Connect with me on Patreon (&amp; download all the templates in my videos):<br /><a rel="nofollow" target="blank" href="https://www.patreon.com/TheFinController">https://www.patreon.com/TheFinController</a><br />-------------------------------------------------------------<br />Get 30% off my Online Course on “Learn how to design and build KPIs and Financial Metrics for 2 example businesses”<br /><a rel="nofollow" target="blank" href="https://thefincontroller.com/p/learn-financial-metrics-kpis?coupon_code=LEARNKPIS30">https://thefincontroller.com/p/learn-financial-metrics-kpis?coupon_code=LEARNKPIS30</a><br /><br />🔥Enroll in my online course “Night Before the Accounting Interview Guide” including All Levels Q&amp;A🔥:<br /><a rel="nofollow" target="blank" href="https://thefincontroller.com/p/the-night-before-your-accounting-interview-course-for-all-levels">https://thefincontroller.com/p/the-night-before-your-accounting-interview-course-for-all-levels</a><br /><br />📈Get My “Controller KPI Dashboard” (Excel + Course) with the most important P&amp;L and Balance Sheet KPIs:<br />​<a rel="nofollow" target="blank" href="https://thefincontroller.com/p/controller-kpi-dashboard-one-kpi-dashboard-to-run-a-business​">https://thefincontroller.com/p/controller-kpi-dashboard-one-kpi-dashboard-to-run-a-business​</a><br /><br />---------------------------------------------------------------------<br />Hang Out with me on social media:<br />📸 <a rel="nofollow" target="blank" href="https://www.instagram.com/the_financial_controller/">https://www.instagram.com/the_financial_controller/</a><br />📱<a rel="nofollow" target="blank" href="https://www.tiktok.com/@thefinancialcontroller">https://www.tiktok.com/@thefinancialcontroller</a><br />🙋🏼‍♂️<a rel="nofollow" target="blank" href="https://www.facebook.com/groups/780732429036886/?source_id=101273467885666">https://www.facebook.com/groups/780732429036886/?source_id=101273467885666</a><br /><br /><br />DISCLAIMER: Links included in this description might be affiliate links. If you happen to purchase a product or service with the links that I provide I may receive a small commission. There is no additional charge to you! Thank you for supporting my channel so I can continue to provide you with free content each week!<br />All views expressed on my channel are mine alone. Not intended as financial or professional advice{% endraw %}
