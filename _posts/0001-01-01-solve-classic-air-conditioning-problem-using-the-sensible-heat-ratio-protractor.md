@@ -1,0 +1,15 @@
+---
+title: "Solve Classic Air Conditioning Problem Using the Sensible Heat Ratio Protractor"
+image: "https:\/\/i.ytimg.com\/vi\/mb5p55ruXeM\/hqdefault.jpg"
+vid_id: "mb5p55ruXeM"
+categories: "Education"
+tags: ["hvac","professional engineer","sensible heat ratio"]
+date: "2022-05-08T18:30:22+03:00"
+vid_date: "2019-02-19T15:30:00Z"
+duration: "PT5M58S"
+viewcount: "13975"
+likeCount: "196"
+dislikeCount: ""
+channel: "Mechanical PE Exam Prep"
+---
+{% raw %}ABOUT OUR CHANNEL<br />Our channel is about Sensible Heat Ratio Protractor.  today's video we have a classic air conditioning problem answering a common question how do you use the sensible heat ratio protractor.<br />Using the sensible heat ratio protractor a room has a sensible cooling load of 70,000 BTUs per hour and a latent cooling load of 30,000 BTUs per hour. The design room temperature is 75 degrees and 50 percent RH the outdoor ambient conditions are 90 degrees and 70 percent RH to satisfy the cooling load what should the wet bulb temperature of 30 500 CFM of air leaving the air handling unit be. Let's start by applying what we know about the room loaded. Since it was given as 70,000 sensible and 30,000 lying we can calculate the sensible heat ratio and then we will use the sensible heat ratio protractor to plot the air conditioning process line on the psychometric chart.<br /><br />Check out our channel here:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCI0twE6lRXqBhOcNPzy7o7A">https://www.youtube.com/channel/UCI0twE6lRXqBhOcNPzy7o7A</a><br />Don’t forget to subscribe!<br /><br />CHECK OUT OUR OTHER VIDEOS<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=XmFngBjHq8E&amp;list=PLZ-jikE98T4knjtwWZpf5cZ9-JVQRphBG">https://www.youtube.com/watch?v=XmFngBjHq8E&amp;list=PLZ-jikE98T4knjtwWZpf5cZ9-JVQRphBG</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=cxQc9BDp_gE">https://www.youtube.com/watch?v=cxQc9BDp_gE</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=cQaVZ9F2keM">https://www.youtube.com/watch?v=cQaVZ9F2keM</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=gqjuK0CmA1M">https://www.youtube.com/watch?v=gqjuK0CmA1M</a><br /><br />FIND US AT<br /><a rel="nofollow" target="blank" href="https://www.mechanicalpeexamprep.com/">https://www.mechanicalpeexamprep.com/</a><br /><br />FOLLOW US ON SOCIAL<br />GET IN TOUCH<br />Contact us on Dan@mechanicalPEexamprep.com<br /><br />Get updates on our Social Media Profiles!<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/MechanicalPEexamprep/">https://www.facebook.com/MechanicalPEexamprep/</a><br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCI0twE6lRXqBhOcNPzy7o7A/">https://www.youtube.com/channel/UCI0twE6lRXqBhOcNPzy7o7A/</a><br /><br />#MechanicalEngineeringProblems<br /># SensibleHeatRatioProtractor<br /># MechanicalPEExam<br /># WetBulbTemperature{% endraw %}
