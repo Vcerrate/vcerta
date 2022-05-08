@@ -1,0 +1,15 @@
+---
+title: "Google Ads Tutorial 2022 (AdWords) - Step-by-Step [COMPLETE Course]"
+image: "https:\/\/i.ytimg.com\/vi\/a-JmhK9nKJk\/hqdefault.jpg"
+vid_id: "a-JmhK9nKJk"
+categories: "Howto-Style"
+tags: ["adwords","google ads","google ads tutorial"]
+date: "2022-05-09T02:44:49+03:00"
+vid_date: "2021-01-08T20:22:51Z"
+duration: "PT1H1M"
+viewcount: "624242"
+likeCount: "29398"
+dislikeCount: ""
+channel: "Metics Media"
+---
+{% raw %}In this google ads tutorial for beginners you'll learn step-by-step how to run ads on google. This is a COMPLETE A-Z Google Ads Course designed to maximise your conversions while paying as little as possible for your clicks!<br /><br />👉 Best Online Marketing Tools ▶ <a rel="nofollow" target="blank" href="https://meticsmedia.com/tools">https://meticsmedia.com/tools</a><br />🔔 Subscribe to MeticsMedia ▶ <a rel="nofollow" target="blank" href="https://meticsmedia.com/subscribe">https://meticsmedia.com/subscribe</a> <br /><br />Conversion Tracking Tutorial ▶ <a rel="nofollow" target="blank" href="https://youtu.be/JJFgct02P7Y">https://youtu.be/JJFgct02P7Y</a><br /><br />A lot of the tactics I share here in this video I've learned from taking Charlie Brandt's eCom course. I'm am not affiliated with him but I highly recommend his youtube channel and course:<br />Charlie Brandt's Channel ▶ <a rel="nofollow" target="blank" href="https://www.youtube.com/c/CharlieBrandt-ecom">https://www.youtube.com/c/CharlieBrandt-ecom</a><br /><br />0:00 Why you NEED this video!<br />1:44 How Google Ads Work<br />8:07 Set Up Account<br />9:35 Account Structure<br />11:14 Campaign Settings<br />19:52 Bidding, Ad Rank &amp; Quality Score (important!)<br />28:55 Ad Extensions (Increase CTR!)<br />33:39 Ad Groups (best strategy)<br />35:33 Keyword Match Types<br />40:15 Ad Design<br />46:00 Negative Keywords (save money!)<br />50:31 Keyword Planner<br />52:57 Ad Optimization<br /><br />You're not only going to learn the basics of how to use google ads but I'll also show you a winning strategy to maximise your quality score so you get the best place in google search results and still pay less then the competition. Creating google ads that are as relevant as possible to the keywords you are targeting is the best strategy to earn money from google ads / google adwords.<br /><br />In this google ads tutorial you'll also learn how your google account is structured so that you can keep all your campaigns perfectly organized.<br /><br />You're going to learn exactly how bidding works on google ads and I'm going to show you a bidding strategy that I use to maximize profits on winning keywords and cut losses on non-profitable keywords.<br /><br />-<br /><br />The description of this video contains affiliate links, which means that if you buy one of the products that I recommend, I’ll receive a small commission without any additional cost for you. This helps support the channel and allows me to continue making videos like this. Thank you for your support!{% endraw %}
