@@ -1,0 +1,15 @@
+---
+title: "Start Catching MORE BASS Off The Bed With These 3 Tactics (The Bass Spawn)"
+image: "https:\/\/i.ytimg.com\/vi\/bihZA2kf6SA\/hqdefault.jpg"
+vid_id: "bihZA2kf6SA"
+categories: "Sports"
+tags: ["bed fishing","bed fishing for bass","fishing for spawning bass"]
+date: "2022-05-09T15:49:36+03:00"
+vid_date: "2021-04-01T21:30:05Z"
+duration: "PT13M1S"
+viewcount: "10679"
+likeCount: "349"
+dislikeCount: ""
+channel: "BassFishingHQ"
+---
+{% raw %}Bed fishing is something that comes around once a year that can be a really fun way to catch some giant bass. When the bass come up and spawn, you can actually catch them off their beds using these 3 tactics.<br /><br />BASS HAT: <a rel="nofollow" target="blank" href="https://finnfishing.com/products/bass-hat">https://finnfishing.com/products/bass-hat</a><br />INSTAGRAM: ty_berger<br /><br />Before you even start bed fishing the first thing you want to do is make sure a bass is catchable. A catchable bass will typically stay locked on it’s bed even when you are very close to the fish. Fish that move far off the bed and stay away from the bed for several minutes are typically not catchable and it is a waste of time to try and fish for them.<br /><br />After you establish that the bass is catchable, the first tactic you can use to catch that bass is to punch the bass. This is an aggressive way to agitate bass into biting your lure. <br /><br />You're going to pop your soft plastic lure into their face and into their tail of the bass. Eventually the bass is going to get frustrated and it will bite your soft plastic lure and you will be able to set the hook.<br /><br />Another tactic for catching spawning bass is to find the sweet spot on the bed. Every bed has a little sweet spot that a bass seems to be a little bit more protected of. <br /><br />Simply cast your soft plastic lure up to the bed and cover the entire bed until you find the area in which the bass does not want your lure. He will typically act a little more aggressive towards your lure when it is in the sweet spot. <br /><br />After you find the sweet spot you want to continue to keep your lure there as long as possible. Eventually the bass is going to pick up your bait and you can set the hook.<br /><br />The third tactic of bed fishing is to soak the bed. Some bass that may be catchable are still not going to act very aggressive towards your bait. They may move off the bed for a few seconds and then come back to it. <br /><br />In this case I like to stay as far away from the bed as possible and cast my soft plastic lure up to the bed and just let it soak there. As a bass moves around I slowly move my lure and eventually he just has to inspect it. Once he picks it up I set the hook.<br /><br />I hope these bed fishing tips will help you catch more spawning bass this year!<br /><br />BassFishingHQ is dedicated to teaching people how to catch more and bigger bass. I will go over different bass fishing tips &amp; techniques that will put more fish in the boat or on the shore. Whether you are just starting out or a seasoned tournament angler, my goal is to help you catch more bass.{% endraw %}
