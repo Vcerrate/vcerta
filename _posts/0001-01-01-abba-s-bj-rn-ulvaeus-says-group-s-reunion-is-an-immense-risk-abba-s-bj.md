@@ -1,0 +1,15 @@
+---
+title: "ABBA’s Björn Ulvaeus says group’s reunion is an “immense risk”"
+image: "https:\/\/i.ytimg.com\/vi\/dLYxaU-RHvg\/hqdefault.jpg"
+vid_id: "dLYxaU-RHvg"
+categories: "Gaming"
+tags: ["Arena","Frida","I Still Have Faith In You"]
+date: "2022-05-09T07:25:36+03:00"
+vid_date: "2022-05-02T12:34:31Z"
+duration: "PT2M23S"
+viewcount: "221"
+likeCount: "4"
+dislikeCount: ""
+channel: "Hip Hop World News"
+---
+{% raw %}ABBA’s Björn Ulvaeus has said that he thinks the legendary group’s comeback is an “immense risk”. The Swedish pop icons returned with their first album in 40 years, ‘Voyage’, last November and are due to present a string of “revolutionary” concerts at London’s Queen Elizabeth Olympic Park from May 27. ‘Voyage’ went Platinum within just the first month of its release, while ABBA also received their first-ever Grammy nomination; their single ‘I Still Have Faith In You’ was up for this year’s ‘Record Of The Year’ prize. Additionally, the long-awaited album reached Number One in the UK and became the fastest-selling vinyl of the century. Despite this success, Ulvaeus explained in a new interview with The Sunday Times that he does have some concerns about the group making a comeback after such a long absence from music. “It’s an immense risk and most people I talk to don’t appreciate that,” he said “They say, ‘Oh, it’ll be fine.’ Sometimes I wake up at four in the morning and think, ‘What the hell have we done? The upcoming ‘Voyage’ concerts will see a “digital” version of ABBA performing alongside a 10-piece live band (put together with the help of Klaxons’ James Righton and featuring Little Boots) at the new purpose-built 3,000-capacity venue called ABBA Arena. Last September, the event’s producers spoke to NME about what to expect from the “magical space circus” before the release of a dazzling official trailer. Ulvaeus told The Sunday Times that he expected other musicians to be watching closely. “Lots of artists are going to be studying us, definitely, he said. “I won’t name names, but I can think of a few. “I wonder who’s going to be first. I couldn’t possibly comment.” Anni-Frid Lyngstad, meanwhile, opened up about how ABBA sometimes felt like “prisoners” when touring previously: “Our situation was so odd. Not in the studio, which was our second home, but going on tour, where we were more or less prisoners in our hotel.” The singer – aka Frida – said last November that she’s “learnt to say ‘never say never'” in regards to future new music from ABBA. Her bandmate Benny Andersson previously explained that the group would retire after finishing the ‘Voyage’ live events. Speaking to NME about her involvement in the shows, Little Boots (aka Victoria Hesketh) said it had been “absolutely mind-blowing” to work with ABBA, who she’s always been a “mega-fan” of. “I’m a big disco fan so I’m glad that’s gone full circle to be recognised for its songwriting,” she explained. “ABBA are a legendary part of the fabric of our artistic history now.”{% endraw %}
