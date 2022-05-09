@@ -1,0 +1,15 @@
+---
+title: "LAST TO STOP EATING SPICY CHIPS w\/The Norris Nuts"
+image: "https:\/\/i.ytimg.com\/vi\/lznLm5l7YiA\/hqdefault.jpg"
+vid_id: "lznLm5l7YiA"
+categories: "People-Blogs"
+tags: ["norris nuts","family friendly","family vlog"]
+date: "2022-05-09T19:13:20+03:00"
+vid_date: "2022-05-07T08:30:06Z"
+duration: "PT26M45S"
+viewcount: "1276840"
+likeCount: "37196"
+dislikeCount: ""
+channel: "The Norris Nuts"
+---
+{% raw %}HELP US MATCH OUR DREAM OUTFITS UP <a rel="nofollow" target="blank" href="https://youtu.be/kKChVuANeds">https://youtu.be/kKChVuANeds</a><br />BIGGY'S SURPRISE HOLIDAY BIRTHDAY <a rel="nofollow" target="blank" href="https://youtu.be/W9LlVUpOLLI">https://youtu.be/W9LlVUpOLLI</a><br />WHO CAN EAT MOST FRIES <a rel="nofollow" target="blank" href="https://youtu.be/8laG-jfyTC8">https://youtu.be/8laG-jfyTC8</a><br /><br />If you liked this Spicy Chip video you may also like these other videos...<br />WHICH NORRIS NUT CAN TAKE BEST UNDERWATER PHOTO <a rel="nofollow" target="blank" href="https://youtu.be/YlNC5_pYgcw">https://youtu.be/YlNC5_pYgcw</a><br />WHO CAN EAT MOST CHICKEN NUGGETS <a rel="nofollow" target="blank" href="https://youtu.be/DtWpSMjP5N4">https://youtu.be/DtWpSMjP5N4</a><br />Our Latest challenges here <a rel="nofollow" target="blank" href="https://youtu.be/7VNvxbEN1sI">https://youtu.be/7VNvxbEN1sI</a> <br /><br />#familyvlog #challenge #norrisnuts<br />In this video we find out which Norris Nut can eat the most spicy chips. The chips that the Norris Nuts eat include Takis, Ghost Pepper chips, world's hottest corn chips and pringles hot chilli chips. Flamin Hot Doritos also feature. The Norris Nut who can eat the most Spicy Chips will will a prize of $1000 to spend on their dream holiday. <br /><br />Check out our other channels here <br />NORRIS NUTS GAMING <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSGAMING">http://bit.ly/NORRISNUTSGAMING</a><br />MAIN CHANNEL <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTS">http://bit.ly/NORRISNUTS</a><br />NORRIS NUTS DO STUFF <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSDOSTUFF">http://bit.ly/NORRISNUTSDOSTUFF</a><br />NORRIS NUTS COOKING <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSCOOKING">http://bit.ly/NORRISNUTSCOOKING</a><br />NORRIS NUTS CLIPS <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSCLIPS">http://bit.ly/NORRISNUTSCLIPS</a><br />NORRIS NUTS SQUAD (adventures) <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSSQUAD">http://bit.ly/NORRISNUTSSQUAD</a><br /><br />Our MOST POPULAR VIDEOS HERE <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL92HrKDrbQZ1ljDSJdh-sQb10oYb_OsoS">https://www.youtube.com/playlist?list=PL92HrKDrbQZ1ljDSJdh-sQb10oYb_OsoS</a><br /><br />*Comment on our Community Tab on the Channel Page<br /><br />MAKE CLOSED CAPTIONS (subtitles) in your language here <a rel="nofollow" target="blank" href="http://www.youtube.com/timedtext_cs_panel?c=UCYd0us2OtW4d4-1cfpT2ktw&amp;tab=2">http://www.youtube.com/timedtext_cs_panel?c=UCYd0us2OtW4d4-1cfpT2ktw&amp;tab=2</a>{% endraw %}
