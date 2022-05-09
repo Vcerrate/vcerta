@@ -1,0 +1,15 @@
+---
+title: "Jessica Baio - At Least [Lyrics]"
+image: "https:\/\/i.ytimg.com\/vi\/PmiPrsZ2V_8\/hqdefault.jpg"
+vid_id: "PmiPrsZ2V_8"
+categories: "Music"
+tags: ["Jessica","Least","[Lyrics]"]
+date: "2022-05-10T01:00:55+03:00"
+vid_date: "2022-05-09T02:14:24Z"
+duration: "PT2M48S"
+viewcount: "871"
+likeCount: "86"
+dislikeCount: ""
+channel: "Hey Stob It - Lyrics Videos"
+---
+{% raw %}*YOU CAN KNOW DO SONG REQUESTS...Click the Link Below*<br /><a rel="nofollow" target="blank" href="https://forms.gle/AJbnRLSQiwmNbXUk7">https://forms.gle/AJbnRLSQiwmNbXUk7</a><br /><br />Turn on notifications and never miss a video!<br /><br />Lyrics:<br /><br />Sometimes <br />I lose my composure<br />My thoughts are bipolar<br />Push you out, then pull you close<br />Inside <br />Are bottled up feelings<br />Silently screaming<br />But when I lose control<br /><br />You hold me in your arms and say<br />That everything will be ok<br />And when I'm left with nothing, babe<br />I know I still have everything<br />And they all say the spark will fade<br />But you still take my breath away<br /><br />When I'm hanging by a thread<br />Drawing my last breath<br />At least I'll share the air with you<br />(At least I'll share the air with you)<br />When the world's falling apart<br />And we're left in the dark<br />At least I'm holding onto you<br />(At least I'm holding onto you)<br />At least I'm holding onto you<br /><br />When you <br />Showed up for no reason<br />And said you're never leaving<br />Put your heart in a box<br />You said I could keep it<br />You're more steady than my shadow<br />You follow me and no matter how deep I go<br /><br />You take me by the hand and say<br />That we will always find a way<br />And even if the sun burned out<br />We'd build a shelter underground<br />And they all say the spark will fade<br />But you still take my breath away<br /><br />When I'm hanging by a thread<br />Drawing my last breath<br />At least I'll share the air with you<br />(At least I'll share the air with you)<br />When the world's falling apart<br />And we're left in the dark<br />At least I'm holding onto you<br />(At least I'm holding onto you)<br />At least I'm holding onto you<br />(At least I'm holding on)<br />(At least I'm holding on)<br />(At least I'm holding on)<br />At least I'm holding onto you<br />(At least I'm holding on)<br />(At least I'm holding on)<br />(At least I'm holding on)<br />(At least I'm holding on)<br />At least I'm holding onto you<br />(At least I'm holding on)<br />At least I'm holding onto you<br /><br />~There is no copyright infringement intended for the song or picture. If you have an issue with me posting a song or picture on this channel then please contact me via one of my social networks or YouTube private messaging system. Once I have received your message (and determined you are the proper owner of this content) I will have it removed, no drama at all. This channel is strictly for promotion towards the artists and their music, nothing else.~{% endraw %}
