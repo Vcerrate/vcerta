@@ -1,0 +1,15 @@
+---
+title: "Eating AS MANY CALORIES AS POSSIBLE For 8 HOURS!"
+image: "https:\/\/i.ytimg.com\/vi\/v72DOz_xFrY\/hqdefault.jpg"
+vid_id: "v72DOz_xFrY"
+categories: "Entertainment"
+tags: ["erik the electric","erik the electric calorie challenge","erik the electric as many calories as possible"]
+date: "2022-05-10T07:42:45+03:00"
+vid_date: "2022-05-08T19:00:28Z"
+duration: "PT23M53S"
+viewcount: "250395"
+likeCount: "19280"
+dislikeCount: ""
+channel: "ErikTheElectric"
+---
+{% raw %}Eating As Many Calories As Possible For 8 Hours! <br />Subscribe HERE: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/ErikTheElectric?sub_confirmation=1">https://www.youtube.com/c/ErikTheElectric?sub_confirmation=1</a> <br />ErikTheElectric Merch: <a rel="nofollow" target="blank" href="https://eriktheelectric.shop/">https://eriktheelectric.shop/</a><br /><br />#ErikTheElectric #AsManyCaloriesAsPossible #CalorieChallenge<br />In this challenge, I attempted to take down as many calories as possible in 8 hours. The only challenge I've ever done that was close to this one, happened during the 100k calorie challenge where I took down 34k calories in just over 6 hours. So I had a lot of work to do in this challenge! <br /><br />Second Channel: <a rel="nofollow" target="blank" href="https://YouTube.com/ElectricTalks">https://YouTube.com/ElectricTalks</a> <br />Follow “The Electrics” ► <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCXox6wBzzmTB61UHsQUVoMA">https://www.youtube.com/channel/UCXox6wBzzmTB61UHsQUVoMA</a><br />IG: <a rel="nofollow" target="blank" href="https://Instagram.com/ErikTheElectric">https://Instagram.com/ErikTheElectric</a> <br />FB: <a rel="nofollow" target="blank" href="https://Facebook.com/ErikTheElectric">https://Facebook.com/ErikTheElectric</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://Twitter.com/ErikTheElectric">https://Twitter.com/ErikTheElectric</a> <br />Twitch: <a rel="nofollow" target="blank" href="https://Twitch.tv/ErikTheElectric">https://Twitch.tv/ErikTheElectric</a> <br />Follow Me on Strava! <a rel="nofollow" target="blank" href="https://www.strava.com/athletes/702924">https://www.strava.com/athletes/702924</a><br /><br /><br /><br />Watch More Erik TheElectric:<br />Cheat Days: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLEutRp8s1YDjTOlEXWa-tCw9B2YphwzjO">https://youtube.com/playlist?list=PLEutRp8s1YDjTOlEXWa-tCw9B2YphwzjO</a><br />Restaurant Challenges: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLEutRp8s1YDg88pWYAlnX_tnpL9yvIhC5">https://youtube.com/playlist?list=PLEutRp8s1YDg88pWYAlnX_tnpL9yvIhC5</a><br />Popular Videos: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLEutRp8s1YDjcT2LlO0NA-_AjJ4ZLpUS2">https://www.youtube.com/playlist?list=PLEutRp8s1YDjcT2LlO0NA-_AjJ4ZLpUS2</a><br />Latest Uploads: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLEutRp8s1YDjjOfhb-poGHsykhkZyrEKw">https://www.youtube.com/playlist?list=PLEutRp8s1YDjjOfhb-poGHsykhkZyrEKw</a>{% endraw %}
