@@ -1,0 +1,15 @@
+---
+title: "DJI Air 2S Intelligent Flight Modes - Point of Interest, part of Focus Track"
+image: "https:\/\/i.ytimg.com\/vi\/-HH0q8jIn5Y\/hqdefault.jpg"
+vid_id: "-HH0q8jIn5Y"
+categories: "Science-Technology"
+tags: ["DJI Air 2S Intelligent Flight Modes","DJI Air 2S Intelligent Flight Modes - Point of Interest","Air 2S Intelligent Flight Modes"]
+date: "2022-05-10T14:36:30+03:00"
+vid_date: "2021-06-23T13:31:28Z"
+duration: "PT9M49S"
+viewcount: "9132"
+likeCount: "288"
+dislikeCount: ""
+channel: "VIC VideopIC"
+---
+{% raw %}An in-depth analysis of Point of Interest, the flight mode based on circling around a target. I will show many different ways to use this mode, including one to simulate some moves normally performed using Waypoints. DJI Air 2S Intelligent Flight Modes - Point of Interest, part of Focus Track, together with Active Track and Spotlight. <br /><br />DJI Mavic 3: <a rel="nofollow" target="blank" href="https://amzn.to/3smh1ce">https://amzn.to/3smh1ce</a><br />ND filters for Mavic 3: <a rel="nofollow" target="blank" href="https://amzn.to/3IG2jCJ">https://amzn.to/3IG2jCJ</a><br />DJI Air 2S: <a rel="nofollow" target="blank" href="https://amzn.to/3sofT7S">https://amzn.to/3sofT7S</a> <br />ND filters for Air 2S: <a rel="nofollow" target="blank" href="https://amzn.to/3sxQRDz">https://amzn.to/3sxQRDz</a><br />DJI Mini 2: <a rel="nofollow" target="blank" href="https://amzn.to/3M3SL6u">https://amzn.to/3M3SL6u</a><br />ND filters for Mini 2: <a rel="nofollow" target="blank" href="https://amzn.to/3tfkF6O">https://amzn.to/3tfkF6O</a><br />DJI Mini SE: <a rel="nofollow" target="blank" href="https://amzn.to/3sonCTx">https://amzn.to/3sonCTx</a><br />DJI RC Pro for Mavic 3, Air 2S: <a rel="nofollow" target="blank" href="https://amzn.to/3IqfCHf">https://amzn.to/3IqfCHf</a><br />As an Amazon Associate I earn from qualifying purchases.<br /><br />On1 Photo RAW: my photo editing and video organizing software: <a rel="nofollow" target="blank" href="https://www.on1.com/affiliates/idevaffiliate.php?id=1161">https://www.on1.com/affiliates/idevaffiliate.php?id=1161</a> <br />Coupon Code: VICVP15 for 15% discount on price<br /><br />Neat Video, best denoiser for video: <a rel="nofollow" target="blank" href="https://www.neatvideo.com/?linkID=p7938">https://www.neatvideo.com/?linkID=p7938</a><br /><br />My favorite action and 360° camera: Insta360 ONE R Twin Edition and 1 Inch:<br />Specs and prices <a rel="nofollow" target="blank" href="https://www.insta360.com/sal/one_r?insrc=INRYD2I">https://www.insta360.com/sal/one_r?insrc=INRYD2I</a><br />Accessories <a rel="nofollow" target="blank" href="https://store.insta360.com/accessory?insrc=INRYD2I">https://store.insta360.com/accessory?insrc=INRYD2I</a><br /><br />My other videos about the Air 2S: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLEyQax84hJ23MJ44RHN_JPdUosUqSa967">https://www.youtube.com/playlist?list=PLEyQax84hJ23MJ44RHN_JPdUosUqSa967</a><br /><br />00:00 Intro<br />00:47 Settings<br />04:05 Circling<br />06.03 Circle while zooming<br />06:54 Waypoints<br />08:35 Tracking{% endraw %}
