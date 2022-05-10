@@ -1,0 +1,15 @@
+---
+title: "Bitten by 1000 Deadly Mosquitoes!"
+image: "https:\/\/i.ytimg.com\/vi\/CvrvJAd-20Y\/hqdefault.jpg"
+vid_id: "CvrvJAd-20Y"
+categories: "Pets-Animals"
+tags: ["brave wilderness","mosquitoes","mosquito bites"]
+date: "2022-05-10T05:23:39+03:00"
+vid_date: "2022-05-07T13:00:35Z"
+duration: "PT10M2S"
+viewcount: "383807"
+likeCount: "21462"
+dislikeCount: ""
+channel: "Brave Wilderness"
+---
+{% raw %}This episode is sponsored by Chiggerex.<br /><br />In this episode, Coyote’s eaten alive by the world’s deadliest animal: the mosquito. Mosquito bites can leave behind much more than an itchy, swollen welt. These bloodsucking insects carry diseases responsible for more than 1,000,000 deaths each and every year. Is Coyote any match for 1000 of these notorious parasites? It’s time to put his forearm to the test.<br /><br />At Brave Wilderness, when it comes to quickly soothing our itchy painful bug bites, nothing beats Chiggerex. For over 50 years, their unique formula with active ingredient benzocaine, soothing aloe vera and red-reducing chamomile has helped generations of people find relief. For more information on Chiggerex and where to find it visit <a rel="nofollow" target="blank" href="https://chiggerex.com/.">https://chiggerex.com/.</a><br /><br />Special thanks to the Florida Keys Mosquito Control District.<br /><br />Brave Wilderness merch!  -  <a rel="nofollow" target="blank" href="http://bit.ly/SHOPBW ">http://bit.ly/SHOPBW </a> <br />Support our mission!  - <a rel="nofollow" target="blank" href="http://bit.ly/bravecrewofficial  ">http://bit.ly/bravecrewofficial  </a> <br />  <br />The Brave Wilderness Channel is your one stop connection to a wild world of adventure and up-close animal encounters. SUBSCRIBE NOW and join the crew that brings you closer to the most beloved, bizarre and misunderstood creatures on Earth!   <br /> <br />See what Coyote is up to:<br />Coyote Peterson on Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/COYOTEPETERSON">https://instagram.com/COYOTEPETERSON</a>  <br />Coyote Peterson on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/CoyotePeterson">https://www.facebook.com/CoyotePeterson</a>  <br />Coyote Peterson on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/COYOTEPETERSON">https://twitter.com/COYOTEPETERSON</a> <br />  <br />PLEASE DO NOT ATTEMPT TO REENACT OR RECREATE ANY EVENTS OR SCENES  FROM OUR VIDEOS. THE ANIMALS, INSECTS, PLANT LIFE, AND TERRAIN FEATURED IN  OUR VIDEOS CAN BE DANGEROUS AND CAN POSE A SIGNIFICANT RISK OF INJURY OR  DEATH. The Brave Wilderness hosts and crew are professionally trained and routinely  receive assistance from wildlife experts, guides, and safety personnel when filming to  ensure the safety of our crew and all wildlife. No animals were harmed or removed from  their natural habitat while making this video. Brave Wilderness has obtained permission  to film in each location featured in this video.{% endraw %}
