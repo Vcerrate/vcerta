@@ -1,0 +1,15 @@
+---
+title: "Reacting to REALLY GOOD Lesbian Thirst Traps on Tik Tok"
+image: "https:\/\/i.ytimg.com\/vi\/YwO4-9-Nel0\/hqdefault.jpg"
+vid_id: "YwO4-9-Nel0"
+categories: "Entertainment"
+tags: ["reacting to lesbian thirst traps","reacting to actually good lesbian thirst traps","reacting to tik tok"]
+date: "2022-05-11T16:44:33+03:00"
+vid_date: "2022-05-06T07:02:01Z"
+duration: "PT10M"
+viewcount: "35357"
+likeCount: "3906"
+dislikeCount: ""
+channel: "Brianne Worth"
+---
+{% raw %}Strap yourselves in for this one ladies 🔥 Check out my clothing brand <a rel="nofollow" target="blank" href="http://riftsupplyco.com/">http://riftsupplyco.com/</a><br />FOLLOW ME (if ya want)<br />INSTAGRAM • <a rel="nofollow" target="blank" href="http://instagram.com/brianneworth">http://instagram.com/brianneworth</a><br />TIK TOK: <a rel="nofollow" target="blank" href="https://vm.tiktok.com/Vv5QsB/">https://vm.tiktok.com/Vv5QsB/</a><br />TWITTER • <a rel="nofollow" target="blank" href="https://www.twitter.com/brianneworth">https://www.twitter.com/brianneworth</a><br />SPOTIFY: <a rel="nofollow" target="blank" href="https://open.spotify.com/user/1242201259">https://open.spotify.com/user/1242201259</a><br /><br />RIFT SUPPLY CO / MY CLOTHING BRAND<br />STORE: <a rel="nofollow" target="blank" href="http://riftsupplyco.com/">http://riftsupplyco.com/</a><br />INSTAGRAM: <a rel="nofollow" target="blank" href="http://instagram.com/riftsupplyco">http://instagram.com/riftsupplyco</a><br />FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/RiftSupplyCo">https://www.facebook.com/RiftSupplyCo</a><br /><br />This video idea came from Alayna Joy, who got the idea from Jade Fox. Check out their videos!<br />Jade Fox: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=xnlAzHcZYK8&amp;ab_channel=JADEFOX">https://www.youtube.com/watch?v=xnlAzHcZYK8&amp;ab_channel=JADEFOX</a><br />Alayna Joy: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=_zifSi2BHw4&amp;ab_channel=AlaynaJoy">https://www.youtube.com/watch?v=_zifSi2BHw4&amp;ab_channel=AlaynaJoy</a><br /><br />Become a member of my channel and join The Inner Circle: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCu5kDNnaotVbtpXRch5K83Q/join">https://www.youtube.com/channel/UCu5kDNnaotVbtpXRch5K83Q/join</a><br /><br />You'll get access to priority member shoutouts in videos, random giveaways, discounts and freebies from Rift Supply Co, custom shoutout messages in videos, priority comment replies, a separate member's section of the community tab, where I will be replying to all comments, questions and suggestions, custom emojis to use in comments and custom member badges that upgrade the longer you are a member!<br /><br />Music Used:<br />Watch Me - Jaden Smith<br /><br />If you're this far down, my name is Brianne and I'm an Australian who makes a bit of everything whether it's lifestyle vlogs, reddit videos, ex-employee videos reaction videos or anything else that pops into my head. This time we're reacting to actually good lesbian thirst traps on tik tok{% endraw %}
