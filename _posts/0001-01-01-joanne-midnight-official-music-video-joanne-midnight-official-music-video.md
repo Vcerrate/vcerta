@@ -1,0 +1,15 @@
+---
+title: "Joanne - Midnight (Official Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/EZFmC_Yx_C8\/hqdefault.jpg"
+vid_id: "EZFmC_Yx_C8"
+categories: "Music"
+tags: ["Joanne","Midnight","Twist in my sobriety"]
+date: "2022-05-11T04:09:49+03:00"
+vid_date: "2022-02-03T22:00:11Z"
+duration: "PT2M45S"
+viewcount: "70074"
+likeCount: "987"
+dislikeCount: ""
+channel: "Joanne"
+---
+{% raw %}Joanne - Midnight (Official Music Video)<br />Buy/stream it: <a rel="nofollow" target="blank" href="https://Joanne.lnk.to/MidnightID">https://Joanne.lnk.to/MidnightID</a><br /><br />Μουσική: Arcade⚡️, Michael Tsaousopoulos<br />Στίχοι: Arcade⚡<br /><br />Σκηνοθεσία: Γιάννης Παπαδάκος <br />Οργάνωση Παραγωγής: Ju Stamatakis <br /><br />Gaffer: Σταύρος Παπαδόπουλος <br />Styling: Γιάννης Τραβας<br />Makeup: Αλιάννα Καντερέ<br />Βοηθός Παραγωγής: Μάνος Ρέππας<br /><br />Powered by Laloo Cosmetics<br />#laloonails #laloocosmetics<br /><br />Lyrics:<br />Never ending morning<br />Everyday feels like forever<br />But when the sun goes down<br />We gonna taste the dark together<br /> <br />Kisses on the neck<br />And getting lost<br />Endless car rides riding<br />Down the coast<br /> <br />It feels so much better<br />It feels so much better<br />In the midnight<br />Midnight<br /> <br />Midnight nanaram<br />In the midnight nanaram<br />You give me love love love<br /> <br />Midnight nanaram<br />In the midnight nanaram<br />You give me love love love<br /> <br />Oh oh yeah<br />You give me love love love<br />Oh oh yeah<br /> <br />Working nine to five<br />Every minute last forever<br />But when the sun goes down<br />We gonna taste the dark together<br /> <br />Speeding one way streets<br />At any cost<br />Burning every bridge we<br />Ever crossed<br /> <br />It feels so much better<br />It feels so much better<br />In the midnight<br />Midnight<br /><br />Midnight nanaram<br />In the midnight nanaram<br />You give me love love love<br /> <br />Midnight nanaram<br />In the midnight nanaram<br />You give me love love love<br /> <br />Oh oh yeah<br />You give me love love love<br />Oh oh yeah<br /><br />Ακολουθήστε τη #joanne στα Social Media:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/its._joanne">https://www.instagram.com/its._joanne</a><br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/75z1OhYtUgB075L3zyMfFH?si=020KTDruR1GtgwMEz9cwbg&amp;dl_branch=1">https://open.spotify.com/artist/75z1OhYtUgB075L3zyMfFH?si=020KTDruR1GtgwMEz9cwbg&amp;dl_branch=1</a><br />TikTok: <a rel="nofollow" target="blank" href="https://vm.tiktok.com/ZMLFAmcpf/">https://vm.tiktok.com/ZMLFAmcpf/</a><br /><br />MINOS EMI - A Universal Music Company<br />▶ Facebook: <a rel="nofollow" target="blank" href="http://bit.ly/MinosEmiFacebook">http://bit.ly/MinosEmiFacebook</a> <br />▶ Instagram: <a rel="nofollow" target="blank" href="http://bit.ly/InstagramMinosEMI_">http://bit.ly/InstagramMinosEMI_</a><br />▶ YouTube Channel: <a rel="nofollow" target="blank" href="http://bit.ly/MinosEmiYouTube">http://bit.ly/MinosEmiYouTube</a>{% endraw %}
