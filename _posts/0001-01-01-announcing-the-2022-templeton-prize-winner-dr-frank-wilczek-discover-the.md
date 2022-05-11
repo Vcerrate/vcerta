@@ -1,0 +1,15 @@
+---
+title: "Announcing the 2022 Templeton Prize Winner: Dr. Frank Wilczek"
+image: "https:\/\/i.ytimg.com\/vi\/k0f9Ca1qeK8\/hqdefault.jpg"
+vid_id: "k0f9Ca1qeK8"
+categories: "Education"
+tags: ["Announcing","Templeton","Prize"]
+date: "2022-05-11T23:53:45+03:00"
+vid_date: "2022-05-11T10:45:02Z"
+duration: "PT4M45S"
+viewcount: "959"
+likeCount: "65"
+dislikeCount: ""
+channel: "Templeton Prize"
+---
+{% raw %}Discover the inspiring work and profound legacy of 2022 Templeton Prize Laureate, Dr. Frank Wilczek. A Nobel Prize-winning theoretical physicist and author, Dr. Wilczek's boundary-pushing investigations into the fundamental laws of nature have transformed our understanding of the forces that govern our universe. He's also celebrated for establishing the theoretical description of one of the four fundamental forces in nature and proposing a leading explanation for dark matter. Learn more about Dr. Wilczek's ongoing work and legacy at <a rel="nofollow" target="blank" href="https://www.templetonprize.org/2022">https://www.templetonprize.org/2022</a> <br /><br />»Subscribe here:  <a rel="nofollow" target="blank" href="https://www.youtube.com/user/Templeto...">https://www.youtube.com/user/Templeto...</a> <br /><br />Ever since Mother Teresa won the first Templeton Prize in 1973, our mission has been to recognize individuals who have shed light on the deepest and most perplexing questions of the universe, and humanity’s place and purpose within it. By elevating the Prize Laureates and their unique contributions to the world, we hope to inspire and to empower people across the globe to create lives of purpose and meaning. <br /><br />Jane Goodall, Francis Collins, Dame Cicely Saunders, the Dalai Lama, and Archbishop Desmond Tutu are among the many well-deserving and world-changing recipients of the Templeton Prize. You can read more about the history of the Templeton Prize, browse past winners, and sign up for email at: www.templetonprize.org <br /><br /><br />Follow the Templeton Prize: <br />Website. <a rel="nofollow" target="blank" href="https://www.templetonprize.org">https://www.templetonprize.org</a>  <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/templetonprize">https://twitter.com/templetonprize</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/TheTempleton...">https://www.facebook.com/TheTempleton...</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/templetonprize">https://www.instagram.com/templetonprize</a><br /><br />Learn more about the organizations that support the Templeton Prize: <br /><br />John Templeton Foundation: <a rel="nofollow" target="blank" href="https://www.templeton.org/">https://www.templeton.org/</a> <br />Templeton World Charity Foundation: <a rel="nofollow" target="blank" href="https://www.templetonworldcharity.org/">https://www.templetonworldcharity.org/</a> <br />Templeton Religion Trust: <a rel="nofollow" target="blank" href="https://templetonreligiontrust.org/">https://templetonreligiontrust.org/</a>{% endraw %}
