@@ -1,0 +1,15 @@
+---
+title: "How A Talented Actor Can Be A Problem For A Director by Mark W. Travis & Michael Hauge"
+image: "https:\/\/i.ytimg.com\/vi\/tqAOABBnySY\/hqdefault.jpg"
+vid_id: "tqAOABBnySY"
+categories: "Film-Animation"
+tags: ["michael hauge","mark travis","mark w travis"]
+date: "2022-05-13T00:26:34+03:00"
+vid_date: "2014-06-13T07:31:50Z"
+duration: "PT8M53S"
+viewcount: "11587"
+likeCount: "382"
+dislikeCount: ""
+channel: "Film Courage"
+---
+{% raw %}BUY MARK W. TRAVIS’ BOOK - DIRECTING FEATURE FILMS:<br />The Creative Collaboration Between Director, Writers, and Actors<br /><a rel="nofollow" target="blank" href="http://amzn.to/1CutPIY">http://amzn.to/1CutPIY</a><br /><br />BUY MICHAEL HAUGE’S BOOK - WRITING SCREENPLAYS THAT SELL, NEW TWENTIETH ANNIVERSARY EDITION: The Complete Guide To Turning Story Concepts Into Movie and Television Deals<br /><a rel="nofollow" target="blank" href="http://amzn.to/1zV8ifp">http://amzn.to/1zV8ifp</a><br /><br />FULL INTERVIEW WITH MICHAEL HAUGE &amp; MARK W. TRAVIS (PART 1)<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=AdkmZHbx4oM">https://www.youtube.com/watch?v=AdkmZHbx4oM</a><br /><br />FULL INTERVIEW WITH MICHAEL HAUGE &amp; MARK W. TRAVIS (PART 2)<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=mfZv4O2PyZE">https://www.youtube.com/watch?v=mfZv4O2PyZE</a><br /><br />CONNECT WITH MICHAEL HAUGE<br /><a rel="nofollow" target="blank" href="http://www.storymastery.com">http://www.storymastery.com</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/michael_hauge">https://twitter.com/michael_hauge</a><br /><br />CONNECT WITH MARK W. TRAVIS<br /><a rel="nofollow" target="blank" href="http://www.markwtravis.com">http://www.markwtravis.com</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/markwtravistechnique">https://www.facebook.com/markwtravistechnique</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/MarkWTravis">https://twitter.com/MarkWTravis</a><br /><br />CONNECT WITH US<br /><a rel="nofollow" target="blank" href="http://www.FilmCourage.com">http://www.FilmCourage.com</a><br /><a rel="nofollow" target="blank" href="http://twitter.com/#!/FilmCourage">http://twitter.com/#!/FilmCourage</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/filmcourage">https://www.facebook.com/filmcourage</a><br /><a rel="nofollow" target="blank" href="http://filmcourage.tumblr.com">http://filmcourage.tumblr.com</a><br /><a rel="nofollow" target="blank" href="http://pinterest.com/filmcourage">http://pinterest.com/filmcourage</a><br /><br />SUBSCRIBE TO OUR FILM COURAGE YOUTUBE CHANNEL<br /><a rel="nofollow" target="blank" href="http://bit.ly/18DPN37">http://bit.ly/18DPN37</a><br /><br />PROMOTE YOUR WORK ON FILM COURAGE<br /><a rel="nofollow" target="blank" href="http://bit.ly/1nnJkgm">http://bit.ly/1nnJkgm</a><br /><br />SUPPORT FILM COURAGE<br /><a rel="nofollow" target="blank" href="http://www.patreon.com/filmcourage">http://www.patreon.com/filmcourage</a><br /><br />#filmmaking #filmmaking101 #film{% endraw %}
