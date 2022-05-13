@@ -1,0 +1,15 @@
+---
+title: "We Could Kick-Start Life on Other Planets. Should We? | Betül Kaçar | TED"
+image: "https:\/\/i.ytimg.com\/vi\/fCllxq6NZbk\/hqdefault.jpg"
+vid_id: "fCllxq6NZbk"
+categories: "Science-Technology"
+tags: ["TEDTalk","TEDTalks","TED Talk"]
+date: "2022-05-13T04:01:46+03:00"
+vid_date: "2022-05-12T11:00:51Z"
+duration: "PT10M56S"
+viewcount: "22549"
+likeCount: "747"
+dislikeCount: ""
+channel: "TED"
+---
+{% raw %}&quot;Life makes our planet an incredibly exotic place compared to the rest of the known universe,&quot; says astrobiologist Betül Kaçar, whose research uses statistics and mathematical models to simulate ancient environments and gather insights into the origins of existence. In this fascinating talk, she explores how a deeper understanding of chemistry could lead to the &quot;secret sauce&quot; for sparking life on other planets -- and asks us to ponder an important question: If we could kickstart life in the universe, should we?<br /><br />If you love watching TED Talks like this one, become a TED Member to support our mission of spreading ideas: <a rel="nofollow" target="blank" href="http://ted.com/membership">http://ted.com/membership</a><br /><br />Follow TED! <br />Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/TEDTalks">http://twitter.com/TEDTalks</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/ted">https://www.instagram.com/ted</a><br />Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/TED">http://facebook.com/TED</a><br />LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/company/ted-conferences">https://www.linkedin.com/company/ted-conferences</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@tedtoks">https://www.tiktok.com/@tedtoks</a><br /><br />The TED Talks channel features talks, performances and original series from the world's leading thinkers and doers. Subscribe to our channel for videos on Technology, Entertainment and Design — plus science, business, global issues, the arts and more. Visit <a rel="nofollow" target="blank" href="http://TED.com">http://TED.com</a> to get our entire library of TED Talks, transcripts, translations, personalized talk recommendations and more.<br /><br />Watch more: go.ted.com/betulkacar<br /><br /><a rel="nofollow" target="blank" href="https://youtu.be/fCllxq6NZbk">https://youtu.be/fCllxq6NZbk</a><br /><br />TED's videos may be used for non-commercial purposes under a Creative Commons License, Attribution–Non Commercial–No Derivatives (or the CC BY – NC – ND 4.0 International) and in accordance with our TED Talks Usage Policy (<a rel="nofollow" target="blank" href="https://www.ted.com/about/our-organization/our-policies-terms/ted-talks-usage-policy).">https://www.ted.com/about/our-organization/our-policies-terms/ted-talks-usage-policy).</a> For more information on using TED for commercial purposes (e.g. employee learning, in a film or online course), please submit a Media Request at <a rel="nofollow" target="blank" href="https://media-requests.ted.com">https://media-requests.ted.com</a>{% endraw %}
