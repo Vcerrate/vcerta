@@ -1,0 +1,15 @@
+---
+title: "3One - Worth It (Official Video)"
+image: "https:\/\/i.ytimg.com\/vi\/kjMQMNMGpkY\/hqdefault.jpg"
+vid_id: "kjMQMNMGpkY"
+categories: "People-Blogs"
+tags: ["Worth","(Official","Video)"]
+date: "2022-05-13T11:15:59+03:00"
+vid_date: "2022-01-02T20:00:12Z"
+duration: "PT2M35S"
+viewcount: "937992"
+likeCount: "20645"
+dislikeCount: ""
+channel: "3one"
+---
+{% raw %}Production: orio.prod<br />Video: Kunography<br /><br />Socials: <a rel="nofollow" target="blank" href="https://www.instagram.com/3oneuk/?hl=en">https://www.instagram.com/3oneuk/?hl=en</a><br /><br />I know you like it when I play <br />Don’t distract me from making money I gotta chase <br />If I’m shooting shots at the target I’m hitting brains <br />Cleaning large amounts <br />I laugh when I’m hearing minimum wage <br /><br />They use to curve me now I curve them when I’m in a wraith <br />A dirty games is what I’m playing so I can’t complain <br />Looking at the stars and deeping life expressing all this pain <br />Keeping it 100 ain’t the type too change for any change <br /><br />Can’t be entertaining broke ni***s <br />Cause broke ni***s fake a lifestyle that they ain’t living <br />What’s the point of living if you can’t impress and maintain<br />My main ting had to mute her on the main page <br /><br />Really out here trynna deep life <br />Eat right <br />Took the Bally off so I ain’t hiding shit in disguise <br />Everybody screaming out my name there saying this guy <br />Is so hard I gotta replay him 10x <br /><br />Show me baby that your worth it <br />Being worth it can really buy you a Birkin <br />Crocodile skin 50 bags and it’s curtains all you gotta worry bout is my love that your hurting 2x<br /><br />Like my flows <br />Two step in the club and let them know it’s my show <br />The way they memorise my songs <br />It’s like I don’t know <br />I don’t wanna go home <br />wanna work all night no sleep <br />That’s how it goes <br />Want me to come and pull up on you <br />Late nights I’m out here missing all you phone calls <br />Switch sims for all the times that you simp for me <br />In the studio cooking up making harmonies <br /><br />Make it hard to believe that baby I want you <br />Guess I lied but with love you’ll never know the truth <br />Even with these Cartier frames the pain looking at <br />Crazy how I’m seeing red man rest in peace to Nipsey blue <br /><br />Life’s like a circle and I think I found pieces <br />My Akhi spitting truth so man I had to deep it <br />But when you got it and you had it ain’t the same thing <br />There’s niggas out here plotting saying man we gotta break him <br /><br />When I know <br />And you know there’s ni***s out here killing ni***s therefore <br />I gotta buy a gun before a yard man fuck a regret <br />Trynna put a motherfucker down <br />Man fuck a reject <br /><br />Show me baby that your worth it <br />Being worth it can really buy you a Birkin <br />Crocodile skin 50 bags and it’s curtains all you gotta worry bout is my love that your hurting 2x{% endraw %}
