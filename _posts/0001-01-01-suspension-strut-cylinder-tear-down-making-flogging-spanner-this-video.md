@@ -1,0 +1,15 @@
+---
+title: "Suspension Strut Cylinder Tear Down | Making Flogging Spanner"
+image: "https:\/\/i.ytimg.com\/vi\/Tn6Ll6hKMQw\/hqdefault.jpg"
+vid_id: "Tn6Ll6hKMQw"
+categories: "Science-Technology"
+tags: ["cutting edge engineering australia","machinist in australia","machininst"]
+date: "2022-05-13T12:49:16+03:00"
+vid_date: "2022-05-13T07:00:15Z"
+duration: "PT38M21S"
+viewcount: "20090"
+likeCount: "2983"
+dislikeCount: ""
+channel: "Cutting Edge Engineering Australia"
+---
+{% raw %}This video is a job we did to tear-down, disassemble &amp; reassemble a hydraulic cylinder for a Caterpillar 740 Articulated Dump Truck. This is the front suspension strut cylinder on the truck, the cylinder is bypassing and the seals on the cylinder gland are destroyed. This shows the step by step process to disassemble and tear-down the cylinder, install a new seal kit and reassemble the cylinder. First we use our 150T Hydraulic Press to help with the disassembly and tear-down of the cylinder. We also need to fabricate flogging spanners to remove the gland and 4&quot; inch nut from the cylinder. We clean and inspect all the components before installing a new seal kit and re-assembling the hydraulic cylinder in our press.<br /><br />DONATE TO QLD STAFFY RESCUE: <a rel="nofollow" target="blank" href="https://www.qldstaffyandamstaffrescue.org.au/">https://www.qldstaffyandamstaffrescue.org.au/</a><br /><br />Join our channel:<br />We upload new videos every Friday at 5pm AEST! If you want to see more of our videos click LIKE &amp; SUBSCRIBE! You can subscribe to our channel here: <a rel="nofollow" target="blank" href="https://bit.ly/ceesubscribe">https://bit.ly/ceesubscribe</a> <br /><br />To see more follow us on online here: <br />TikTok: <a rel="nofollow" target="blank" href="https://vt.tiktok.com/ZSdHhtN4h/">https://vt.tiktok.com/ZSdHhtN4h/</a><br />Instagram <a rel="nofollow" target="blank" href="https://instagram.com/cutting_edge_engineering">https://instagram.com/cutting_edge_engineering</a> <br />Facebook <a rel="nofollow" target="blank" href="https://www.facebook.com/cuttingedgeengineeringaustralia/">https://www.facebook.com/cuttingedgeengineeringaustralia/</a> <br /><br />Official CEE Merch shop: <a rel="nofollow" target="blank" href="https://www.ceeshop.com.au">https://www.ceeshop.com.au</a><br /><br />About Us:<br />Our channel is all about showing you real life machining work from our workshop on the Gold Coast Australia. We specialize in manual machining, hydraulic repairs and heavy fabrication for the earth moving, mining and civil construction industries. So if you're a machinist that wants to see some big gear in action be sure to subscribe to our channel right now. We upload new videos every week that show lathe machining, milling, welding and all the good stuff that comes from a machining workshop. If that sounds like something that you would enjoy seeing, then make sure to join us by subscribing! <br /><br />Music: <a rel="nofollow" target="blank" href="https://www.epidemicsound.com/referral/rccrvr/">https://www.epidemicsound.com/referral/rccrvr/</a><br /><br />#australianmachinist #machineshop #machinist{% endraw %}
