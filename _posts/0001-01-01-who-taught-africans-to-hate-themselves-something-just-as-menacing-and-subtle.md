@@ -1,0 +1,15 @@
+---
+title: "Who Taught Africans To Hate Themselves?"
+image: "https:\/\/i.ytimg.com\/vi\/8fxvyLX0kJc\/hqdefault.jpg"
+vid_id: "8fxvyLX0kJc"
+categories: "Education"
+tags: ["Taught","Africans","Themselves?"]
+date: "2022-05-13T03:18:45+03:00"
+vid_date: "2022-05-12T16:03:01Z"
+duration: "PT12M57S"
+viewcount: "1855"
+likeCount: "227"
+dislikeCount: ""
+channel: "Risen Africa"
+---
+{% raw %}Something just as menacing and subtle as racism, Colorism, literally meaning discrimination against dark-skinned people in favor of those with lighter skin typically among individuals within the same race or ethnic group.. It does not revolve around skin color per se but on the basis of how dark one is comparatively.<br /><br />It bears acknowledging that colorism is a seed that was planted by white supremacy. For centuries images of darker shades of skin as undesirable, ugly, dangerous,  and criminal have been produced and reproduced so much that Africans themselves have bought into the propaganda and idolization of whiteness that exalts the phrase white is right, that's right, white is right.  The story of colorism can be traced back to slavery. The mass rape of African slave females by white male slave masters gave birth to a variety of mixed-race slave children. These mixed-race slaves were  related to the slave masters and had more Caucasian features, and were given preferential treatment and allowed to work inside the house, doing less strenuous work, as opposed to the darker skinned slaves that had to work out in the fields, doing more laborious work. This how the distinction was created in what was then called the house negro and the field negro.<br /><br />The thing is, though, even within the black community globally,  black people to this day use skin tone and facial features to discriminate against each other. In many countries in the global South, mostly Africa, where white people are a minority, colorism is still present as a vestige of colonialism, and people with lighter skin tones benefit from preferential treatment in education, employment and media representation. This is observed in many African countries, where governments struggle to regulate the sale of dangerous skin-lightening products otherwise known as skin bleaching. A new skin-bleaching treatment that is catching on is the intravenous application of glutathione, trying to appeal to pregnant women aiming to lighten the skins of their babies, while still in the womb, before they are born. The World Health Organization warns that skin bleaching can cause liver and kidney damage, psychosis, brain damage in fetuses and cancer. But astonishing as it sounds, since whiteness has been elevated and presented as a universal standard of beauty and progress, the data shows the situation is getting worse. <br /><br />Support us on Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/risenafrica">https://www.patreon.com/risenafrica</a><br /><br />Stay tuned and remember to subscribe{% endraw %}
