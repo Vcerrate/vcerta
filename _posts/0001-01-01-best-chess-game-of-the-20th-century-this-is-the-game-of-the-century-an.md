@@ -1,0 +1,15 @@
+---
+title: "Best Chess Game Of The 20th Century"
+image: "https:\/\/i.ytimg.com\/vi\/MRoTJntvv_8\/hqdefault.jpg"
+vid_id: "MRoTJntvv_8"
+categories: "Gaming"
+tags: ["gothamchess","gothamchess london","gothamchess caro kann"]
+date: "2022-05-13T18:07:01+03:00"
+vid_date: "2021-03-23T21:15:01Z"
+duration: "PT16M30S"
+viewcount: "1003337"
+likeCount: "41909"
+dislikeCount: ""
+channel: "GothamChess"
+---
+{% raw %}This is the Game Of The Century, an amazing historical and famous chess game between Donald Byrne and Bobby Fischer, in New York 1956. <br /><br />➡️ 7 GOTHAM Chess Courses:  <a rel="nofollow" target="blank" href="https://www.gotham-chess.com">https://www.gotham-chess.com</a><br />➡️ Watch LIVE on Twitch:  <a rel="nofollow" target="blank" href="https://www.twitch.tv/gothamchess">https://www.twitch.tv/gothamchess</a><br />➡️ Support via Donation: <a rel="nofollow" target="blank" href="https://www.paypal.me/gothamchess">https://www.paypal.me/gothamchess</a><br /><br />[Site &quot;New York&quot;]<br />[Date &quot;1956.10.17&quot;]<br />[White &quot;Byrne, Donald&quot;]<br />[Black &quot;Fischer, Robert James&quot;]<br />[EventDate &quot;1956.10.07&quot;]<br /><br />1. Nf3 Nf6 2. c4 g6 3. Nc3 Bg7 4. d4 O-O 5. Bf4 d5 6. Qb3 dxc4 7. Qxc4 c6 8. e4 Nbd7 9. Rd1 Nb6 10. Qc5 Bg4 11. Bg5 Na4 12. Qa3 Nxc3 13. bxc3 Nxe4 14. Bxe7 Qb6 15. Bc4 Nxc3 16. Bc5 Rfe8+ 17. Kf1 Be6 18. Bxb6 Bxc4+ 19. Kg1 Ne2+ 20. Kf1 Nxd4+ 21. Kg1 Ne2+ 22. Kf1 Nc3+ 23. Kg1 axb6 24. Qb4 Ra4 25. Qxb6 Nxd1 26. h3 Rxa2 27. Kh2 Nxf2 28. Re1 Rxe1 29. Qd8+ Bf8 30. Nxe1 Bd5 31. Nf3 Ne4 32. Qb8 b5 33. h4 h5 34. Ne5 Kg7 35. Kg1 Bc5+ 36. Kf1 Ng3+ 37. Ke1 Bb4+ 38. Kd1 Bb3+ 39. Kc1 Ne2+ 40. Kb1 Nc3+ 41. Kc1 Rc2# 0-1<br /><br /><a rel="nofollow" target="blank" href="https://en.wikipedia.org/wiki/The_Game_of_the_Century_(chess)">https://en.wikipedia.org/wiki/The_Game_of_the_Century_(chess)</a><br /><br />I PARTNERED WITH G FUEL! They have delicious and energizing energy drinks. Get yours at <a rel="nofollow" target="blank" href="http://gfuel.ly/3p3XR6O">http://gfuel.ly/3p3XR6O</a> and USE CODE Gotham and get 30% off all their products.<br /><br />↓ ↓ Chess and social media links below ↓ ↓<br /><br />♛ Chess Links:<br />➡️ Joining Chess.com: <a rel="nofollow" target="blank" href="https://bit.ly/2W85z3x">https://bit.ly/2W85z3x</a><br />➡️ My chess.com video lesson series: <a rel="nofollow" target="blank" href="https://bit.ly/30r8RkN">https://bit.ly/30r8RkN</a>  <br /><br />⭐️ Social Media Links:<br />➡️ TWITTER: <a rel="nofollow" target="blank" href="https://twitter.com/gothamchess">https://twitter.com/gothamchess</a><br />➡️ INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/gothamchess/">https://www.instagram.com/gothamchess/</a><br />➡️ GOTHAM DISCORD:   <a rel="nofollow" target="blank" href="https://discord.gg/dpyRExhP9n">https://discord.gg/dpyRExhP9n</a><br /><br />➡️ THUMBNAILS BY: <a rel="nofollow" target="blank" href="https://twitter.com/karri_bird">https://twitter.com/karri_bird</a> &amp; <a rel="nofollow" target="blank" href="http://instagram.com/karri.designs">http://instagram.com/karri.designs</a>{% endraw %}
