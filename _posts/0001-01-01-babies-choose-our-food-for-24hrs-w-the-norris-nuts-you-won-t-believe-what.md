@@ -1,0 +1,15 @@
+---
+title: "BABIES CHOOSE OUR FOOD FOR 24hrs w\/The Norris Nuts"
+image: "https:\/\/i.ytimg.com\/vi\/P-AOsD42D1E\/hqdefault.jpg"
+vid_id: "P-AOsD42D1E"
+categories: "People-Blogs"
+tags: ["norris nuts","family friendly","family vlog"]
+date: "2022-05-13T14:35:13+03:00"
+vid_date: "2021-08-28T12:00:09Z"
+duration: "PT27M49S"
+viewcount: "3585133"
+likeCount: "60305"
+dislikeCount: ""
+channel: "The Norris Nuts"
+---
+{% raw %}You won't believe what food Baby Charm and Disco choose for the meals!<br />Watch NEXT - LAST TO LEAVE THE BED <a rel="nofollow" target="blank" href="https://youtu.be/HTI8_iMbljI">https://youtu.be/HTI8_iMbljI</a><br />AESTHETIC CHALLENGE (our new looks) <a rel="nofollow" target="blank" href="https://youtu.be/lKUxpOCEceA">https://youtu.be/lKUxpOCEceA</a><br />Who can EAT Most COOKIES <a rel="nofollow" target="blank" href="https://youtu.be/jFPUHE6JvIM">https://youtu.be/jFPUHE6JvIM</a><br /><br />*Filmed before current restrictions<br /><br />COMMENT here on our community tab <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSCOMMENTS">http://bit.ly/NORRISNUTSCOMMENTS</a><br /><br />Our Latest challenges here <a rel="nofollow" target="blank" href="https://youtu.be/7VNvxbEN1sI">https://youtu.be/7VNvxbEN1sI</a> <br /><br />#familyvlog #challenge #norrisnuts<br />In this video Norris Nuts have their food for the day determined by the two little Norris Nut babies - Disco and Charm. Disco and Charm will choose exactly what the Norris Nuts have for their meals - will it be ice creams and lollies or healthy recipe lean meat and vegetables? Mama also has more surprises for the Norris Nuts including a special surprise for Biggy. Keep watching to find out all the clues to work it out. Check out what the Norris Nuts eat in a Day.<br /><br />Check out our other channels here <br />NORRIS NUTS GAMING <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSGAMING">http://bit.ly/NORRISNUTSGAMING</a><br />MAIN CHANNEL <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTS">http://bit.ly/NORRISNUTS</a><br />NORRIS NUTS DO STUFF <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSDOSTUFF">http://bit.ly/NORRISNUTSDOSTUFF</a><br />NORRIS NUTS COOKING <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSCOOKING">http://bit.ly/NORRISNUTSCOOKING</a><br />NORRIS NUTS CLIPS <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSCLIPS">http://bit.ly/NORRISNUTSCLIPS</a><br />NORRIS NUTS SQUAD (adventures) <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSSQUAD">http://bit.ly/NORRISNUTSSQUAD</a><br /><br />Our MOST POPULAR VIDEOS HERE <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL92HrKDrbQZ1ljDSJdh-sQb10oYb_OsoS">https://www.youtube.com/playlist?list=PL92HrKDrbQZ1ljDSJdh-sQb10oYb_OsoS</a><br /><br />*Comment on our Community Tab on the Channel Page<br /><br />MAKE CLOSED CAPTIONS (subtitles) in your language here <a rel="nofollow" target="blank" href="http://www.youtube.com/timedtext_cs_panel?c=UCYd0us2OtW4d4-1cfpT2ktw&amp;tab=2">http://www.youtube.com/timedtext_cs_panel?c=UCYd0us2OtW4d4-1cfpT2ktw&amp;tab=2</a>{% endraw %}
