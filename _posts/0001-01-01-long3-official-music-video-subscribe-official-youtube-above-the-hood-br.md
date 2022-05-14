@@ -1,0 +1,15 @@
+---
+title: "LONG3 - Ξέρω τι θέλω (Official Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/greTIyjuBzo\/hqdefault.jpg"
+vid_id: "greTIyjuBzo"
+categories: "Music"
+tags: ["Above the hood","Best greek rap 2019","best greek trap"]
+date: "2022-05-14T03:59:29+03:00"
+vid_date: "2020-04-03T12:00:10Z"
+duration: "PT5M21S"
+viewcount: "2263807"
+likeCount: "42126"
+dislikeCount: ""
+channel: "Above The Hood"
+---
+{% raw %}Κάνε Subscribe στο Official Youtube των ABOVE THE HOOD<br /><br />★SUBSCRIBE HERE : <a rel="nofollow" target="blank" href="http://smarturl.it/AboveTheHood_Youtube">http://smarturl.it/AboveTheHood_Youtube</a><br />★SUBSCRIBE HERE : <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC7OLCYjCZSDVcXBHpIvnrmw">https://www.youtube.com/channel/UC7OLCYjCZSDVcXBHpIvnrmw</a><br /><br /><br /><br />Κατέβασέ το από όλα τα ψηφιακά καταστήματα εδώ: <br /><br />★<a rel="nofollow" target="blank" href="https://orcd.co/long3_ksero_ti_thelo">https://orcd.co/long3_ksero_ti_thelo</a><br /><br />Ακολουθήστε την n1 Λίστα Rap στο spotify GREEK RAP GAME<br /><br />★<a rel="nofollow" target="blank" href="http://smarturl.it/GreekRapGame_Spotify">http://smarturl.it/GreekRapGame_Spotify</a><br /><br /><br /><br />OFFICIAL ABOVE THE HOOD SOCIAL MEDIA<br /><br />★ <a rel="nofollow" target="blank" href="http://smarturl.it/AboveTheHood_Insta">http://smarturl.it/AboveTheHood_Insta</a><br /><br />★ <a rel="nofollow" target="blank" href="http://smarturl.it/AboveTheHoodFacebook">http://smarturl.it/AboveTheHoodFacebook</a><br /><br /><br /><br />OFFICIAL ARTIST SOCIAL MEDIA :<br /><br />★ <a rel="nofollow" target="blank" href="https://www.instagram.com/longthree/">https://www.instagram.com/longthree/</a><br />★<a rel="nofollow" target="blank" href="https://www.instagram.com/baghdad.prod/">https://www.instagram.com/baghdad.prod/</a><br />★ <a rel="nofollow" target="blank" href="https://www.instagram.com/turtlemocajuniors/">https://www.instagram.com/turtlemocajuniors/</a><br /><br />Created and Directed By Angel Saft<br />Director of photography: Konstantinos Kiousis<br />VFX: Pantelis Anastasiadis<br />Production Company: Crystal View Entertainment<br /><br />Starring : Thanos Kotsis, Annette Papagianni, Orfeas Antoulinakis, Spiros Valdeseras<br />Kostas Kapothansis, Panagiotis Trivellas, Dimitris Peponas, Long3<br /><br />Production Designer: Daphne Alberti Larejack<br />Styling &amp; Clothes by Mortasia<br />Technocrane: Panos Tsigas<br />Camera Assistant: Angelos Apergis<br />Production Manager: Dimitris Voutos<br />Gaffer: Neff<br />Grip: Manolis Polixronis<br />Make up &amp; Special FX: Sofia Karathanasi<br /><br />Lyrics &amp; Vocals : Long3<br /><br />Produced by : Turtle &amp; Baghdad <br /><br />Guitars : Filippos Zoukas<br />Violin : Konstantinos Skrimponis<br /><br /><br /><br />For Bookings/Live Contacts: <br /><br />long3abovethehood@gmail.com<br /><br /><br />2020 © + ℗ Above The Hood<br /><br /><br /><br />#AboveTheHood #Long3 #kserotithelo{% endraw %}
