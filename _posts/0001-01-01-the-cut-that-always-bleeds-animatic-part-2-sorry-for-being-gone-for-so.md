@@ -1,0 +1,15 @@
+---
+title: "\"THE CUT THAT ALWAYS BLEEDS\" - ANIMATIC (Part 2)"
+image: "https:\/\/i.ytimg.com\/vi\/k1lCXrFcyO4\/hqdefault.jpg"
+vid_id: "k1lCXrFcyO4"
+categories: "Film-Animation"
+tags: ["south park","heather","heather animatic"]
+date: "2022-05-14T19:32:11+03:00"
+vid_date: "2020-12-04T02:00:05Z"
+duration: "PT3M58S"
+viewcount: "974107"
+likeCount: "79464"
+dislikeCount: ""
+channel: "Komoari"
+---
+{% raw %}Sorry for being gone for so long, college and life in general has really been stressful for no mf reason. Here's part two of the &quot;Heather&quot; animatic.<br />Also, I'm not active on social media other than instagram, so please follow me there (if you'd like) because every other art media platform is practically dead.<br />I have a bunch of other animatic ideas, so I'll probably post more consistently. Thank you for your patience. <br /><br />INSTAGRAM: komoari_<br /><br />---<br />THE CUT THAT ALWAYS BLEEDS:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=OuTLKgPyaF0">https://www.youtube.com/watch?v=OuTLKgPyaF0</a><br />END MUSIC:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ZVvNw...">https://www.youtube.com/watch?v=ZVvNw...</a><br />-----<br /><br />FAIR-USE COPYRIGHT DISCLAIMER<br /><br />* Copyright Disclaimer Under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, commenting, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational or personal use tips the balance in favour of fair use.<br /><br />-This video has no negative impact on the original works (It would actually be positive for them)<br />-This video is also for teaching purposes.<br />-It is not transformative in nature.<br />-I only used bits and pieces of videos to get the point across where necessary.<br /><br />We make these videos with the intention of educating others in a motivational/inspirational form. We do not own the clips and music we use in most cases. Our understanding is that it is in correlation to Fair Right Use, however given that it is open to interpretation, if any owners of the content clips would like us to remove the video, we have no problem with that and will do so as fast as possible. Please message us on YouTube or Facebook if you have any concerns.<br /><br />We believe these videos are fair use because: <br /><br />They are transformative in a positive sense, we take clips from various sources to help create an atmospheric feeling that will help people in hard situations in their life. <br /><br />We also do not wish to use the heart of any piece of work that would perhaps decrease the market value of the original content, if anything we hope to promote the content so that people can reach out and subsequently increase the market value. <br /><br />Lastly these videos are to educate people in an entertaining fashion. Given these are very short videos, the short parts we use within them act as a catalyst to further reading{% endraw %}
