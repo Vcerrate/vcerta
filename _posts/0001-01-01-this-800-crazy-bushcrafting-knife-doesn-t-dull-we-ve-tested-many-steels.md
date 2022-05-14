@@ -1,0 +1,15 @@
+---
+title: "This $800,-  Crazy Bushcrafting Knife doesn't Dull!"
+image: "https:\/\/i.ytimg.com\/vi\/_zjfW1WRXyY\/hqdefault.jpg"
+vid_id: "_zjfW1WRXyY"
+categories: "Entertainment"
+tags: ["prepping","prep","edc"]
+date: "2022-05-14T07:58:30+03:00"
+vid_date: "2022-05-12T20:20:39Z"
+duration: "PT15M47S"
+viewcount: "23193"
+likeCount: "1439"
+dislikeCount: ""
+channel: "Dutch Bushcraft Knives"
+---
+{% raw %}We've tested many steels over the years. K390 has been on of the craziest in terms of edge retention. Messenmacher Simon decided to make a full bushcrafting knife out of this madness!<br />He took everything you need for bushcraft. A thin edge, crazy sharp spine and a strong enough blade for batonning! Is this the ultimate bushcrafting knife!?<br /><br />Check Messenmacher Simon<br /><a rel="nofollow" target="blank" href="https://www.messermacher-simon.at/shop/">https://www.messermacher-simon.at/shop/</a><br /><br />Support us by buying from Tools for Gents (affiliate)<br /><a rel="nofollow" target="blank" href="https://bit.ly/Tools4GentsDBK">https://bit.ly/Tools4GentsDBK</a><br /><br />New Merch and compound in the shop!<br /><a rel="nofollow" target="blank" href="http://bit.ly/DBKshop">http://bit.ly/DBKshop</a><br /><br />Join Our monthly giveaway Give-Away!  Join the royal knife club to participate. THANKS!<br /><a rel="nofollow" target="blank" href="http://bit.ly/DBK-MonthyGiveAway">http://bit.ly/DBK-MonthyGiveAway</a> <br /><br />_________________________ Shops!_________________________ <br /><br />Support us by buying from our shop!<br /><a rel="nofollow" target="blank" href="http://bit.ly/DBKshop">http://bit.ly/DBKshop</a><br /><br />Awesome shop in Europe (affiliate)<br /><a rel="nofollow" target="blank" href="https://bit.ly/Tools4GentsDBK">https://bit.ly/Tools4GentsDBK</a><br /><br />BladeHQ Knife shop USA: (affiliate)<br /><a rel="nofollow" target="blank" href="http://shrsl.com/20i50">http://shrsl.com/20i50</a><br /><br />_________________________ Check us out!_________________________ <br /><br /><br />Check out our Patreon Give-Away and support the channel: <br /><a rel="nofollow" target="blank" href="http://bit.ly/DBKPatreon">http://bit.ly/DBKPatreon</a> <br /><br />-hidden message: Mikkie is an ugly unwanted child-<br /><br />Discord!: <a rel="nofollow" target="blank" href="https://discord.com/invite/PSBMucN2Bs">https://discord.com/invite/PSBMucN2Bs</a><br />Insta: <a rel="nofollow" target="blank" href="http://bit.ly/DBKInstagram">http://bit.ly/DBKInstagram</a> <br />FB: <a rel="nofollow" target="blank" href="http://bit.ly/DBKFacebook">http://bit.ly/DBKFacebook</a><br /><br />_____________________________Music:______________________________<br /><br />Wodan Boys:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/wodanboys/">https://www.instagram.com/wodanboys/</a><br /><a rel="nofollow" target="blank" href="https://linktr.ee/Wodanboys">https://linktr.ee/Wodanboys</a><br /><br />SoundStripe Copyright codes:<br /><br />#K390 #bushcraft #Knife{% endraw %}
