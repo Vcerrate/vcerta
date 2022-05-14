@@ -1,0 +1,15 @@
+---
+title: "2022 Financial Goals | Debt Free Journey | Savings"
+image: "https:\/\/i.ytimg.com\/vi\/cLpe-irZObk\/hqdefault.jpg"
+vid_id: "cLpe-irZObk"
+categories: "People-Blogs"
+tags: ["budget","debt free journey","monets money"]
+date: "2022-05-14T05:21:53+03:00"
+vid_date: "2021-12-29T15:00:33Z"
+duration: "PT16M5S"
+viewcount: "7638"
+likeCount: "685"
+dislikeCount: ""
+channel: "Monet’s Money"
+---
+{% raw %}Today we'll be going over my financial goals for 2022. These are my top 5 goals for the upcoming new year and I'm excited to share them with you all! <br /><br />✨Check out my Etsy shop for CASH ENVELOPES and BUDGET SHEETS<br />ETSY SHOP: <a rel="nofollow" target="blank" href="https://www.etsy.com/shop/monetsmoney">https://www.etsy.com/shop/monetsmoney</a><br /><br />🌟 FETCH REWARDS - Receipt scan app, 2,000 points referral code, URXB9  <br /><a rel="nofollow" target="blank" href="https://fetchrewards.onelink.me/vvv3/referraltext?code=URXB9">https://fetchrewards.onelink.me/vvv3/referraltext?code=URXB9</a><br /><br />✨Instagram: @monets_money : <a rel="nofollow" target="blank" href="https://www.instagram.com/monets_money/">https://www.instagram.com/monets_money/</a><br /><br />✨Interested in getting started with the Cash Envelope System, check out this video: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Ov0sy5AH9PI&amp;t=86s">https://www.youtube.com/watch?v=Ov0sy5AH9PI&amp;t=86s</a><br />✨Interested in learning How to Budget, check out this video: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ZXIYpEIOgpo&amp;t=561s">https://www.youtube.com/watch?v=ZXIYpEIOgpo&amp;t=561s</a><br /><br />🌟SHOP MY BUDGET SYSTEM:<br />-Pink Cash Envelope Binder: <a rel="nofollow" target="blank" href="https://amzn.to/3aoUHpm">https://amzn.to/3aoUHpm</a><br />-Gel Ink Fine Point Pens: <a rel="nofollow" target="blank" href="https://amzn.to/37lpnG8">https://amzn.to/37lpnG8</a><br />-Wallet: <a rel="nofollow" target="blank" href="https://amzn.to/3b7lghW">https://amzn.to/3b7lghW</a><br />-Calculator: <a rel="nofollow" target="blank" href="https://amzn.to/2ZnHw1A">https://amzn.to/2ZnHw1A</a><br />_________________________________________________<br />🌟SHOP MY FILMING SETUP:<br />-Tripod: <a rel="nofollow" target="blank" href="https://amzn.to/2ZkinEW">https://amzn.to/2ZkinEW</a><br />-Small Ring Light: <a rel="nofollow" target="blank" href="https://amzn.to/2ZkGO5a">https://amzn.to/2ZkGO5a</a><br />-Large Ring Light: <a rel="nofollow" target="blank" href="https://amzn.to/3o69Ot4">https://amzn.to/3o69Ot4</a><br />-Microphone: <a rel="nofollow" target="blank" href="https://amzn.to/37jiGEA">https://amzn.to/37jiGEA</a><br /><br />Thanks for watching and stay tuned for more videos documenting my debt free journey. Don't forget to hit the subscribe button and click the notification bell so you never miss a video.<br /><br />Stay Safe Everyone!<br /><br />#FINANCIALGOALS #DEBTFREEJOURNEY #BUDGETGOALS<br /><br />DISCLAIMER: LINKS MAY OR MAY NOT BE REFERRAL/AFFILIATE LINKS THAT PROVIDE ME WITH POINTS/ REWARDS/COMMISSION.{% endraw %}
