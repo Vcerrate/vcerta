@@ -1,0 +1,15 @@
+---
+title: "When God Says THIS, Your Breakthrough Is Bigger & Greater"
+image: "https:\/\/i.ytimg.com\/vi\/dvTjgHTZrPM\/hqdefault.jpg"
+vid_id: "dvTjgHTZrPM"
+categories: "Howto-Style"
+tags: ["God says","prophetic word","prophecy"]
+date: "2022-05-14T09:11:46+03:00"
+vid_date: "2022-05-13T15:00:32Z"
+duration: "PT13M59S"
+viewcount: "6878"
+likeCount: "1135"
+dislikeCount: ""
+channel: "Mumbi Inspired"
+---
+{% raw %}What God says cannot be changed. He has said it...expect your blessing to be bigger and greater. What eyes have not seen, ears not heard nor hearts perceived, is what God has for you. This is your prophetic word. God is a fulfiller of prophecy. I hope this message is a blessing to you.<br /><br />PROGRAMS //<br />Praying Woman Blueprint: <a rel="nofollow" target="blank" href="https://agnesmumbiministries.com">https://agnesmumbiministries.com</a><br /><br />FREE RESOURCES //<br />Prayer Prescription: <a rel="nofollow" target="blank" href="https://agnesmumbiministries.com/resources">https://agnesmumbiministries.com/resources</a><br />Self-Deliverance ebook: <a rel="nofollow" target="blank" href="https://agnesmumbiministries.com/resources">https://agnesmumbiministries.com/resources</a><br />7 Day-Fast Dream Revival Guide: <a rel="nofollow" target="blank" href="https://agnesmumbiministries.com/resources">https://agnesmumbiministries.com/resources</a><br /><br />WEBSITE //<br /> <a rel="nofollow" target="blank" href="https://agnesmumbiministries.com">https://agnesmumbiministries.com</a><br /><br />RECOMMENDED VIDEOS //<br />7 Day-Fast | Empowered prayer Life Through Prophetic Dreams: <a rel="nofollow" target="blank" href="https://youtu.be/bJGFD36oOsc">https://youtu.be/bJGFD36oOsc</a><br />Prophetic Dreams And visions: <a rel="nofollow" target="blank" href="https://youtu.be/vHrrh4DxBhU">https://youtu.be/vHrrh4DxBhU</a><br />Tired or overwhelmed? 3 Scriptures on how to pray effectively:<br /> <a rel="nofollow" target="blank" href="https://youtu.be/2EGwvnlj7RY">https://youtu.be/2EGwvnlj7RY</a><br />Every time You Pray, Say This: <a rel="nofollow" target="blank" href="https://youtu.be/fnIEWGlym3c">https://youtu.be/fnIEWGlym3c</a><br />How To Gain Strength On The Prayer Altar: <a rel="nofollow" target="blank" href="https://youtu.be/R7B3Lu68-7A">https://youtu.be/R7B3Lu68-7A</a><br /><br />SOCIAL MEDIA //<br />INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/agnessmumbim/">https://www.instagram.com/agnessmumbim/</a><br />FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/groups/prayi...">https://www.facebook.com/groups/prayi...</a><br /><br />CONTACT //<br />Email: mumbiinspired@gmail.com<br /><br />WANT TO GIVE? //<br />If you feel led to give financially to this ministry:<br /><a rel="nofollow" target="blank" href="https://PayPal.me/agnesmumbiministries.com">https://PayPal.me/agnesmumbiministries.com</a><br /><br />SUBSCRIBE to my Channel for more videos on spiritual warfare, prophetic word, fasting, and more..► <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCWWL...">https://www.youtube.com/channel/UCWWL...</a>{% endraw %}
