@@ -1,0 +1,15 @@
+---
+title: "the ride was too fast, then…"
+image: "https:\/\/i.ytimg.com\/vi\/gB4DlAQse7w\/hqdefault.jpg"
+vid_id: "gB4DlAQse7w"
+categories: "Entertainment"
+tags: ["She didn’t expect the ride to do THIS","slingshot ride","slingshot pass out"]
+date: "2022-05-15T21:11:18+03:00"
+vid_date: "2022-01-25T19:00:23Z"
+duration: "PT8M59S"
+viewcount: "1240222"
+likeCount: "31985"
+dislikeCount: ""
+channel: "Perplexify"
+---
+{% raw %}In this video, we countdown the top 9 of the most thrilling roller coaster rides/ amusement park rides/ theme park rides ever! From super fast slingshot rides, tall sky-scraping roller coaster and more. These roller coaster moments are crazy and the people should have prepared themselves for certain things to happen. But you guys HAVE to watch till the end to see this crazy clip.<br /><br />In this video, we showcase 15 of those crazy times and give our reaction, criticism, opinions, and rank them in our top 15 list. But make sure to watch till the end for a surprise!<br /><br />Disclaimer: Don't try anything in this video, we are showing you what not to do and what consequences could happen if you tried any of these things. It’s for educational viewing to show the consequences of actions and why you should NEVER Attempt the things in the video. We want to keep YouTube a safe place, so DO NOT ATTEMPT ANYTHING in the videos.<br /><br />📢Use Fortnite Support a creator code: PFLY<br />And I will Love you forever ❤️❤️📢<br /><br />Other Cool Videos:<br />She Didn’t Know the Roller Coaster Did THIS...<br /><a rel="nofollow" target="blank" href="https://youtu.be/MPcexHWKaJE">https://youtu.be/MPcexHWKaJE</a><br />the ride BROKE at the worst time...<br /><a rel="nofollow" target="blank" href="https://youtu.be/7VIytYWgxyU">https://youtu.be/7VIytYWgxyU</a><br />her baby fell off the roller coaster..<br /><a rel="nofollow" target="blank" href="https://youtu.be/VEj6h8-9uvk">https://youtu.be/VEj6h8-9uvk</a><br />Kid Falls Off Ride, Dad Does This..<br /><a rel="nofollow" target="blank" href="https://youtu.be/8RiewxN_xa8">https://youtu.be/8RiewxN_xa8</a><br />Kid STEALS DADS Credit Card To Buy V-Bucks! (fortnite)<br /><a rel="nofollow" target="blank" href="https://youtu.be/wnP0zYBGtPg">https://youtu.be/wnP0zYBGtPg</a><br /><br />Music by MBB<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/mbbmusic">https://www.youtube.com/c/mbbmusic</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/mbb_music">https://www.instagram.com/mbb_music</a><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/mbbofficial">https://soundcloud.com/mbbofficial</a><br /><a rel="nofollow" target="blank" href="https://spoti.fi/2wqzjwK">https://spoti.fi/2wqzjwK</a><br /><br />The commentary/editing style is unique and adds value by putting it into my own list and stating my opinions/reaction/making it funnier which transforms the work making it different and unique each video. Perplexify created and edited this video to fit with fair use and has full rights to content and copyright.<br />For Copyright Issues, Contact: Daneriaa@gmail.com{% endraw %}
