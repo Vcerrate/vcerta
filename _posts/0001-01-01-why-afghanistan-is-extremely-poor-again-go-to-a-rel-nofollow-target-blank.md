@@ -1,0 +1,15 @@
+---
+title: "Why Afghanistan is Extremely Poor (Again)"
+image: "https:\/\/i.ytimg.com\/vi\/b_qVuIf5kdM\/hqdefault.jpg"
+vid_id: "b_qVuIf5kdM"
+categories: "Education"
+tags: ["Economics","central banking","finance"]
+date: "2022-05-15T19:17:05+03:00"
+vid_date: "2022-05-13T16:00:32Z"
+duration: "PT19M38S"
+viewcount: "11154"
+likeCount: "795"
+dislikeCount: ""
+channel: "Money & Macro"
+---
+{% raw %}Go to <a rel="nofollow" target="blank" href="https://squarespace.com/moneymacro">https://squarespace.com/moneymacro</a> to get a free trial and 10% off your first purchase of a website or domain. <br /><br />Paul Collier's Book: <a rel="nofollow" target="blank" href="https://amzn.to/3yyeqiT">https://amzn.to/3yyeqiT</a><br />Neon sign from: <a rel="nofollow" target="blank" href="https://www.neonlights.be/discount/M&amp;M15">https://www.neonlights.be/discount/M&amp;M15</a><br /><br />If you appreciate the research, consider buying me a 'coffee' at <a rel="nofollow" target="blank" href="https://ko-fi.com/moneymacro">https://ko-fi.com/moneymacro</a> or supporting long-term for membership benefits via: <a rel="nofollow" target="blank" href="https://www.patreon.com/moneymacro">https://www.patreon.com/moneymacro</a><br /><br />LIKE CHATTING ECON WITH ME?<br />△ Follow me on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/joerischasfoort">https://twitter.com/joerischasfoort</a><br />△ Follow me on LinkedIn: <a rel="nofollow" target="blank" href="https://www.linkedin.com/in/joeri-schasfoort/">https://www.linkedin.com/in/joeri-schasfoort/</a><br />△ I have a private Discord server for Senior and Chief economist Patrons / members.<br />Otherwise I sometimes hang out in two Discord servers:<br />△ Unlearning Economics's server: <a rel="nofollow" target="blank" href="https://discord.com/invite/jy8CNzDsgf">https://discord.com/invite/jy8CNzDsgf</a><br />△ Capitalists server: <a rel="nofollow" target="blank" href="https://discord.gg/8MeNJ7gfSR">https://discord.gg/8MeNJ7gfSR</a><br /><br />SOURCES:<br />I've linked my sources in the blog that goes along with this video.  <a rel="nofollow" target="blank" href="https://www.moneymacro.rocks/2022-05-13-afghanistan-econ/">https://www.moneymacro.rocks/2022-05-13-afghanistan-econ/</a><br /><br />Timestamps:<br />0:00 - introduction<br />0:46 - How Countries Get Rich<br />1:55 - Poverty Traps<br />3:02 - Landlocked Trap<br />6:55 - Conflict Trap<br />11:14 -  Resource Trap<br />13:16 - Bad Governance Trap<br />17:33 - Final Thoughts 1<br />17:52 - Sponsor<br />18:26 - Final Thoughts 2<br /><br />Narrated and produced by Dr. Joeri Schasfoort<br />Editing &amp; Studio design by Alex Moore Via www.dmsquaredagency.com<br /><br />Attribution:<br />Thumbnail image: DVIDSHUB, CC BY 2.0 via Wikimedia Commons<br />Bottom Billion Book Cover: Paul Collier<br />Landlock trap slide picture: via Wikimedia<br />Endless conflict slide picture: via Wikimedia<br />Resource paradox slide picture: Jerome Starkey via Flickr<br />Bad governance slide picture: DonkeyHotey via Flickr<br />Botswana 1960s clip from YT Kinolibrary<br />Icons by Freepik, photo3idea_studio &amp; Vectors Market{% endraw %}
