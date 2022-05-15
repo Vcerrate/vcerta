@@ -1,0 +1,15 @@
+---
+title: "How To Fix Sunken Outlet | 2 Easy Options"
+image: "https:\/\/i.ytimg.com\/vi\/ww6huRWr_YI\/hqdefault.jpg"
+vid_id: "ww6huRWr_YI"
+categories: "Howto-Style"
+tags: ["outlet pushed into wall","outlet loose in wall","light switch pushed into wall"]
+date: "2022-05-15T13:16:39+03:00"
+vid_date: "2022-02-18T22:00:18Z"
+duration: "PT10M17S"
+viewcount: "552372"
+likeCount: "17221"
+dislikeCount: ""
+channel: "Everyday Home Repairs"
+---
+{% raw %}Our Amazon Store - <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/everydayhomerepairs">https://www.amazon.com/shop/everydayhomerepairs</a> <br />If you own an older home or possibly just did a backsplash project needing to fix a sunken outlet or light switch is a common job.  This does not need to be complex but there are a few things to consider and tips I will show you to ensure you can get this fixed yourself giving a professional finished product.<br /><br />Free Home Maintenance Checklist <br /><a rel="nofollow" target="blank" href="https://everydayhomerepairs.com/home-maintenance-checklist/">https://everydayhomerepairs.com/home-maintenance-checklist/</a><br /><br />Supplies Show In Video<br />Outlet Spacers:  <a rel="nofollow" target="blank" href="https://amzn.to/3thxZHQ">https://amzn.to/3thxZHQ</a><br />Box Extender:  <a rel="nofollow" target="blank" href="https://amzn.to/3K7Pa5C">https://amzn.to/3K7Pa5C</a><br />Old Work Box With Mounting Screws:  <a rel="nofollow" target="blank" href="https://amzn.to/3uUWNrI">https://amzn.to/3uUWNrI</a><br />6-32 Screws 2 Inches Long:  <a rel="nofollow" target="blank" href="https://amzn.to/3I9uBFq">https://amzn.to/3I9uBFq</a><br />Oversized Duplex Wall Plate:  <a rel="nofollow" target="blank" href="https://amzn.to/3BwEES6">https://amzn.to/3BwEES6</a><br />Jumbo Duplex Wall Plate:  <a rel="nofollow" target="blank" href="https://amzn.to/3gTpA7Q">https://amzn.to/3gTpA7Q</a><br /><br />Wago 221 Lever Nuts<br />Starter Kit:  <a rel="nofollow" target="blank" href="https://amzn.to/3LuMRdE">https://amzn.to/3LuMRdE</a><br />My Favorite Kit:  <a rel="nofollow" target="blank" href="https://amzn.to/3DmNPWl">https://amzn.to/3DmNPWl</a><br />Assortment Pack:  <a rel="nofollow" target="blank" href="https://amzn.to/3JVAlDn">https://amzn.to/3JVAlDn</a><br />3 Wire Connector (50 pack):  <a rel="nofollow" target="blank" href="https://amzn.to/36DM62Z">https://amzn.to/36DM62Z</a><br />2 Wire Connector (100 pack):  <a rel="nofollow" target="blank" href="https://amzn.to/36Yx2wO">https://amzn.to/36Yx2wO</a><br /><br />Chapters<br />0:00 Intro<br />0:49  What Causes A Sunken Outlet<br />2:27 How To Install Spacers On An Outlet<br />6:30 How To Fix Drywall Damage Showing Past Wall Plate<br />7:33 When and Why To Use A Box Extender<br />8:41 How To Install A Box Extender<br />9:40 Finished Product<br /><br />DISCLAIMER: This video and description contain affiliate links, which means that if you click on one of the product links, I’ll receive a small commission.{% endraw %}
