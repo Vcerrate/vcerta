@@ -1,0 +1,15 @@
+---
+title: "Spot the Correct Logo | Check If You Have a Photographic Memory"
+image: "https:\/\/i.ytimg.com\/vi\/2VR9dOhvz_g\/hqdefault.jpg"
+vid_id: "2VR9dOhvz_g"
+categories: "Entertainment"
+tags: ["bright side","brightside","bright side riddles"]
+date: "2022-05-15T06:28:45+03:00"
+vid_date: "2022-05-01T04:00:01Z"
+duration: "PT10M22S"
+viewcount: "290597"
+likeCount: "5312"
+dislikeCount: ""
+channel: "BRIGHT SIDE"
+---
+{% raw %}Here's a hardcore logo quiz to test your attention. I'll show you 37 famous logos and we'll check if you remember them all precisely. If you get all 37 correct, you have a photographic memory. All of your favorite brand logos gathered in one place: logo of your favorite drink, food and technological company and so much more. This test is meant to check if you remember things just the way they are.<br /><br />Preview photo credit:<br /><br />Meta-image-netflix-symbol-black: By Ghaith baazaoui, CC BY-SA 3.0 <a rel="nofollow" target="blank" href="https://creativecommons.org/licenses/by-sa/3.0/,">https://creativecommons.org/licenses/by-sa/3.0/,</a> <a rel="nofollow" target="blank" href="https://commons.wikimedia.org/w/index.php?curid=91183976">https://commons.wikimedia.org/w/index.php?curid=91183976</a><br /><br />Animation is created by Bright Side.<br />----------------------------------------------------------------------------------------<br />Music by Epidemic Sound <a rel="nofollow" target="blank" href="https://www.epidemicsound.com">https://www.epidemicsound.com</a> <br /><br />Check our Bright Side podcast on Spotify and leave a positive review! <a rel="nofollow" target="blank" href="https://open.spotify.com/show/0hUkPxD34jRLrMrJux4VxV">https://open.spotify.com/show/0hUkPxD34jRLrMrJux4VxV</a> <br /><br />Subscribe to Bright Side: <a rel="nofollow" target="blank" href="https://goo.gl/rQTJZz">https://goo.gl/rQTJZz</a> <br />----------------------------------------------------------------------------------------<br />Our Social Media:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/brightside">https://www.facebook.com/brightside</a> <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/brightside.official">https://www.instagram.com/brightside.official</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@brightside.official?lang=en">https://www.tiktok.com/@brightside.official?lang=en</a> <br /><br />Stock materials (photos, footages and other):<br /><a rel="nofollow" target="blank" href="https://www.depositphotos.com">https://www.depositphotos.com</a><br /><a rel="nofollow" target="blank" href="https://www.shutterstock.com">https://www.shutterstock.com</a><br /><a rel="nofollow" target="blank" href="https://www.eastnews.ru">https://www.eastnews.ru</a><br />----------------------------------------------------------------------------------------<br /><br />For more videos and articles visit:<br /><a rel="nofollow" target="blank" href="http://www.brightside.me">http://www.brightside.me</a>{% endraw %}
