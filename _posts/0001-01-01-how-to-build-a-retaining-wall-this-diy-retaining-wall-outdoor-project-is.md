@@ -1,0 +1,15 @@
+---
+title: "HOW TO BUILD A RETAINING WALL"
+image: "https:\/\/i.ytimg.com\/vi\/NyZ9udzyyOg\/hqdefault.jpg"
+vid_id: "NyZ9udzyyOg"
+categories: "Howto-Style"
+tags: ["byotools","diy","do it yourself"]
+date: "2022-05-16T01:52:07+03:00"
+vid_date: "2021-08-21T23:01:10Z"
+duration: "PT23M58S"
+viewcount: "379367"
+likeCount: "4260"
+dislikeCount: ""
+channel: "BYOT"
+---
+{% raw %}This DIY retaining wall Outdoor project is all about how to build a timber retaining wall from start to finish.  This DIY timber retaining wall shows the step by step process of making a retaining wall from excavation, to crushed rock base, to installing 6x6 timbers, fastener installation and backfill. Bring Your Own Tools (#BYOTools 133).<br /><br />Apparel List:<br />  -Georgia Boots: <a rel="nofollow" target="blank" href="https://bit.ly/2UNJIAC">https://bit.ly/2UNJIAC</a><br />  -BYOT Shirt: <a rel="nofollow" target="blank" href="https://bit.ly/36tsgE0">https://bit.ly/36tsgE0</a><br />  -Knee Pads: <a rel="nofollow" target="blank" href="https://amzn.to/3y2T0XT">https://amzn.to/3y2T0XT</a><br /><br />Material List:<br />  -6x6 Landscape Timbers: <a rel="nofollow" target="blank" href="https://thd.co/2Xz5Akj">https://thd.co/2Xz5Akj</a><br />  -5/8&quot; Crushed Minus Rock:<br />  -1-1/2&quot; Drainage Rock: <br />  -10&quot; Fasten Master TimberLOK: <a rel="nofollow" target="blank" href="https://amzn.to/3gkMEfO">https://amzn.to/3gkMEfO</a><br />  -3' x 1/2&quot; Rebar: <a rel="nofollow" target="blank" href="https://amzn.to/3D1cAa9">https://amzn.to/3D1cAa9</a><br />  -Wood Preservative: <a rel="nofollow" target="blank" href="https://amzn.to/380DJLR">https://amzn.to/380DJLR</a><br />  -Ground Cover: <a rel="nofollow" target="blank" href="https://amzn.to/2Wb5YVJ">https://amzn.to/2Wb5YVJ</a><br />  -Duct Tape: <a rel="nofollow" target="blank" href="https://amzn.to/3misjLN">https://amzn.to/3misjLN</a><br />  -4&quot; Drain Pipe: <a rel="nofollow" target="blank" href="https://amzn.to/3syejyG">https://amzn.to/3syejyG</a><br />  -4&quot; End Cap: <a rel="nofollow" target="blank" href="https://amzn.to/3D9c8Xs">https://amzn.to/3D9c8Xs</a><br /><br />Tool List:<br />  -Drill Set: <a rel="nofollow" target="blank" href="https://amzn.to/3y9NB1y">https://amzn.to/3y9NB1y</a><br />  -Tape Measure  <a rel="nofollow" target="blank" href="https://amzn.to/3hrUYeG">https://amzn.to/3hrUYeG</a><br />  -Reciprocating Saw: <a rel="nofollow" target="blank" href="https://amzn.to/2W6fjxT">https://amzn.to/2W6fjxT</a><br />  -9&quot; Saw Blade: <a rel="nofollow" target="blank" href="https://amzn.to/382JF7i">https://amzn.to/382JF7i</a><br />  -6' Level: <a rel="nofollow" target="blank" href="https://amzn.to/37ZgT7x">https://amzn.to/37ZgT7x</a><br />  -Sledge Hammer: <a rel="nofollow" target="blank" href="https://amzn.to/3k9q0YV">https://amzn.to/3k9q0YV</a><br /> <br /><br />MUSIC:<br />0:00 - Venice Beach: Topher Mohr &amp; Alex Elena<br />23:05 - Pata Pata: Miriam Makeba (Matt Cherne Remix) <a rel="nofollow" target="blank" href="https://www.chernebeats.com">https://www.chernebeats.com</a><br /><br />#byot #diy #howto{% endraw %}
