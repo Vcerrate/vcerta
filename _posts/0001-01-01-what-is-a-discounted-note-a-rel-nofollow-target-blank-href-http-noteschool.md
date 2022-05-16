@@ -1,0 +1,15 @@
+---
+title: "What is a Discounted Note?"
+image: "https:\/\/i.ytimg.com\/vi\/n9u9DKGOky0\/hqdefault.jpg"
+vid_id: "n9u9DKGOky0"
+categories: "Education"
+tags: ["Noteschool","Buy Discounted Note","Mortgage Note"]
+date: "2022-05-16T21:27:30+03:00"
+vid_date: "2014-04-14T21:32:14Z"
+duration: "PT3M29S"
+viewcount: "4836"
+likeCount: "46"
+dislikeCount: ""
+channel: "NoteSchool"
+---
+{% raw %}<a rel="nofollow" target="blank" href="http://noteschool.com/what-is-a-discounted-mortgage-note/">http://noteschool.com/what-is-a-discounted-mortgage-note/</a><br />The most common question I've ever heard or ever been asked about the note business is &quot;What is a note?&quot;<br /><br />Here's how you can understand it: a bank check is a note. If I make that check out to John Doe for $1,000 and I sign it, what does John Doe now own? John Doe owns a note.  If I give that check to John Doe, and he doesn't have a checking account, what could he do? How could he get to his money? There are businesses now that have been built around that. They're called check cashing services. So John could take his $1,000 check to a check cashing service and they'll cash his check. They'll give him the money. What's the catch? The catch is, they're not going to pay him $1,000. They give John Doe $800 or $850 or $900... What they're doing is they're buying John Does' note, his check, at a discount. <br /><br />I am in the discount note buying business. I buy notes where the people owe more money than what I'm paying for the note. Theoretically, what if the check cashing service only paid John Doe $10 for the $1,000 check? Is that legal? Could you do that? You're saying &quot;Well, I guess you could. They just endorse the check and they give it over to him.&quot; How much does Eddie still owe if they only pay $10 for that check? Eddie still owes $1,000. That's right. The fact that the buyer of that note bought it at a deep discount has nothing to do with the fact of how much is still owed on that note. <br /><br />Now did I mention to you that I buy real estate secured notes? Yeah, I buy notes secured by real estate. So what does that mean? A seller is going to sell a property to a buyer, and they are going to transfer ownership of the property. Those of us that have been around real estate know that's called a deed. So the property seller transfers the deed to the property buyer, but the buyer doesn't have all cash, so what does he do? Well, he goes to the bank, and in order to get the bank to make a loan to help him buy the property, what does he have to sign? He signs a mortgage note. So who holds the note? The bank holds the mortgage note. The note, just like that check, reads 'paid to the order of First National Bank' and it's signed by the property buyer. Those are the components of the note. Could I buy that note from the bank at less money than what the borrower owes? In other words, could I buy that note at a discount? The answer is, absolutely yes. That's what I do. I buy real estate secured notes at a discount.{% endraw %}
