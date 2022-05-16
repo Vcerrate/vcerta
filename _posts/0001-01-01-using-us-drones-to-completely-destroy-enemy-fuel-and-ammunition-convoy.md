@@ -1,0 +1,15 @@
+---
+title: "Using US drones to completely destroy enemy fuel and ammunition convoy | Milsim ARMA3 D12"
+image: "https:\/\/i.ytimg.com\/vi\/Q5Y2ln5bCuM\/hqdefault.jpg"
+vid_id: "Q5Y2ln5bCuM"
+categories: "Gaming"
+tags: ["Russia","Ukraine","Atgm"]
+date: "2022-05-16T03:02:32+03:00"
+vid_date: "2022-05-14T13:54:37Z"
+duration: "PT8M5S"
+viewcount: "110858"
+likeCount: "1128"
+dislikeCount: ""
+channel: "SONStudio"
+---
+{% raw %}Using US drones to completely destroy enemy fuel and ammunition convoy<br /><br />👉 Subscribe here - <a rel="nofollow" target="blank" href="https://bit.ly/3IekezS">https://bit.ly/3IekezS</a> <br />If you like the video, please subscribe and like it. <br /><br />▶ My Playlists :<br /><br />Based on a real event : <a rel="nofollow" target="blank" href="https://bit.ly/3vHCNJ2">https://bit.ly/3vHCNJ2</a><br />ARMA 3 Machine - <a rel="nofollow" target="blank" href="https://bit.ly/3uWcLS9">https://bit.ly/3uWcLS9</a><br />ARMA 3 Soldiers - <a rel="nofollow" target="blank" href="https://bit.ly/3ruwUwl">https://bit.ly/3ruwUwl</a><br />ARMA 3 Drones - <a rel="nofollow" target="blank" href="https://bit.ly/3xYHPlV">https://bit.ly/3xYHPlV</a><br /><br />Arma 3 is personally the most fun and realistic game in the war shooting game. This is the game I've played the most so far.<br />I love making this simulation video to play this wonderful game with you, and I hope you like it a lot.<br /><br />I don't support war. I always want people to live in peace. This video is a simulation of a military air defense system. The video is very beautiful and has vivid graphics and simulations close to life.<br />I'm just an enthusiastic gamer and I don't want to give the impression of glorifying war. I'd appreciate it if you just watch it as a game !<br /><br />This video is a simulation created by Arma3 , and if you like the video, please visit my channel and watch it.<br /><br />It also helps with YouTube algorithms !<br /><br />Thank you for watch :)<br /><br />👉 This footage is a dramatized, fictional one, not real.<br /><br />Game Info :<br />Experience true combat gameplay in a massive military sandbox. Deploying a wide variety of single- and multiplayer content, over 20 vehicles and 40 weapons, and limitless opportunities for content creation, this is the PC’s premier military game. Authentic, diverse, open - Arma 3 sends you to war.<br /><br />Game Official Website (you can purchase &amp; download the game there) : <br />☞  <a rel="nofollow" target="blank" href="https://store.steampowered.com/app/107410/Arma_3/">https://store.steampowered.com/app/107410/Arma_3/</a>  ☜<br /><br />&quot;This video was created using content of Bohemia Interactive a.s.&quot;<br />&quot;Copyright © 2020 Bohemia Interactive a.s. All rights reserved.&quot;<br />&quot;See www.bistudio.com for more information.&quot;<br /><br />𝐖𝐚𝐧𝐭 𝐭𝐨 𝐬𝐞𝐞 𝐦𝐨𝐫𝐞 𝐜𝐨𝐧𝐭𝐞𝐧𝐭 𝐥𝐢𝐤𝐞 𝐭𝐡𝐢𝐬? <br /> - Like the video (We'll repay you with better quality.) 👍<br /> - Comment ! 💬<br /> - Subscribe for more videos ! 🔴<br /><br />#Arma3 #Drone #UAV{% endraw %}
