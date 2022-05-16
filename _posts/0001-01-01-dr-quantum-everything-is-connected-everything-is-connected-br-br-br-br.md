@@ -1,0 +1,15 @@
+---
+title: "DR. QUANTUM - EVERYTHING IS CONNECTED"
+image: "https:\/\/i.ytimg.com\/vi\/XIYU5IrIazc\/hqdefault.jpg"
+vid_id: "XIYU5IrIazc"
+categories: "Entertainment"
+tags: ["Entanglement","Dr","Quantum"]
+date: "2022-05-16T07:03:12+03:00"
+vid_date: "2010-12-27T17:57:06Z"
+duration: "PT1M5S"
+viewcount: "34497"
+likeCount: "250"
+dislikeCount: ""
+channel: "Angel Art"
+---
+{% raw %}EVERYTHING IS CONNECTED<br /><br /><br /><br />Two electrons were shot off into different directions.<br /><br />One goes to the left and one to the right.<br /><br />Whatever direction the spin of the one on the left was observed, - it was instantly and oppositely &quot;projected&quot; to the one on the right. - Even if a scientist chose to look in an arbitrary direction on the left (or right) before doing so.<br /><br />Hence if one chose to observe the spin in the north and south direction it would appear either north or south and the other would appear south or north correspondingly.<br /><br /><br /><br />If one chose to observe the spin in the east-west direction it would appear either E or W and the other would appear W or E correspondingly. This was always true even if one chose to observe in the direction NW by SE or any direction in space.<br /><br /><br /><br />Surprisingly by intent one could choose what direction the particle on the left was spinning and then observe it doing so and then that would make sure the one on the right had the opposite spin. But in the experiment the particles spin on the right (or left) before being observed could not be chosen.<br /><br />This simultaneous movement was instant and the communication was faster than the speed of light. There was no distance involved in the communication between electrons.<br /><br /><br /><br />They tried separating the electrons over various greater distances and after achieving identical results each time, realized that electrons communicated simultaneously even if they were placed miles apart.<br /><br />Further tests were even more astounding; these forms of communication would continue instantly regardless of any physical distance whatsoever, even if each were to be placed on opposite ends of the universe.<br /><br /><br /><br />Einstein uncomfortably referred to this phenomenon as &quot;Spooky action at a distance&quot; but the Quantum term is Entanglement or Quantum Action at-a-Distance.<br /><br />How do separated atoms communicate faster than the speed of light?<br /><br /><br /><br />Is what we experience and call distance probably only an illusion?<br /><br /><br /><br />This also gave rise to the probable theory that every atom is connected by a form of energy that science is now calling the Unified Field. - A form of an invisible internet that connects every atom to every other atom in the universe.<br /><br /><br /><br />In spite of endless conjecture, very interesting theories, and much food for thought, we do now have scientific evidence proving;<br /><br />(i) Consciousness seems to create reality<br /><br />(ii) Every atom in the universe is connected by an energy field which scientists call the Unified Field{% endraw %}
