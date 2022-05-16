@@ -1,0 +1,15 @@
+---
+title: "You Decide How We Destroy Our Favorite Products • Product Deathmatch #1"
+image: "https:\/\/i.ytimg.com\/vi\/vwg6O7ojAtc\/hqdefault.jpg"
+vid_id: "vwg6O7ojAtc"
+categories: "Entertainment"
+tags: ["vat19","gummy heart","vat 19"]
+date: "2022-05-16T15:25:33+03:00"
+vid_date: "2019-11-02T12:17:15Z"
+duration: "PT12M26S"
+viewcount: "6580063"
+likeCount: "67198"
+dislikeCount: ""
+channel: "Vat19"
+---
+{% raw %}We picked out our favorite items and you guys told us how we should destroy them. It. Was. Awesome!<br />Buy here: <a rel="nofollow" target="blank" href="https://www.vat19.com">https://www.vat19.com</a><br />More Destruction: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=o7cVnSA734M&amp;list=PLSqiExuEA-REAvNt3afooT0yYEnWaPH6a">https://www.youtube.com/watch?v=o7cVnSA734M&amp;list=PLSqiExuEA-REAvNt3afooT0yYEnWaPH6a</a><br /><br />Subscribe to Vat19: <a rel="nofollow" target="blank" href="http://www.youtube.com/subscription_center?add_user=vat19com">http://www.youtube.com/subscription_center?add_user=vat19com</a><br />Visit the Vat19 Headquarters: <a rel="nofollow" target="blank" href="https://www.vat19.com/tour">https://www.vat19.com/tour</a><br /><br />******************<br /> <br />Follow Vat19:<br />Facebook: <a rel="nofollow" target="blank" href="https://facebook.com/vat19">https://facebook.com/vat19</a><br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/vat19/">https://instagram.com/vat19/</a><br /><br />Shop hundreds more curiously awesome products:<br /><a rel="nofollow" target="blank" href="https://www.vat19.com/?adid=youtube">https://www.vat19.com/?adid=youtube</a><br /><br />Watch More Vat19:<br />The White Elephant Gift Show: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=rppcXroNgKI&amp;list=PLSqiExuEA-RFpqW0Y3vn0pn8wDW_3LXAO">https://www.youtube.com/watch?v=rppcXroNgKI&amp;list=PLSqiExuEA-RFpqW0Y3vn0pn8wDW_3LXAO</a><br />Latest Uploads: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/vat19com/videos?shelf_id=1&amp;view=0&amp;sort=dd">https://www.youtube.com/user/vat19com/videos?shelf_id=1&amp;view=0&amp;sort=dd</a><br />Popular Videos: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/vat19com/videos?shelf_id=7&amp;view=0&amp;sort=p">https://www.youtube.com/user/vat19com/videos?shelf_id=7&amp;view=0&amp;sort=p</a><br />Fun Stuff to Eat: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=7RXmNRr8x7I&amp;list=PLSqiExuEA-REt5gzR0A9ernZNHlZ2glIl">https://www.youtube.com/watch?v=7RXmNRr8x7I&amp;list=PLSqiExuEA-REt5gzR0A9ernZNHlZ2glIl</a><br /><br />About Vat19:<br />Vat19 is dedicated to &quot;curiously awesome&quot; gifts, candy, toys, gummy, putty, puzzles, games, and more! In addition to making funny commercials you'll actually want to watch, we produce amazing challenge videos, document our outrageous contraptions, and invite you to a front row seat for our silly stunts. Sometimes we blow things up, fill up a bathtub or pool with crazy stuff, dare each other to eat super spicy foods, and answer “burning questions” from our viewers.{% endraw %}
