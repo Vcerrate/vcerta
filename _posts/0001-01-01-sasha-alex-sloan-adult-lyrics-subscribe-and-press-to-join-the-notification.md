@@ -1,0 +1,15 @@
+---
+title: "Sasha Alex Sloan - Adult (Lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/cK4HB-vbXH8\/hqdefault.jpg"
+vid_id: "cK4HB-vbXH8"
+categories: "Music"
+tags: ["Lazy Fox","Sasha Alex Sloan","Adult"]
+date: "2022-05-16T07:08:24+03:00"
+vid_date: "2022-05-15T17:30:06Z"
+duration: "PT3M5S"
+viewcount: "498"
+likeCount: "19"
+dislikeCount: ""
+channel: "Lazy Fox"
+---
+{% raw %}Subscribe and press (🔔) to join the Notification Squad and stay updated with new uploads <br /><br />Follow Sasha Sloan:<br /><a rel="nofollow" target="blank" href="https://sadgirlsloan.com/">https://sadgirlsloan.com/</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/sadgirlsloan">https://twitter.com/sadgirlsloan</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/sadgirlsloan/">https://www.facebook.com/sadgirlsloan/</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/sadgirlsloan/">https://www.instagram.com/sadgirlsloan/</a><br /><br />📷 Wallpaper: <a rel="nofollow" target="blank" href="https://unsplash.com">https://unsplash.com</a><br /><br />Lyrics:<br /><br />[Verse 1]<br />I used to hope one day I'd be rich<br />But now I'm happy if I have somewhere to sit<br />Used to get drunk and wake up feelin' refreshed<br />But now I have a drink and can't get out of bed<br /><br />[Pre-Chorus]<br />'Cause it finally hurts bein' hungover<br />But it's still not worse than bein' sober<br /><br />[Chorus]<br />Bein' an adult is fuckin' hard<br />I'm still holdin' on to my mom's credit card<br />No one ever told me growin' up gets kinda lonely<br />Bein' an adult is fuckin' hard<br /><br />[Verse 2]<br />I used to think by now I'd be a mom<br />Just turned twenty-six and I can barely feed my dog<br />I used to put down a Big Mac and some fries<br />Now just the thought of it will go straight to my thighs<br /><br />[Pre-Chorus]<br />Guess my body's finally movin' slower<br />I'm regrettin' that tattoo on my shoulder<br /><br />[Chorus]<br />Bein' an adult is fuckin' hard<br />I'm still holdin' on to my mom's credit card<br />No one ever told me growin' up gets kinda lonely<br />Bein' an adult is fuckin' hard<br />It's fuckin' hard, yeah<br /><br />[Bridge]<br />Ooh, ooh<br />Ooh, ooh<br />I never thought I'd grow up so fast<br />But I'm hopin' the best comes last<br /><br />[Chorus]<br />Bein' an adult is fuckin' hard<br />I'm still holdin' on to my mom's credit card (My mom's credit card)<br />No one ever told me growin' up gets kinda lonely<br />Bein' an adult is fuckin' hard (Fuckin' hard)<br />It's fuckin' hard (Oh)<br />It's fuckin' hard (Oh-oh, yeah)<br /><br />[Outro]<br />I never thought I'd grow up so fast<br />But I'm hopin' the best comes last<br /><br /><br />Tag 🔖<br />Sasha Alex Sloan, Adult, Sasha Alex Sloan Adult, Adult Sasha Alex Sloan, Lyrics, Lyrics Adult, Sasha Alex Sloan Adult Lyrics, Adult Sasha Alex Sloan Lyrics, Sasha Alex Sloan Lyrics, Adult Lyrics Sasha Alex Sloan, Lyrics Sasha Alex Sloan Adult, Lyrics Adult Sasha Alex Sloan{% endraw %}
