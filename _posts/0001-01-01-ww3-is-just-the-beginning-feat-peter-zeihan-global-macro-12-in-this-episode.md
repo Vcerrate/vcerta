@@ -1,0 +1,15 @@
+---
+title: "WW3 is just the beginning | feat. Peter Zeihan | Global Macro #12"
+image: "https:\/\/i.ytimg.com\/vi\/nYZGlmX6HXY\/hqdefault.jpg"
+vid_id: "nYZGlmX6HXY"
+categories: "People-Blogs"
+tags: ["niels kaastrup larsen","global macro","macro investing"]
+date: "2022-05-17T09:32:35+03:00"
+vid_date: "2022-04-30T18:00:11Z"
+duration: "PT1H18M55S"
+viewcount: "119561"
+likeCount: "2707"
+dislikeCount: ""
+channel: "Top Traders Unplugged"
+---
+{% raw %}In this episode, Niels and Cem are joined by Peter Zeihan, author and Geopolitical strategist, to discuss the New World Order and World War III, how the Globalization has become a new battleground rather than a barrier to conflict, the role of technology in modern warfare, how the US were able to read Putin's emails and the impact of war on a national and global scale, the military and political power of China, America and Russia and the relationship between them and the rest of the world, how democracy is affected by the “age of emergency”, the financial aspects of war and crises, crypto as a potential economic asset and much more.<br /><br />#toptraders #investing #trendfollowing #globalmacro<br /><br />Episode Summary<br />00:00 - Intro<br />04:15 - How we got to the brink of WW3?<br />09:42 - The role of technology<br />18:32 - The relationship with China<br />28:25 - Submarines and the war in Ukraine<br />40:38 - Age of Emergency and the threat to Democracy<br />47:58 - Autocracy and technology<br />54:34 - The financial perspective<br />59:39 - The role of Crypto<br />01:02:39 - Climate change<br />01:06:56 - Trading advices<br />01:10:42 - The role and future of Governments<br />01:17:11 - Thanks for listening<br /><br />===<br /><br />Subscribe to our podcast:<br />iTunes: <a rel="nofollow" target="blank" href="https://itunes.apple.com/us/podcast/top-traders-unplugged-niels-kaastrup-larsen-engaging/id888420325?mt=2">https://itunes.apple.com/us/podcast/top-traders-unplugged-niels-kaastrup-larsen-engaging/id888420325?mt=2</a><br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/show/2OnOvLbIV3AttbFLxuoaBW">https://open.spotify.com/show/2OnOvLbIV3AttbFLxuoaBW</a><br /><br />Follow us on social media:<br />TWITTER: <a rel="nofollow" target="blank" href="https://twitter.com/TopTradersLive">https://twitter.com/TopTradersLive</a> (@TopTradersLive)<br />FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/toptradersunplugged">https://www.facebook.com/toptradersunplugged</a><br />INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/toptradersunplugged">https://www.instagram.com/toptradersunplugged</a><br />SOUNDCLOUD: <a rel="nofollow" target="blank" href="https://soundcloud.com/toptradersunplugged-com">https://soundcloud.com/toptradersunplugged-com</a><br /><br />Peter Zeihan: <a rel="nofollow" target="blank" href="https://twitter.com/peterzeihan">https://twitter.com/peterzeihan</a> (@peterzeihan)<br />Cem Karsan: <a rel="nofollow" target="blank" href="https://twitter.com/jam_croissant">https://twitter.com/jam_croissant</a> (@jam_croissant){% endraw %}
