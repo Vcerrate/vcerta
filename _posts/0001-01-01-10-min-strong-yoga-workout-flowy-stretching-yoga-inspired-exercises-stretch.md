@@ -1,0 +1,15 @@
+---
+title: "10 MIN STRONG YOGA WORKOUT - flowy stretching & yoga inspired exercises"
+image: "https:\/\/i.ytimg.com\/vi\/NCfOoyhTwQw\/hqdefault.jpg"
+vid_id: "NCfOoyhTwQw"
+categories: "Sports"
+tags: ["workout","training","abs"]
+date: "2022-05-18T07:01:02+03:00"
+vid_date: "2022-05-18T01:30:10Z"
+duration: "PT11M12S"
+viewcount: "5644"
+likeCount: "667"
+dislikeCount: ""
+channel: "Pamela Reif"
+---
+{% raw %}Stretch, slow down &amp; tone your body the relaxed kind of way ♥︎ for mind, body and soul! / Werbung <br /><br />This routine is a mix of:  <br />▸ flowy stretching - in the beginning and end of the video <br />▸ a yoga-inspired way of training - we have 2 „flows“ of 2min each, that are a combo of different yoga, strength  &amp; stretching poses. By combining them, it’s almost like a workout :)  <br /><br />You may also use this to:<br />1. Add a SLOW WORKOUT DAY to your hardcore week. I always have one Pilates / Yoga / Slow Strength Day, usually on the weekend :)<br />2. RELAX after a long day or an intense workout<br />3. PREVENT stiffness, ease sore muscles and keep your body flexible<br />4. WAKE UP in the morning, to start your day right and enjoy some me-time :)<br />5. SMOOTHEN your stiff body after sitting a lot behind your laptop!  <br /><br />__<br /><br />▸ You can find all songs in my Relaxing Playlist. I will update it regularly &amp; it's available on Spotify, Apple Music, etc. ♥︎<br /><a rel="nofollow" target="blank" href="https://wmg.click/PamelaRelaxing">https://wmg.click/PamelaRelaxing</a><br /><br />1. RIOPY - Ukiyo<br />2. RIOPY - Flo <br />3. Carlos Cipa - I wanted you to know (Munich Session)<br /><br />__<br /><br />➞ my Pam App ♥︎ Free workout &amp; meal plans (11 versions, different fitness levels), lot of recipes &amp; tips: <br /><a rel="nofollow" target="blank" href="https://www.pam-app.de/app">https://www.pam-app.de/app</a><br /><br />▸ 2 of those FREE WORKOUT PLANS are on my Instagram Channel. <br />Lose Weight &amp; Focus on a Bubble Butt. Check out the Highlight &quot;Workout Plans&quot; for that.  <br /><br />➞ Instagram <a rel="nofollow" target="blank" href="http://www.instagram.com/pamela_rf/">http://www.instagram.com/pamela_rf/</a><br />➞ Food Account <a rel="nofollow" target="blank" href="http://www.instagram.com/pamgoesnuts/">http://www.instagram.com/pamgoesnuts/</a><br /><br />▸ Use the hashtag #PamelaReif if you want to share your transformation or training on Instagram :) I always check the posts! <br /><br /><br />__<br />unterstützt durch Warner Music Germany<br /><br />Disclaimer:<br />When joining me for this workout video, you need to take some precautions as your health and safety is the most important. To avoid any injury or harm, you need to check your health with your doctor before exercising. By performing any fitness exercises without supervision like with this video, you are performing them at your own risk. See a fitness professional to give you advice on your exercise form. Pamela Reif will not be responsible or liable for any injury or harm you sustain as a result of this video.{% endraw %}
