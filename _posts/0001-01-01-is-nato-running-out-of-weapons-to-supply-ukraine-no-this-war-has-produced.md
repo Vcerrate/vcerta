@@ -1,0 +1,15 @@
+---
+title: "Is NATO running out of weapons to supply Ukraine? (no)"
+image: "https:\/\/i.ytimg.com\/vi\/7CmXz8Qd9yw\/hqdefault.jpg"
+vid_id: "7CmXz8Qd9yw"
+categories: "News-Politics"
+tags: ["Russia","Ukraine","Invasion"]
+date: "2022-05-18T08:37:19+03:00"
+vid_date: "2022-05-17T12:12:34Z"
+duration: "PT23M41S"
+viewcount: "163592"
+likeCount: "13809"
+dislikeCount: ""
+channel: "Perun"
+---
+{% raw %}This war has produced some truly interesting takes - so many that I'm already planning my next myth-busting video as we speak.<br /><br />But one recent one stood out as as both particularly strange, and also as a good opportunity to discuss a serious topic. Recently a number of media organisations ran stories suggesting that the shipment of American missiles to Ukraine were dangerously depleting American supplies to the point where urgent measures are necessary or American security would be threatened.<br /><br />So yes, I'm going to deal with the idea that sending Stingers to Ukraine is a danger to the USA, but I'm also going to talk about how deep American weapon stocks are, what it means to have your security threatened, and why America probably shouldn't rush to crash-manufacture Stingers just because they're finally using the ones that were in storage. Defence procurement decisions have lasting impacts, and while the decision to ramp up Javelin production is an obvious one, I think we should be wary of the idea that Stinger should be resurrected without other options being considered.<br /><br />This is a shorter video that serves in a stand-in while I edit and re-record the longer video that was originally scheduled for this time (if I'm going to talk about Poland, I want to do it justice). And because I wanted to hold off the video on Finland and Sweden joining NATO until they had formally applied for membership (so expect it soon). <br /><br />Thanks as always for watching and supporting me and the channel. <br /><br />Patreon: <br /><a rel="nofollow" target="blank" href="https://www.patreon.com/PerunAU">https://www.patreon.com/PerunAU</a><br /><br />Perun Gaming: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCPYJiiMoA0yOMHI-aiB44RQ">https://www.youtube.com/channel/UCPYJiiMoA0yOMHI-aiB44RQ</a><br /><br />Timestamps:<br />00:00  INTRODUCTION<br />00:25  What is this???<br />01:13  What am I covering?<br /><br />01:43  WHAT'S THE CLAIM?<br />02:25  Is any of that true?<br />03:34  Should the West panic?<br />05:39  Should the West panic? - replacement<br /><br />06:31  US ARMS STOCKPILE<br />07:30  That's a lot of metal<br />07:48  And the real reality check<br />08:55  There is more than one way to kill a tank<br />09:37  Direct and indirect substitution<br />10:50  There is more than one way to kill a tank (cont.)<br />11:13  America is armed<br /><br />12:26  WHAT ABOUT EUROPE?<br />14:54  Impact on Euro forces<br />16:01  Expenditure is not one sided<br />17:29  Expenditure is not one sided - UA isn't just throwing these things out<br /><br />19:01  SO WHAT NEXT?<br />21:15  _CHANNEL UPDATE_{% endraw %}
