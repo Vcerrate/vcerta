@@ -1,0 +1,15 @@
+---
+title: "La FIN des constructeurs automobiles FRANCAIS : Comment, Pourquoi?"
+image: "https:\/\/i.ytimg.com\/vi\/vx_ukeAr9Vc\/hqdefault.jpg"
+vid_id: "vx_ukeAr9Vc"
+categories: "Autos-Vehicles"
+tags: ["constructeurs","automobiles","FRANCAIS"]
+date: "2022-05-18T06:45:40+03:00"
+vid_date: "2022-05-15T06:45:47Z"
+duration: "PT19M15S"
+viewcount: "134665"
+likeCount: "4453"
+dislikeCount: ""
+channel: "Voitures & Ingénierie"
+---
+{% raw %}► Pour rejoindre la chaîne et bénéficier de l'accès aux Lives hebdomadaires : <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCcJbjcstdopt-2VuWaiaKBg/join">https://www.youtube.com/channel/UCcJbjcstdopt-2VuWaiaKBg/join</a><br />► Pour bénéficier d’une expertise automobile personnalisée :<br /><a rel="nofollow" target="blank" href="https://voitures-inge.com/">https://voitures-inge.com/</a><br />► Pour se procurer les livres et guides édités par « Voitures et Ingénierie »:<br /><a rel="nofollow" target="blank" href="https://voitures-inge.com/">https://voitures-inge.com/</a><br />► Pour contacter la rédaction :<br />voitures.inge@gmail.com<br /><br />► Pour soutenir financièrement la chaîne de manière à ce qu’elle puisse continuer à fournir des informations libres de tout conflit d’intérêt. Merci à vous ! : <a rel="nofollow" target="blank" href="https://www.paypal.com/donate?hosted_button_id=EZHNPCMB5QCY4">https://www.paypal.com/donate?hosted_button_id=EZHNPCMB5QCY4</a><br />► Pour s’abonner à la chaîne YouTube Voitures et Ingénierie : <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCcJbjcstdopt-2VuWaiaKBg//?sub_confirmation=1">https://www.youtube.com/channel/UCcJbjcstdopt-2VuWaiaKBg//?sub_confirmation=1</a><br />► If you want to check out my English speaking channel on Cars, please subscribe here : <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCTULNagsX3LECB3y0LwLK2w">https://www.youtube.com/channel/UCTULNagsX3LECB3y0LwLK2w</a><br />Réseaux sociaux :<br />- Facebook <a rel="nofollow" target="blank" href="http://www.facebook.com/DavidOrangeInge">http://www.facebook.com/DavidOrangeInge</a><br />- Twitter : @Voitures_Inge<br /><br />*** Mettant un point d'honneur à refuser toutes les propositions de sponsor ou de partenaires commerciaux, cette chaîne est entièrement libre, neutre et sans aucun conflit d'intérêt. Elle l'est et le restera. Aucune vidéo de cette chaîne n'a pour but de promouvoir ou de stigmatiser un mode de motorisations, d'énergie, une marque ou un modèle de véhicule. Au spectateur et à lui seul donc de se faire sa propre opinion.***<br />#voituresetingenierie #renault #peugeot<br />► Credits :<br />Toyota, Lexus, PSA Group, FCA Group, Daimler-Benz, VAG, BMW Group, Renault-Nissan-Mitsubishi Alliance, Hyundai, Volvo, JLR Group, Daewoo, Ssangyong, Honda, Subaru, Ford Motor Company, General Motors, VAG, Tesla Motors, Caterpillar, Maersk, Case, New Holland, Valeo, Bosch, LUK, Mazda, Caradisiac, Washington Post, AutoExpress, Whatcar, Les Echos, Twitter{% endraw %}
