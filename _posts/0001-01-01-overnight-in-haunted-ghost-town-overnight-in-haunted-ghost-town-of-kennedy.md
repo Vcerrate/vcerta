@@ -1,0 +1,15 @@
+---
+title: "OVERNIGHT in HAUNTED GHOST TOWN"
+image: "https:\/\/i.ytimg.com\/vi\/pl8JkFO8tz0\/hqdefault.jpg"
+vid_id: "pl8JkFO8tz0"
+categories: "Entertainment"
+tags: ["ghost hunting","ghost adventures","overnight challenge"]
+date: "2022-05-19T00:29:39+03:00"
+vid_date: "2022-05-09T20:01:05Z"
+duration: "PT1H4M47S"
+viewcount: "423984"
+likeCount: "19029"
+dislikeCount: ""
+channel: "OVERNIGHT"
+---
+{% raw %}Overnight in Haunted Ghost Town of Kennedy Mines where we play poker with a spirit that wins all of our money... One of our newest devices is set off for the first time and leaves us speechless...  If you want to join TFIL on a 7+ adventure in different places around the world, check out <a rel="nofollow" target="blank" href="https://www.TravelWithTFIL.com">https://www.TravelWithTFIL.com</a> !  Hope to see you out there!<br /><br />This is location 4 of 30 from our  USA Road Trip series so make sure to subscribe!  Started by TFIL,  the OVERNIGHT channel is dedicated to weekly paranormal investigations at new haunted locations! #OVERNIGHT #PARANORMAL #HAUNTED<br />-----------------------------------------------------------------------------------<br />WIN AN OVERNIGHT INVESTIGATION WITH US! <br />How to Enter!  <br />1) Leave a LIKE &amp; COMMENT on this video! Each video = 1 entry     <br />2) Every $1 spent on SendItSociety.com = 1 Entry<br />-----------------------------------------------------------------------------------<br />FOLLOW US ALL ON SOCIAL MEDIA:<br /><br />ELTON CASTEE<br />IG - <a rel="nofollow" target="blank" href="http://www.instagram.com/EltonCastee">http://www.instagram.com/EltonCastee</a><br />Twitter - <a rel="nofollow" target="blank" href="http://twitter.com/EltonCaste">http://twitter.com/EltonCaste</a><br />YouTube -    @TFIL <br /><br />COREY SCHERER<br />IG - <a rel="nofollow" target="blank" href="https://www.instagram.com/coreyscherer/">https://www.instagram.com/coreyscherer/</a><br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/ItsCoreyScherer">https://twitter.com/ItsCoreyScherer</a><br />Youtube -       @Corey Scherer <br />  <br />MATT RIFE<br />IG - <a rel="nofollow" target="blank" href="https://www.instagram.com/mattrife/">https://www.instagram.com/mattrife/</a><br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/mattrife">https://twitter.com/mattrife</a><br />Youtube -     @Matt Rife <br /><br />EXPLORING WITH JOSH<br />IG - <a rel="nofollow" target="blank" href="https://www.instagram.com/exploringwithjosh/">https://www.instagram.com/exploringwithjosh/</a><br />Twitter - <a rel="nofollow" target="blank" href="https://twitter.com/exploringwithjosh">https://twitter.com/exploringwithjosh</a><br />Youtube -      @Exploring With Josh <br /><br />EVAN BUTKA (The donut demolisher) <br />IG - <a rel="nofollow" target="blank" href="https://www.instagram.com/ebutka/">https://www.instagram.com/ebutka/</a><br />Twitch.tv/ebutka<br /><br />JONAH LEVINE (Camera Guy that keeps getting hurt)<br />IG - <a rel="nofollow" target="blank" href="https://www.instagram.com/jonah_levine">https://www.instagram.com/jonah_levine</a>{% endraw %}
