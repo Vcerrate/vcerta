@@ -1,0 +1,15 @@
+---
+title: "No One Will Expect What's Hiding Under This Layer"
+image: "https:\/\/i.ytimg.com\/vi\/32duc2JZtIM\/hqdefault.jpg"
+vid_id: "32duc2JZtIM"
+categories: "Howto-Style"
+tags: ["scrumdiddlyumptious","scrumdiddlyumptious.com","scrumdiddlyumptious recipe"]
+date: "2022-05-19T12:07:13+03:00"
+vid_date: "2019-04-04T16:00:01Z"
+duration: "PT3M17S"
+viewcount: "39710"
+likeCount: "261"
+dislikeCount: ""
+channel: "Scrumdiddlyumptious"
+---
+{% raw %}Low-Carb Zucchini Lasagna<br />Bookmark Recipe: <a rel="nofollow" target="blank" href="https://www.scrumdiddlyumptious.com/zucchini-lasagna">https://www.scrumdiddlyumptious.com/zucchini-lasagna</a><br /><br />Thanks for watching and don't forget to subscribe for a first-hand look at all our best recipes and cooking hacks! You can find this recipe and the full instructions on our website or below ↓↓.<br /><br />***********************************************************************<br /><br />If you want to indulge without the guilt, then this is the recipe for you! Lasagna is a classic comfort food, but it often leaves us feeling heavy and stuffed, so if you want a lighter version of the hearty casserole, you'll love our low-carb, low-fat recipe featuring cottage cheese and zoodles instead of the ricotta and lasagna sheets. <br /><br />You'll Need:<br /><br />For the tomato sauce:<br /><br />- 1 lb ground meat<br />- 2 garlic cloves, minced<br />- salt &amp; pepper<br />- 1 tbsp tomato paste<br />- 7 fl oz tomato puree<br />- oil for cooking<br /><br />For the béchamel sauce:<br /><br />- 4 tbsp soft butter<br />- 5 tbsp flour<br />- 20 fl oz milk<br />- salt, pepper, &amp; nutmeg<br /><br />Extra:<br /><br />- 5 zucchinis<br />- 18 oz cottage cheese<br />- 10 oz turkey breast<br />- parsley<br /><br />Here's How:<br /><br />1. Preheat the oven to 325°F and heat a pan with a little oil on medium heat. Cut the zucchinis into long strips, season with salt and pepper, and cook on both sides.<br /><br />2. Add the ground meat and garlic to the pan and season with salt and pepper. Once the meat has browned, add the tomato paste and tomato puree and let simmer.<br /><br />3. Cut the turkey breast into long strips and stir in with the cottage cheese.<br /><br />4. Line the bottom of a casserole dish with cooled zucchini strips.<br /><br />5. For the béchamel sauce, melt the butter in a saucepan and add the flour while stirring constantly. Stir in the milk and bring to a boil. Season with salt, pepper, and nutmeg, and pour over the zucchini strips.<br /><br />6. Add another layer of zucchini strips.<br /><br />7. Cover the zucchini strips with the cottage cheese mixture.<br /><br />8. Top the vegetable lasagna with the tomato sauce mixture and cook for 30 minutes.<br /><br />Feel free to garnish with chopped parsley for an even fresher taste!<br /><br />* * * * *<br /><br />You can find the recipe for the Beef &amp; Zucchini Tart featured in the bonus video here: <a rel="nofollow" target="blank" href="https://www.scrumdiddlyumptious.com/beef-and-zucchini-tart">https://www.scrumdiddlyumptious.com/beef-and-zucchini-tart</a>{% endraw %}
