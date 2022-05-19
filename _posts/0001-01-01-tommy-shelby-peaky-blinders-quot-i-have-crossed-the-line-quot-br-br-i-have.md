@@ -1,0 +1,15 @@
+---
+title: "Tommy Shelby | PEAKY BLINDERS"
+image: "https:\/\/i.ytimg.com\/vi\/S1xEDGRFWpo\/hqdefault.jpg"
+vid_id: "S1xEDGRFWpo"
+categories: "Film-Animation"
+tags: ["Thomas shelby","peaky blinders tribute","tommy shelby tribute"]
+date: "2022-05-19T12:36:21+03:00"
+vid_date: "2022-05-18T22:30:49Z"
+duration: "PT7M37S"
+viewcount: "6428"
+likeCount: "761"
+dislikeCount: ""
+channel: "TheGaroStudios"
+---
+{% raw %}&quot;I have crossed the line.&quot;<br /><br />I have to bring you an important update. In pursuing a career in filmmaking, I have sent my applications to various universities and have been admitted to most of them. After careful consideration, I have chosen to study at SDSU starting in September, a Master of Fine Arts in Film and Media Production. I update you on my journey openheartedly, precisely the same way I would speak to my dear friend. It is because you have been with me for years that I can share my successes and failures with commensurate elation or sorrow.<br /><br />However, I have come to some financial difficulties during my arduous mission. It is no news that I come from an unprivileged family, and from a country that has an average family income of $400 per month, but despite all that I have managed to save up about $20k to cover my studies. Yet, I have crashed into a wall too thick and tall to overcome. I find that I would need another at least $20k amount of money to cover most of my university expenses during my first year there. I tell you this now because I have exhausted the other means to acquire the funding. Thus, I must say if you think that I am worthy of a single penny from your pocket, then I implore you to aid me to pursue my dream. <br /><br />I am collecting any amount that you can spare:<br /><a rel="nofollow" target="blank" href="https://www.paypal.me/thegarostudios">https://www.paypal.me/thegarostudios</a><br /><br />If you require a letter for proof of admission, email me at<br />studiosgaro@gmail.com<br />__________________________________________________<br /><br />Peaky Blinders Tribute<br /><br />___________________________________________________<br /><br /><br />*Music: <br /><br />1) Autumn Moon - Eternal Eclipse<br />2) Am I Dreaming Myself - Eternal Eclipse<br />3) All The Tired Horses - Anna Calvi<br /><br />Music by Eternal Eclipse, from the album Fountain of Eternity.<br />Available on:<br />Spotify: <a rel="nofollow" target="blank" href="https://smarturl.it/Fountain_Spotify">https://smarturl.it/Fountain_Spotify</a><br />Apple Music: <a rel="nofollow" target="blank" href="https://smarturl.it/Fountain_Apple">https://smarturl.it/Fountain_Apple</a><br />Amazon: <a rel="nofollow" target="blank" href="https://smarturl.it/Fountain_Amazon">https://smarturl.it/Fountain_Amazon</a><br /><br />Track:<br />Composer: <br /><br />Eternal Eclipse on Facebook: <a rel="nofollow" target="blank" href="https://fb.me/eternaleclipse">https://fb.me/eternaleclipse</a><br /><br />For licensing queries, please contact licensing@eternal-eclipse.com{% endraw %}
