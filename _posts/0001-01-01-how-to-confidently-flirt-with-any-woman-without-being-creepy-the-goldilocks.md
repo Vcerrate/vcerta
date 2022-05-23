@@ -1,0 +1,15 @@
+---
+title: "How to Confidently Flirt With Any Woman WITHOUT Being Creepy | The Goldilocks Rule"
+image: "https:\/\/i.ytimg.com\/vi\/I3N-NiiYJOQ\/hqdefault.jpg"
+vid_id: "I3N-NiiYJOQ"
+categories: "Howto-Style"
+tags: ["how to flirt with women","how to flirt with a girl","how to flirt with women examples"]
+date: "2022-05-24T00:08:34+03:00"
+vid_date: "2022-04-26T19:30:01Z"
+duration: "PT12M1S"
+viewcount: "46381"
+likeCount: "2200"
+dislikeCount: ""
+channel: "Marni Your Personal Wing Girl"
+---
+{% raw %}Get 30% off your first box, plus a FREE gift, when you give Tiege Hanley a try at <a rel="nofollow" target="blank" href="http://tiege.com/marniflirt">http://tiege.com/marniflirt</a><br /><br />Learn to flirt like a pro: <a rel="nofollow" target="blank" href="https://www.winggirlmethod.com/learn_to_use_goldilocks">https://www.winggirlmethod.com/learn_to_use_goldilocks</a><br /><br />In this video Marni shows you how to flirt with any woman without being creepy by using something called the Goldilocks Rule.  If you follow the goldilocks rule you will never be creepy with women again when you are flirting.  Flirting with women just got easier ;)<br /><br />SUBSCRIBE HERE: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/marnikinrys?sub_confirmation=1">https://www.youtube.com/user/marnikinrys?sub_confirmation=1</a><br /><br />MORE MARNI, YOUR PERSONAL WING GIRL (website): <a rel="nofollow" target="blank" href="http://www.winggirlmethod.com">http://www.winggirlmethod.com</a><br /><br />How To Talk To Women &amp; Make Them Want You: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Awx5hgamHrU">https://www.youtube.com/watch?v=Awx5hgamHrU</a><br /><br />What It Means If A Girl Looks At You: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=zVeQ6Vk8y7M">https://www.youtube.com/watch?v=zVeQ6Vk8y7M</a><br /><br />How To Date Beautiful Women, 10 Secrets You Need To Know: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=JmuP5ZWDjOg">https://www.youtube.com/watch?v=JmuP5ZWDjOg</a><br /><br />How To Talk To Women: <a rel="nofollow" target="blank" href="http://www.winggirlmethod.com/how-to-talk-to-women-using-osa/">http://www.winggirlmethod.com/how-to-talk-to-women-using-osa/</a><br /><br />TWITTER: <a rel="nofollow" target="blank" href="https://twitter.com/winggirlmethod">https://twitter.com/winggirlmethod</a><br />PODCAST: <a rel="nofollow" target="blank" href="http://www.winggirlmethod.com/podcast">http://www.winggirlmethod.com/podcast</a><br /><br />MORE TIPS, ADVICE &amp; SECRETS ABOUT WOMEN: <a rel="nofollow" target="blank" href="http://www.winggirlmethod.com">http://www.winggirlmethod.com</a><br /><br />Top dating advice for men coming directly from a woman! Marni is now your personal Wing Girl and she's going to tell you how to attract women, date women, seduce women and get any woman you want.  She's helped 100's of thousands of men around the world be more confident with women so they can make women want them. Now she'll do the same for you!{% endraw %}
