@@ -1,0 +1,15 @@
+---
+title: "eevBLAB 97 - Is Apple Serious About Right To Repair? (The Verge)"
+image: "https:\/\/i.ytimg.com\/vi\/GHbo4v8pahc\/hqdefault.jpg"
+vid_id: "GHbo4v8pahc"
+categories: "Science-Technology"
+tags: ["eevblog","right to repair","the verge"]
+date: "2022-05-23T13:28:58+03:00"
+vid_date: "2022-05-23T06:45:34Z"
+duration: "PT19M46S"
+viewcount: "6342"
+likeCount: "550"
+dislikeCount: ""
+channel: "EEVblog"
+---
+{% raw %}The Verge just took Apple to task over their new authorised repair tools, manuals and parts as part of Right to Repair. Are they giving Apple a fair suck of the sav?<br /><br /><a rel="nofollow" target="blank" href="https://www.theverge.com/2022/5/21/23079058/apple-self-service-iphone-repair-kit-hands-on">https://www.theverge.com/2022/5/21/23079058/apple-self-service-iphone-repair-kit-hands-on</a><br />Apple press release on self service: <a rel="nofollow" target="blank" href="https://www.apple.com/newsroom/2022/04/apples-self-service-repair-now-available/">https://www.apple.com/newsroom/2022/04/apples-self-service-repair-now-available/</a><br />Apple service manuals: <a rel="nofollow" target="blank" href="https://support.apple.com/self-service-repair">https://support.apple.com/self-service-repair</a><br />Apple repair parts store: <a rel="nofollow" target="blank" href="https://selfservicerepair.com/">https://selfservicerepair.com/</a><br />Paul Daniels FlexBV board view software: <a rel="nofollow" target="blank" href="http://pldaniels.com/">http://pldaniels.com/</a><br />Louis Rossmann: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/rossmanngroup">https://www.youtube.com/user/rossmanngroup</a><br /><br />Forum: <a rel="nofollow" target="blank" href="https://www.eevblog.com/forum/blog/eevblab-97-is-apple-serious-about-right-to-repair-(the-verge)/">https://www.eevblog.com/forum/blog/eevblab-97-is-apple-serious-about-right-to-repair-(the-verge)/</a><br /><br />Support the EEVblog on:<br />Patreon: <a rel="nofollow" target="blank" href="http://www.patreon.com/eevblog">http://www.patreon.com/eevblog</a><br />Odysee: <a rel="nofollow" target="blank" href="https://odysee.com/@eevblog:7">https://odysee.com/@eevblog:7</a><br />Web Site: <a rel="nofollow" target="blank" href="http://www.eevblog.com">http://www.eevblog.com</a><br />EEVblog2: <a rel="nofollow" target="blank" href="http://www.youtube.com/EEVblog2">http://www.youtube.com/EEVblog2</a><br />EEVdiscover: <a rel="nofollow" target="blank" href="https://www.youtube.com/eevdiscover">https://www.youtube.com/eevdiscover</a><br /><br />AliExpress Affiliate: <a rel="nofollow" target="blank" href="http://s.click.aliexpress.com/e/c2LRpe8g">http://s.click.aliexpress.com/e/c2LRpe8g</a><br />Buy anything through that link and Dave gets a commission at no cost to you.<br /><br />Donate With Bitcoin &amp; Other Crypto Currencies!<br /><a rel="nofollow" target="blank" href="https://www.eevblog.com/crypto-currency/">https://www.eevblog.com/crypto-currency/</a><br />T-Shirts: <a rel="nofollow" target="blank" href="http://teespring.com/stores/eevblog">http://teespring.com/stores/eevblog</a><br />#ElectronicsCreators #Apple #Right2Repair{% endraw %}
