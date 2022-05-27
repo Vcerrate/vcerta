@@ -1,0 +1,15 @@
+---
+title: "Automakers Want to Sell Directly to Consumers + Car Dealer Sued"
+image: "https:\/\/i.ytimg.com\/vi\/0P3xzJkap80\/hqdefault.jpg"
+vid_id: "0P3xzJkap80"
+categories: "Autos-Vehicles"
+tags: ["Automakers","Directly","Consumers"]
+date: "2022-05-27T17:43:27+03:00"
+vid_date: "2022-05-26T16:38:42Z"
+duration: "PT32M28S"
+viewcount: "17196"
+likeCount: "578"
+dislikeCount: ""
+channel: "Ray and Zach"
+---
+{% raw %}🚗 Search for cars on YAA:<br /><br />⮕ <a rel="nofollow" target="blank" href="https://joinyaa.com/cars">https://joinyaa.com/cars</a><br /><br /><br /><br />🧰Get your FREE extended warranty quote:<br /><br />⮕ <a rel="nofollow" target="blank" href="https://joinyaa.com/extended-warranty">https://joinyaa.com/extended-warranty</a><br /><br /><br /><br />⚡ Subscribe to YAA Electric<br /><br />⮕ <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCsgkwn0HaUpbS0H_RnreNkw">https://www.youtube.com/channel/UCsgkwn0HaUpbS0H_RnreNkw</a><br /><br /><br /><br />Check out the YAA podcast on Spotify:<br /><br />⮕ <a rel="nofollow" target="blank" href="https://open.spotify.com/show/5Mv58R6yJJnEDHZ5Zuy2SZ?si=33c98bb5bdf847a2&amp;nd=1">https://open.spotify.com/show/5Mv58R6yJJnEDHZ5Zuy2SZ?si=33c98bb5bdf847a2&amp;nd=1</a><br /><br /><br /><br />Check out the YAA podcast on Apple Podcasts:<br /><br />⮕ <a rel="nofollow" target="blank" href="https://podcasts.apple.com/us/podcast/daily-news-you-can-use-from-yaa/id1521589583">https://podcasts.apple.com/us/podcast/daily-news-you-can-use-from-yaa/id1521589583</a><br /><br /><br /><br />Follow us on IG:<br /><br />⮕ <a rel="nofollow" target="blank" href="https://www.instagram.com/rasisjaz/">https://www.instagram.com/rasisjaz/</a><br /><br />⮕ <a rel="nofollow" target="blank" href="https://www.instagram.com/shefska/">https://www.instagram.com/shefska/</a><br /><br />⮕ <a rel="nofollow" target="blank" href="https://www.instagram.com/youradvocatealliance/">https://www.instagram.com/youradvocatealliance/</a><br /><br /><br /><br />Follow us on TikTok:<br /><br />⮕ <a rel="nofollow" target="blank" href="https://www.tiktok.com/@zachshefska">https://www.tiktok.com/@zachshefska</a><br /><br /><br /><br />Follow us on Twitter:<br /><br />⮕ <a rel="nofollow" target="blank" href="https://www.twitter.com/join_yaa">https://www.twitter.com/join_yaa</a><br /><br />⮕ <a rel="nofollow" target="blank" href="https://twitter.com/shefska">https://twitter.com/shefska</a><br /><br /><br /><br />Follow us on Twitch:<br /><br />⮕ <a rel="nofollow" target="blank" href="https://www.twitch.tv/youradvocatealliance">https://www.twitch.tv/youradvocatealliance</a><br /><br /><br /><br />Today on Daily News You Can Use, Ray and Zach discuss Volkswagen's decision to retail vehicles under the &quot;Scout&quot; brand. It is unclear whether these vehicles will be sold by VW dealers or the OEM themself. It appears to be a move to distance VW from their dealers. Plus a Kia dealer is sued over adverse action notice. Tune in for more!{% endraw %}
