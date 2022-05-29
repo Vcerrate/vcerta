@@ -1,0 +1,15 @@
+---
+title: "everything I read in May (it was a lot)"
+image: "https:\/\/i.ytimg.com\/vi\/a9NLsQ8_sTA\/hqdefault.jpg"
+vid_id: "a9NLsQ8_sTA"
+categories: "Entertainment"
+tags: ["everything"]
+date: "2022-05-30T01:13:43+03:00"
+vid_date: "2022-05-29T15:29:02Z"
+duration: "PT36M1S"
+viewcount: "12327"
+likeCount: "1261"
+dislikeCount: ""
+channel: "* e m m i e *"
+---
+{% raw %}hi! welcome to a big ramble through the 15 books I got through in May xx<br /><br />In this video...<br />The Pearl <a rel="nofollow" target="blank" href="https://tidd.ly/3876OZE">https://tidd.ly/3876OZE</a><br />@CarolynMarieReads <br />The City of Brass <a rel="nofollow" target="blank" href="https://tidd.ly/3kDkfn2">https://tidd.ly/3kDkfn2</a><br />@crescentpages <br />Graceling <a rel="nofollow" target="blank" href="https://tidd.ly/3vUsSi0">https://tidd.ly/3vUsSi0</a><br />Kitchen Princess <a rel="nofollow" target="blank" href="https://tidd.ly/3vFyVbB">https://tidd.ly/3vFyVbB</a><br />Pedro Paramo <a rel="nofollow" target="blank" href="https://tidd.ly/3I7VpWg">https://tidd.ly/3I7VpWg</a><br />Heartstopper <a rel="nofollow" target="blank" href="https://tidd.ly/3LXIKHv">https://tidd.ly/3LXIKHv</a><br />Upstream <a rel="nofollow" target="blank" href="https://tidd.ly/39cNASQ">https://tidd.ly/39cNASQ</a><br />Hugo <a rel="nofollow" target="blank" href="https://tidd.ly/3L0HGBd">https://tidd.ly/3L0HGBd</a><br />Eric <a rel="nofollow" target="blank" href="https://tidd.ly/3L2pVS8">https://tidd.ly/3L2pVS8</a><br />@Jen Campbell <br />Mirabai's Ecstatic Poems <a rel="nofollow" target="blank" href="https://tidd.ly/3yJY07h">https://tidd.ly/3yJY07h</a><br />Poison for Breakfast <a rel="nofollow" target="blank" href="https://tidd.ly/3w0zgpb">https://tidd.ly/3w0zgpb</a><br />Beautiful Nightmares <a rel="nofollow" target="blank" href="https://tidd.ly/35JLUP9">https://tidd.ly/35JLUP9</a><br />XOXO <a rel="nofollow" target="blank" href="https://tidd.ly/3MUJUUg">https://tidd.ly/3MUJUUg</a><br /><br /> *if you'd like to use my book depository affiliate link to check out any of the books mentioned and support my channel it's below! <a rel="nofollow" target="blank" href="https://www.awin1.com/cread.php?awinmid=5478&amp;awinaffid=777945&amp;clickref=&amp;ued=">https://www.awin1.com/cread.php?awinmid=5478&amp;awinaffid=777945&amp;clickref=&amp;ued=</a> <br /><br />🏺I also exist in these places 🏺<br /> ASMR CHANNEL <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC0qIaD8rmMo5YiPvMeOQs0w">https://www.youtube.com/channel/UC0qIaD8rmMo5YiPvMeOQs0w</a><br /> GOODREADS: <a rel="nofollow" target="blank" href="https://www.goodreads.com/user/show/10795588-emma">https://www.goodreads.com/user/show/10795588-emma</a> <br />INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/emmie.reads/">https://www.instagram.com/emmie.reads/</a><br /> BUSINESS: emmacrest59@gmail.com <br /><br />Want to send me something? <br />Emma <br />509 Commissioners Road West # 517<br />London, ON N6J 1Y5<br /> Canada{% endraw %}
