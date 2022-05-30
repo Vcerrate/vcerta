@@ -1,0 +1,15 @@
+---
+title: "Poisons and Venoms and Toxins, Oh My!"
+image: "https:\/\/i.ytimg.com\/vi\/i8I0xKAjqhM\/hqdefault.jpg"
+vid_id: "i8I0xKAjqhM"
+categories: "Education"
+tags: ["SciShow","science","Hank"]
+date: "2022-05-31T00:22:51+03:00"
+vid_date: "2021-06-27T21:00:13Z"
+duration: "PT24M18S"
+viewcount: "376916"
+likeCount: "10209"
+dislikeCount: ""
+channel: "SciShow"
+---
+{% raw %}From daffodils to dangerous snakes, toxins are everywhere. Here's a collection of episodes about our favorite poisonous, venomous, and generally toxic organisms.<br /><br />Hosted by: Stefan Chin<br /><br />SciShow has a spinoff podcast! It's called SciShow Tangents. Check it out at <a rel="nofollow" target="blank" href="http://www.scishowtangents.org">http://www.scishowtangents.org</a><br />----------<br />Support SciShow by becoming a patron on Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/scishow">https://www.patreon.com/scishow</a><br />----------<br />Huge thanks go to the following Patreon supporters for helping us keep SciShow free for everyone forever:<br /><br />Alisa Sherbow, Silas Emrys, Drew Hart. Jeffrey Mckishen, James Knight, Christoph Schwanke, Jacob, Matt Curls, Christopher R Boucher, Eric Jensen, Adam Brainard, Nazara, GrowingViolet, Ash, Sam Lutfi, Piya Shedden, KatieMarie Magnone, charles george, Alex Hackman, Chris Peters, Kevin Bealer, Jason A Saslow<br /><br />----------<br />Looking for SciShow elsewhere on the internet?<br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/scishow">http://www.facebook.com/scishow</a><br />Twitter: <a rel="nofollow" target="blank" href="http://www.twitter.com/scishow">http://www.twitter.com/scishow</a><br />Tumblr: <a rel="nofollow" target="blank" href="http://scishow.tumblr.com">http://scishow.tumblr.com</a><br />Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/thescishow">http://instagram.com/thescishow</a><br />----------<br />Original Videos:<br />Good News: Daffodils Are The Worst: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=FPflWdsCRdE">https://www.youtube.com/watch?v=FPflWdsCRdE</a><br />The Oversized Invasive Carrot That Can Give You Third Degree Burns: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=WuEuFTc2aJo">https://www.youtube.com/watch?v=WuEuFTc2aJo</a><br />The Little Apple of Death: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=J1u460b_hrI">https://www.youtube.com/watch?v=J1u460b_hrI</a><br />Poor, Misunderstood Poison Ivy: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=zKEAyXRKa0A">https://www.youtube.com/watch?v=zKEAyXRKa0A</a><br />Behold—Poisonous Snakes! (Yes, You Read That Right): <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=7xGWzikzKUA">https://www.youtube.com/watch?v=7xGWzikzKUA</a><br />Can You Drink Snake Venom?: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=AxS0m00jFOA">https://www.youtube.com/watch?v=AxS0m00jFOA</a>{% endraw %}
