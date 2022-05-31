@@ -1,0 +1,15 @@
+---
+title: "How Much Salary You Need To Live In Singapore | TDK Podcast #99"
+image: "https:\/\/i.ytimg.com\/vi\/hMibGOMzQ38\/hqdefault.jpg"
+vid_id: "hMibGOMzQ38"
+categories: "Entertainment"
+tags: ["the daily ketchup","the daily ketchup podcast","jknews"]
+date: "2022-05-31T06:06:00+03:00"
+vid_date: "2022-05-30T10:54:39Z"
+duration: "PT37M50S"
+viewcount: "19986"
+likeCount: "465"
+dislikeCount: ""
+channel: "The Daily Ketchup Podcast"
+---
+{% raw %}Daiso is no longer $2. Is Inflation Real? What's the real cost of living in Singapore?<br /><br />*Households who need more help can visit their nearest Social Service Office or call the ComCare hotline at 1800-222-0000*<br /><br />The views and the opinions are that of the cast members.<br />-<br /><br />The Daily Ketchup Podcast is powered by Logitech For Creators. Find out more here: <a rel="nofollow" target="blank" href="https://www.logitech.com/en-sg/creators/who-we-are.html">https://www.logitech.com/en-sg/creators/who-we-are.html</a><br /><br />Get up to $30 off at Ergotune with promo code &quot;22+GRVTY&quot;: <a rel="nofollow" target="blank" href="https://ergotune.com/?ref=GRVTY">https://ergotune.com/?ref=GRVTY</a><br /><br />Get up to $45 off at EverDesk+ with promo code &quot;22+GRVTY&quot;: <a rel="nofollow" target="blank" href="https://everdeskplus.com/?ref=GRVTY">https://everdeskplus.com/?ref=GRVTY</a><br /><br />Subscribe for more content like this: <a rel="nofollow" target="blank" href="https://bit.ly/dailyketchup">https://bit.ly/dailyketchup</a><br /><br />We're also on Spotify: <a rel="nofollow" target="blank" href="https://bit.ly/dailyketchupSpot">https://bit.ly/dailyketchupSpot</a><br /><br />If you have any stories to share, let us know here: <a rel="nofollow" target="blank" href="https://forms.gle/XRRtnMG1w56M8yrFA">https://forms.gle/XRRtnMG1w56M8yrFA</a><br /><br />=====<br /><br />Follow Us On Our Socials<br />• Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/mosg.tv">https://www.facebook.com/mosg.tv</a><br />• Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/dailyketchup">https://www.instagram.com/dailyketchup</a><br />• Website: <a rel="nofollow" target="blank" href="https://mosg.tv">https://mosg.tv</a><br /><br />Cast:<br />• Johnathan Chua <a rel="nofollow" target="blank" href="https://instagram.com/johnathanchua/">https://instagram.com/johnathanchua/</a><br />• Daniel Lim <a rel="nofollow" target="blank" href="https://instagram.com/danlim11/">https://instagram.com/danlim11/</a><br />• Jonathan Paul <a rel="nofollow" target="blank" href="https://instagram.com/jonathanpaul.sxw/">https://instagram.com/jonathanpaul.sxw/</a><br />• Denise Oh <a rel="nofollow" target="blank" href="https://instagram.com/ohthedenise/">https://instagram.com/ohthedenise/</a><br /><br />Behind the Cam:<br />• Nashrul Merza<br />• Julian Chin<br />• Keith Kok<br />• Daren Khek<br />• Charlene Goh<br /><br />Edited by:<br />Daniel See{% endraw %}
