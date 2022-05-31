@@ -1,0 +1,15 @@
+---
+title: "Making Parts for CAT D10 Dozer | Machining & Milling"
+image: "https:\/\/i.ytimg.com\/vi\/UnUgUb2VHJ8\/hqdefault.jpg"
+vid_id: "UnUgUb2VHJ8"
+categories: "Science-Technology"
+tags: ["cutting edge engineering australia","machinist in australia","machininst"]
+date: "2022-05-31T07:16:10+03:00"
+vid_date: "2022-05-20T07:00:14Z"
+duration: "PT36M36S"
+viewcount: "438923"
+likeCount: "19627"
+dislikeCount: ""
+channel: "Cutting Edge Engineering Australia"
+---
+{% raw %}In this video we are making Equalizer Bar Ends to go on a Caterpillar D10 Dozer. The bar ends are used as replacements when an equalizer bar gets damaged. We have four to make and show the step by step process to turn high tensile plate into the completed parts. We start with machining and boring the parts on the lathe and also cut the snap ring grooves. Then it’s over to the milling machine for face cutting, drilling and tapping of the holes for the grease ports. The parts are finished off with a clean up &amp; anti-rust spray. We will be keeping one of the completed ends for an upcoming repair job so keep your eye out for that!<br /><br />In this video we are using: <br />- Hafco TM-26120G Lathe<br />- Hafco BM-63VE Milling machine<br /><br />Join our channel:<br />We upload new videos every Friday at 5pm AEST! If you want to see more of our videos click LIKE &amp; SUBSCRIBE! You can subscribe to our channel here: <a rel="nofollow" target="blank" href="https://bit.ly/ceesubscribe">https://bit.ly/ceesubscribe</a> <br /><br />To see more follow us on online here: <br />TikTok: <a rel="nofollow" target="blank" href="https://vt.tiktok.com/ZSdHhtN4h/">https://vt.tiktok.com/ZSdHhtN4h/</a><br />Instagram <a rel="nofollow" target="blank" href="https://instagram.com/cutting_edge_engineering">https://instagram.com/cutting_edge_engineering</a> <br />Facebook <a rel="nofollow" target="blank" href="https://www.facebook.com/cuttingedgeengineeringaustralia/">https://www.facebook.com/cuttingedgeengineeringaustralia/</a> <br /><br />Official CEE Merch shop: <a rel="nofollow" target="blank" href="https://www.ceeshop.com.au">https://www.ceeshop.com.au</a><br /><br />About Us:<br />Our channel is all about showing you real life machining work from our workshop on the Gold Coast Australia. We specialize in manual machining, hydraulic repairs and heavy fabrication for the earth moving, mining and civil construction industries. So if you're a machinist that wants to see some big gear in action be sure to subscribe to our channel right now. We upload new videos every week that show lathe machining, milling, welding and all the good stuff that comes from a machining workshop. If that sounds like something that you would enjoy seeing, then make sure to join us by subscribing! <br /><br />Music: <a rel="nofollow" target="blank" href="https://www.epidemicsound.com/referral/rccrvr/">https://www.epidemicsound.com/referral/rccrvr/</a><br /><br />#australianmachinist #machineshop #machinist{% endraw %}
