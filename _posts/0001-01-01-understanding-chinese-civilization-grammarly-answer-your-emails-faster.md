@@ -1,0 +1,15 @@
+---
+title: "Understanding Chinese Civilization."
+image: "https:\/\/i.ytimg.com\/vi\/Kf8XIxX7NEs\/hqdefault.jpg"
+vid_id: "Kf8XIxX7NEs"
+categories: "Education"
+tags: ["Dsadsasda","Premiere_Elements_2021"]
+date: "2022-05-31T22:06:45+03:00"
+vid_date: "2022-05-30T17:41:50Z"
+duration: "PT30M50S"
+viewcount: "105701"
+likeCount: "7499"
+dislikeCount: ""
+channel: "Whatifalthist"
+---
+{% raw %}#Grammarly Answer your emails faster, in the appropriate tone, and confidently with Grammarly! Go to <a rel="nofollow" target="blank" href="https://grammarly.com/whatifalthist">https://grammarly.com/whatifalthist</a> to sign up for a FREE account and get 20% off Premium!<br /><br />Check out Pearl:<a rel="nofollow" target="blank" href="https://pages.viral-loops.com/whatifa...">https://pages.viral-loops.com/whatifa...</a><br />Check out Pillar:<a rel="nofollow" target="blank" href="https://pillar.io/whatifalthist">https://pillar.io/whatifalthist</a><br />Instagram: Rudyard William Lynch (@rudyardwlynch) • Instagram photos ...<a rel="nofollow" target="blank" href="https://www.instagram.com">https://www.instagram.com</a> › rudyardwlynch<br />Twitter:<a rel="nofollow" target="blank" href="https://twitter.com/whatifalthist?ref...">https://twitter.com/whatifalthist?ref...</a><br />Patreon, First 200 pages of cultural history of America and 400 of history of the new world alongside exclusive maps:<a rel="nofollow" target="blank" href="https://www.patreon.com">https://www.patreon.com</a> › whatifalthist<br /><a rel="nofollow" target="blank" href="https://pages.viral-loops.com/whatifa...">https://pages.viral-loops.com/whatifa...</a><br /><br />Bibliography:<br />The Soul of China by Amaury de Riencourt<br />The Weirdest People in the World by Joseph Heinrech<br />Inside Asia by John Gunther<br />Debt a 5,000 year history by David Graeber<br />The Origins of Political Order  by Francis Fukuyama <br />A History of Russia, Central Asia and Mongolia by David Christian<br />Sex and Power in History by Amaury de Riencourt<br />The Invention of Yesterday by Tamim Ansary<br />The Year 1,000 by Valerie Hansen<br />War in Human Civilization by Azar Gat<br />Cambridge Illustrated History of China by Ebrey<br />Fighting Techniques of the Oriental World by Rob Rice<br />Autumn in the Heavenly Kingdom by Stephen Platt<br />The Sea and Civilization by Lincoln Paine<br />The Dynasties of China by Bamber Gasogne<br />China: A History by John Keay<br />Our Oriental Heritage by Will Durant<br />The History of the Ancient World by Susan Wise Bauer<br />The History of the Medieval World by Susan Wise Bauer<br />Atrocities by Matthew White<br />Rise of the West by McNeil<br />False Economy by Alan Beattie<br />Plagues and Peoples by McNeil<br />The Pursuit of Power by McNeil<br />The 3D Gospel: Ministry in Shame, Guilt and Fear Cultures by Jayson Georges<br />Ways of Thinking of Eastern Peoples by Nakamura<br />The Culture Map by Erin Meyer<br />Who We Are and How We got Here by David Reich<br />Before European Hegemony by Abu Lughod<br />A History of Civilizations by Fernand Braudel{% endraw %}
