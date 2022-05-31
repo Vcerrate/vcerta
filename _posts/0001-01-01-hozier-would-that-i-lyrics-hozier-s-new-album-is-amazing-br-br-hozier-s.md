@@ -1,0 +1,15 @@
+---
+title: "Hozier \/\/ Would That I - Lyrics"
+image: "https:\/\/i.ytimg.com\/vi\/_n7rkMnxgyU\/hqdefault.jpg"
+vid_id: "_n7rkMnxgyU"
+categories: "Music"
+tags: ["music","lyrics","hozier"]
+date: "2022-05-31T04:26:45+03:00"
+vid_date: "2019-03-09T17:13:29Z"
+duration: "PT4M29S"
+viewcount: "43595"
+likeCount: "902"
+dislikeCount: ""
+channel: "Cate H"
+---
+{% raw %}Hozier's new album is amazing!<br /><br />Hozier's channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCwAam3W_VLfb6mEKPW2nDFg">https://www.youtube.com/channel/UCwAam3W_VLfb6mEKPW2nDFg</a><br /><br /><br /><br /><br /><br />Lyrics:<br /><br />True that I saw her hair like the branch of a tree<br />A willow dancing on air before covering me<br />Under cotton and calicos<br />Over canopy dapple long ago<br /><br />True that love in withdrawal was the weeping of me<br />That the sound of the saw must be known by the tree<br />Must be felled for to fight the cold<br />Fretted fire but that was long ago<br /><br />[Chorus]<br />It's not tonight (Oh, oh)<br />Where I'm set alight (Oh, oh)<br />And I blink in sight (Oh, oh)<br />Of your blinding light (Oh, oh)<br />Oh, it's not tonight (Oh, oh)<br />Where you hold me tight (Oh, oh)<br />And the fire bright (Oh, oh)<br />Oh, let it blaze alright (Oh, oh)<br />Oh, but you're good to me, oh, you're good to me (Oh, oh)<br />Oh, but you're good to me, baby (Oh, oh)<br /><br />[Verse 2]<br />With the roar of the fire, my heart rose to its feet<br />Like the ashes of ash I saw rise in the heat<br />Settle soft and as pure as snow<br />I fell in love with the fire long ago<br /><br />With each love I cut loose, I was never the same<br />Watching still-living roots be consumed by the flame<br />I was fixed on your hand of gold<br />Laying waste to my lovin' long ago<br /><br />[Chorus]<br />But that's not tonight (Oh, oh)<br />Where I'm set alight (Oh, oh)<br />And I blink in sight (Oh, oh)<br />Of your blinding light (Oh, oh)<br />And it's not tonight (Oh, oh)<br />Where you hold me tight (Oh, oh)<br />And the fire bright (Oh, oh)<br />Oh, let it blaze alright, honey (Oh, oh)<br />Oh, but you're good to me, oh, you're good to me (Oh, oh)<br />Oh, but you're good to me, baby (Oh, oh)<br /><br />[Verse 3]<br />So in awe, there I stood as you licked off the grain<br />Though I've handled the wood, I still worship the flame<br />As long as amber of ember glows<br />All the &quot;would&quot; that I'd loved is long ago<br /><br />[Chorus]<br />And it's not tonight (Oh, oh)<br />Where I'm set alight (Oh, oh)<br />And I blink in sight (Oh, oh)<br />Of your blinding light (Oh, oh)<br />Oh, it's not tonight (Oh, oh)<br />Where you hold me tight (Oh, oh)<br />And the fire bright (Oh, oh)<br />Oh, let it blaze alright (Oh, oh)<br />Oh, you're good to me, oh, you're good to me (Oh, oh)<br />Oh, but you're good to me (Oh, oh)<br />Oh, oh, you're good to me, you're good to me (Oh, oh)<br />Oh, but you're good to me, baby (Oh, oh){% endraw %}
