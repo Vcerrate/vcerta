@@ -1,0 +1,15 @@
+---
+title: "Grey256 - Safe (Official Video)"
+image: "https:\/\/i.ytimg.com\/vi\/lFFdN2dyH-Q\/hqdefault.jpg"
+vid_id: "lFFdN2dyH-Q"
+categories: "Music"
+tags: ["safe","grey256","grey"]
+date: "2022-06-01T11:41:35+03:00"
+vid_date: "2022-05-04T12:27:33Z"
+duration: "PT2M13S"
+viewcount: "362161"
+likeCount: "10605"
+dislikeCount: ""
+channel: "Grey256"
+---
+{% raw %}Grey256 - Safe (Official Video)<br /><br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/album/2NCrt2cyBjDLM9Gbh4fcjh?si=AVFzD1oLSrqJtCV-9Kc_Rg">https://open.spotify.com/album/2NCrt2cyBjDLM9Gbh4fcjh?si=AVFzD1oLSrqJtCV-9Kc_Rg</a><br /><br />Merch a CDs: <a rel="nofollow" target="blank" href="https://www.grey256.cz/shop/">https://www.grey256.cz/shop/</a><br /><br />Music by Grey256, Hellion<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/whothefuckis_grey/">https://www.instagram.com/whothefuckis_grey/</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/1hellion_/">https://www.instagram.com/1hellion_/</a><br /><br /><br />Sound by Grey256<br /><br />Video by NoWhy Production<br /><a rel="nofollow" target="blank" href="https://instagram.com/nowhyproduction/">https://instagram.com/nowhyproduction/</a><br /><br />Directed by Jiří Šantrůček<br /><a rel="nofollow" target="blank" href="https://instagram.com/jiriksantrucek/">https://instagram.com/jiriksantrucek/</a><br /><br />Nissan S13, special thanks to DJ Lucky Boy<br /><a rel="nofollow" target="blank" href="https://instagram.com/djluckyboy/">https://instagram.com/djluckyboy/</a><br /><br />TEXT:<br /><br /> Já nabírám rychlost<br />200 kilometrů<br />Počkej, dám pit stop<br />Znám správnou cestu<br />Nejsem sám, zase s ní<br />Vydělávám, když spí<br />Já nabírám rychlost<br />200 kilometrů<br />Počkej, dám pit stop<br />Znám správnou cestu<br />Nejsem sám, zase s ní<br />Vydělávám, když spí<br /><br />Když ona usíná, já dělám love, říká mi “Buď safe.”<br />Řikám oukej, ale nejdřív musíme naplnit safe<br />Dávám save, uložim si tady game, můžu to načíst<br />Teď je to v pohodě, tak lets go, můžeme začít<br /><br />Já vidim future, 21 a krku a nejsem Savage<br />Potřebuju dobrou holku, nechci žádnou tupou bad b*tch<br />Je to over, byla to fáze<br />Miluju tě? Spíš ne, jenom prázdný fráze <br />Řek jsem “Chci pětku do garáže, postavit si velkej barák.<br />Můžeš u toho bejt se mnou, víš, já klidně se postarám.”<br />Všechno to zvládnem, jediný, co chci - věrnost<br />Vidim do dálky, dřív před očima černo<br /><br />Prošel jsem mrak<br />Prošel kouř<br />Byl jsem vysoko i low<br />Řek jsem, že umim dělat love, ale fakt neumim lásku<br />Prošel jsem mrak<br />Prošel kouř<br />Byl jsem vysoko i low<br />Řek jsem, že umim dělat love, pak jsi přisla ty…<br /><br />Já nabírám rychlost<br />200 kilometrů<br />Počkej, dám pit stop<br />Znám správnou cestu<br />Nejsem sám, zase s ní<br />Vydělávám, když spí<br />Já nabírám rychlost<br />200 kilometrů<br />Počkej, dám pit stop<br />Znám správnou cestu<br />Nejsem sám, zase s ní<br />Vydělávám, když spí<br /><br /><br /><br /><br />#mladejhladovej2 #safe #grey256{% endraw %}
