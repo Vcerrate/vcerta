@@ -1,0 +1,15 @@
+---
+title: "Pro Speedrunner tries Mario Odyssey Hide and Seek"
+image: "https:\/\/i.ytimg.com\/vi\/-ZPefjwTUVI\/hqdefault.jpg"
+vid_id: "-ZPefjwTUVI"
+categories: "Entertainment"
+tags: ["super mario odyssey","speedrun","mario odyssey"]
+date: "2022-06-02T13:23:03+03:00"
+vid_date: "2022-05-25T20:36:15Z"
+duration: "PT29M46S"
+viewcount: "58509"
+likeCount: "2789"
+dislikeCount: ""
+channel: "Simply"
+---
+{% raw %}Smallant invited me to an intense 8 player Mario Odyssey Hide and Seek! Will my Mario 64 speedrunning skills help me out?<br /><br />TIMESTAMPS: <br />0:00 - Intro<br />0:40 - Round 1: Lost Kingdom<br />2:57 - Round 2: Ruined Kingdom<br />5:32 - Round 3: Cascade Kingdom<br />9:06 - Round 4: Metro Kingdom<br />15:08 - Round 5: Luncheon Kingdom<br />18:15 - Round 6: Wooded Kingdom<br />24:05 - Final Round: Moon Kingdom<br />29:02 - Mario Hide and Seek Winner<br /><br />merch ► <a rel="nofollow" target="blank" href="https://simply64store.com/">https://simply64store.com/</a><br />twitch ► <a rel="nofollow" target="blank" href="https://twitch.tv/simply">https://twitch.tv/simply</a><br />twitter ► <a rel="nofollow" target="blank" href="https://www.twitter.com/SIMPLYN64">https://www.twitter.com/SIMPLYN64</a><br />soundcloud ► <a rel="nofollow" target="blank" href="https://soundcloud.com/simply64">https://soundcloud.com/simply64</a><br /><br />I played with: <br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/smallant">https://www.twitch.tv/smallant</a> @SmallAnt <br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/cjya">https://www.twitch.tv/cjya</a> @cjya <br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/craftyboss">https://www.twitch.tv/craftyboss</a> @CraftyBoss <br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/fearsomefire">https://www.twitch.tv/fearsomefire</a> @FearsomeFire <br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/fir_">https://www.twitch.tv/fir_</a> @simplyfir <br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/katiepunch">https://www.twitch.tv/katiepunch</a> @Katiepunch <br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/bbytesizedd">https://www.twitch.tv/bbytesizedd</a> @bbytesizedd <br /><br />HIDE and SEEK vs SUPER MARIO 64 PRO. Simply joins Smallant and friends to play some Super Mario Odyssey online multiplayer. Hide and Seek / Hide N Seek is SO FUN and INTENSE with Seekers doing Speedrun Skips to catch you. I had the Super Mario 64 120 Star World Record, will it be able to help me in Mario Odyssey Online Multiplayer? Online Multiplayer in Mario Odyssey just got WEIRDER and BIGGER with Simply joining the group! <br /><br />Thumbnail by gleasn<br /><a rel="nofollow" target="blank" href="https://twitter.com/gleasn">https://twitter.com/gleasn</a><br /><br />Edited by eriksenchee<br /><a rel="nofollow" target="blank" href="https://twitter.com/eriksenchee">https://twitter.com/eriksenchee</a><br /><br />#smallant #simply #hideandseek{% endraw %}
