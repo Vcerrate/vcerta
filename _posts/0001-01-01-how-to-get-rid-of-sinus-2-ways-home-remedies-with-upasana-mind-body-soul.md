@@ -1,0 +1,15 @@
+---
+title: "How To Get Rid Of Sinus – 2 Ways | Home Remedies with Upasana | Mind Body Soul"
+image: "https:\/\/i.ytimg.com\/vi\/Rw07sEsoUu8\/hqdefault.jpg"
+vid_id: "Rw07sEsoUu8"
+categories: "Howto-Style"
+tags: ["home remedy for sinus","home remedy for sinus infection","home remedy for sinus headache"]
+date: "2022-06-02T05:22:14+03:00"
+vid_date: "2016-11-14T10:20:40Z"
+duration: "PT3M33S"
+viewcount: "389069"
+likeCount: "6049"
+dislikeCount: ""
+channel: "Mind Body Soul"
+---
+{% raw %}Medically known as sinusitis, a sinus infection occurs when your nasal cavities become swollen and inflamed. Watch this video and know simple and quick home remedy tips to get rid of sinus instantly!<br /><br />Method 1 :<br /><br />Roast 1tsp of cumin with 7 to 8 black peppercorns.<br />Crush them slightly and mix it with 1 tsp of honey.<br />Have it 2 to 3 time during the day.<br /><br />Method 2 :<br /><br />Mix 2 tbsp fenugreek seeds,  7 to 8 black peppercorns, 1 tsp cinnamon powder and 1 tsp honey in water.<br />Allow it to boil for 10 minutes.<br />Strain the mixture and have it hot for instant relief.<br /><br />Credits<br />Host: Upasana<br />Director: Suchandra Basu<br />Camera: Kavaldeep Singh Jangwal, Manjeet Katariya, Akshay Durgule<br />Editing: Kishor Rai<br />Creative Head: Kavya Krishnaswamy<br />Producer: Rajjat A. Barjatya<br />Copyrights: Rajshri Entertainment Private Limited<br /><br />For More Updates<br />Subscribe us on YouTube - <a rel="nofollow" target="blank" href="https://www.youtube.com/user/MindBodySoul?sub_confirmation=1">https://www.youtube.com/user/MindBodySoul?sub_confirmation=1</a><br />Like us on Facebook : <a rel="nofollow" target="blank" href="https://www.facebook.com/mindbodysoulTV">https://www.facebook.com/mindbodysoulTV</a><br />Follow Us on Twitter : <a rel="nofollow" target="blank" href="https://twitter.com/MindBodySoulTV">https://twitter.com/MindBodySoulTV</a><br />Follow Us on  Instagram : <a rel="nofollow" target="blank" href="https://www.instagram.com/mindbodysoultv">https://www.instagram.com/mindbodysoultv</a><br />Follow Us on Pinterest : <a rel="nofollow" target="blank" href="https://www.pinterest.com/mindbodysoultv">https://www.pinterest.com/mindbodysoultv</a><br /><br />SUBSCRIBE for more videos: <a rel="nofollow" target="blank" href="http://bit.ly/SubscribeTo-Mindbodysoul">http://bit.ly/SubscribeTo-Mindbodysoul</a><br /><br />Like us on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/mindbodysoulTV">https://www.facebook.com/mindbodysoulTV</a><br /><br />Follow Us on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/MindBodySoulTV">https://twitter.com/MindBodySoulTV</a><br /><br />Follow Us on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/mindbodysoultv">https://www.instagram.com/mindbodysoultv</a><br /><br />Follow Us on Pinterest: <a rel="nofollow" target="blank" href="https://www.pinterest.com/mindbodysoultv">https://www.pinterest.com/mindbodysoultv</a>{% endraw %}
