@@ -1,0 +1,15 @@
+---
+title: "The Hockey Champ | A Classic Mickey Cartoon | Have A Laugh"
+image: "https:\/\/i.ytimg.com\/vi\/5lDdJOjU92A\/hqdefault.jpg"
+vid_id: "5lDdJOjU92A"
+categories: "Film-Animation"
+tags: ["the walt disney company","Disney videos","Disney"]
+date: "2022-06-02T12:50:37+03:00"
+vid_date: "2016-02-26T17:00:00Z"
+duration: "PT2M39S"
+viewcount: "4135228"
+likeCount: "7954"
+dislikeCount: ""
+channel: "Mickey Mouse"
+---
+{% raw %}Donald Duck shows his nephews the ice-skating moves that make him hockey champ in this Disney classic short.<br /><br />SUBSCRIBE to get notified when new Disney Shorts videos are posted: <a rel="nofollow" target="blank" href="http://di.sn/SubscribeDisneyShorts">http://di.sn/SubscribeDisneyShorts</a><br /><br />Watch classic Mickey Mouse cartoons:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLC6qIbU1olyVpZCk1hpZDKxo2ikOpWExN">https://www.youtube.com/playlist?list=PLC6qIbU1olyVpZCk1hpZDKxo2ikOpWExN</a><br /><br />Watch the new Mickey Mouse shorts:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLC6qIbU1olyXQe1WOKt8UJ4hErx3D7qt8">https://www.youtube.com/playlist?list=PLC6qIbU1olyXQe1WOKt8UJ4hErx3D7qt8</a><br /><br />Get more from Disney!<br />Disney YouTube: <a rel="nofollow" target="blank" href="http://di.sn/SubscribeDisney">http://di.sn/SubscribeDisney</a><br />Like Disney: <a rel="nofollow" target="blank" href="http://Facebook.com/Disney">http://Facebook.com/Disney</a><br />Follow Disney: <a rel="nofollow" target="blank" href="http://Twitter.com/Disney">http://Twitter.com/Disney</a><br />Disney Tumblr: <a rel="nofollow" target="blank" href="http://disney.tumblr.com/">http://disney.tumblr.com/</a><br />Disney Google+: <a rel="nofollow" target="blank" href="http://plus.google.com/+Disney/posts">http://plus.google.com/+Disney/posts</a><br />Disney Instagram: <a rel="nofollow" target="blank" href="http://Instagram.com/Disney">http://Instagram.com/Disney</a><br /><br />About Mickey Mouse Cartoons:<br />Mickey Mouse has been synonymous with Disney since first came into our lives in 1928 with a whistle and two step in the classic Disney cartoon Steamboat Willie. Mickey has appeared in over 130 films including “Brave Little Tailor” (1938) and “Fantasia (1940), as well as television shows like the Mickey Mouse Club and Mickey Mouse Clubhouse. Along with his gang of trusted friends, Minnie Mouse, Pluto, Goofy, Donald Duck, and even his nemesis Pete, Mickey is back for more fun and adventure in the brand new series of Mickey Mouse shorts, created by Paul Rudish.<br /><br />Welcome to Disney Shorts YouTube!<br />Enjoy animated and live action Disney cartoons and short films. We have all your favorite original and new Disney characters!  Enjoy classic Mickey Mouse cartoons with Donald Duck and Goofy to Schoolhouse Rock throwbacks and new digital shorts like Disney’s Planes. Plus we’ve curated some of our favorite animated short films from creators across the web that all Disney fans are sure to love! New Videos every Saturday!{% endraw %}
