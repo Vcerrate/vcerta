@@ -1,0 +1,15 @@
+---
+title: "76 - Mashup Mix - 22 DJs, 600+ samples"
+image: "https:\/\/i.ytimg.com\/vi\/0bW2zOFbvKQ\/hqdefault.jpg"
+vid_id: "0bW2zOFbvKQ"
+categories: "People-Blogs"
+tags: ["duuzu","lavalamp","frisco17"]
+date: "2022-06-02T05:40:28+03:00"
+vid_date: "2021-12-04T00:00:13Z"
+duration: "PT1H58M50S"
+viewcount: "7059"
+likeCount: "247"
+dislikeCount: ""
+channel: "Seventy Three"
+---
+{% raw %}76 is a collaborative mashup mix featuring 22 mashup artists.<br />Each artist had 72 hours to add to what the previous participant had created before passing it on to the next. The project took over 4 months to create, and contains over 600 samples!<br /><br />76 on SoundCloud: <a rel="nofollow" target="blank" href="https://soundcloud.com/76mashupmix/seventy-six">https://soundcloud.com/76mashupmix/seventy-six</a><br />76 on Bandcamp: <a rel="nofollow" target="blank" href="https://seventythree.bandcamp.com/album/76">https://seventythree.bandcamp.com/album/76</a><br /><br />List of sources and sampled material: <a rel="nofollow" target="blank" href="https://justpaste.it/seventy-six">https://justpaste.it/seventy-six</a><br /><br />0:00:00 - Part 1: duuzu - I Just Wanna Turn Back Time / Dinosaur Chaos (A Deal With The Past)<br />0:04:41 - Part 2: Lavalamp - Ready Let's Go<br />0:08:54 - Part 3: Frisco17 - I Still Don't Feel Like Ice Cream Cake Is Getting Old, Do You?<br />0:12:32 - Part 4: COCONABE - F*cked Up Timelines<br />0:16:08 - Part 5: digboye - white noise memorial<br />0:20:42 - Part 6: Wholepunch - Recordllections<br />0:25:00 - Part 7: jackoeting - Return of the Jack<br />0:29:27 - Part 8: VincentMashups - Run Away? Run Away...<br />0:32:52 - Part 9: vvsvlogs - music<br />0:35:45 - Part 10: theguy - Freedom Cities<br />0:39:47 - Part 11: RingoFlicks - ACID ORANGE 7<br />0:44:32 - Part 12: Sleepycap - Aural Coffee<br />0:50:00 - Part 13: COCONABE - Live From My Amateur Bedroom<br />0:52:59 - Part 14: Cryptrik - Perfect Harmony (Through Radio Fidelity)<br />0:56:19 - Part 15: WholePunch - Up Past Midnight / Careless<br />1:00:59 - Part 16: William Maranci - Freedom<br />1:04:08 - Part 17: ExpensiveDispenser - No Question<br />1:08:24 - Part 18: gniRob - Hot Summer // 大ダーキー<br />1:12:29 - Part 19: duuzu - If You Had Time<br />1:16:45 - Part 20: Grapefruit - Talking Blunt<br />1:19:30 - Part 21: digboye - 22nd HAND<br />1:23:54 - Part 22: gniRob - minimash interlude<br />1:26:13 - Part 23: CactusTeam - Feels Like Im Falling<br />1:28:40 - Part 24: DiamondBrickZ - Time, the Greatest Mystery of All Time / I Think I'll Start Now, Thank You Very Much / Romancin' On Your Box (Thank You and Good Night)<br />1:32:34 - Part 25: KryptoDigital - Crazy Krackhead with a DAW<br />1:36:58 - Part 26: Lavalamp - Love &amp; Peace<br />1:42:00 - Part 27: RingoFlicks - We Miss You<br />1:46:05 - Part 28: DEVOTED - Last Time<br />1:49:35 - Part 29: BuGgY_BiTz - Imagination in Practice (Part 1 &amp; B)<br />1:53:30 - Part 30: duuzu - I'd Like to Go / The Clock Don't Stop, No{% endraw %}
