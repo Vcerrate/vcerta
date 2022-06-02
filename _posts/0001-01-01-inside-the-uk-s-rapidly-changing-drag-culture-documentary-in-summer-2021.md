@@ -1,0 +1,15 @@
+---
+title: "Inside the UK's Rapidly Changing Drag Culture | Documentary"
+image: "https:\/\/i.ytimg.com\/vi\/MddilSDv7Po\/hqdefault.jpg"
+vid_id: "MddilSDv7Po"
+categories: "Entertainment"
+tags: ["be here be queer","documentary","drag"]
+date: "2022-06-02T16:12:21+03:00"
+vid_date: "2021-12-29T14:15:00Z"
+duration: "PT33M7S"
+viewcount: "356124"
+likeCount: "10277"
+dislikeCount: ""
+channel: "Still Watching Netflix"
+---
+{% raw %}In summer 2021, legendary RuPaul's Drag Race UK drag queens including The Vivienne, Tia Kofi, Tayce, and Cheryl Hole went on tour. Joined by drag kings and non-binary performers including host Brent Would and performer Sigi Moonlight, they were touring the country with Netflix's I Like To Watch Live. We captured everything. In Be Here, Be Queer, an exclusive documentary, we take an unfiltered look at the reality of being a drag artist and find out how LGBT+ venues are surviving Covid.<br /><br />Check out Tia Kofi's music, including Outside In, as heard in this documentary. <a rel="nofollow" target="blank" href="https://slinky.to/TheDamage">https://slinky.to/TheDamage</a><br /><br />0:00 intro<br />01:55 The Vivienne and Cheryl Hole go shopping<br />04:28 Margate<br />08:26 Nottingham<br />10:30 Tia Kofi goes back to school<br />17:14 Glasgow<br />18:07 Tayce's tour<br />20:07 Drag kings<br />23:51 Hull<br />24:50 meet Stacey Rhect<br />28:15 the future<br /><br />Be Here, Be Queer synopsis<br /><br />As the number of queer spaces continues to shrink, queer culture has exploded into the mainstream. Be Here, Be Queer travels around the UK and dives into the world of small-town LGBT+ nightlife as it gets back on its feet post-Covid. It explores why queer venues are still so vital to small communities, and takes an upfront look at the impact - the good, the bad, and the ugly - mainstream exposure has had on queer culture, as told by the drag artists who helped create it. Meet venue owners, UK drag legends, Drag Race UK stars, and the kings and queens who perform every night in the bars and clubs of UK LGBT+ scenes.<br /><br />Be Here, Be Queer follows the Netflix UK I Like To Watch '21 tour, which stopped at small LGBT+ venues around the UK. The tour saw Drag Race UK stars host movie screenings and drag shows with local talent, all in a bid to kick-start venues hit hard by Covid.<br /><br />➡️SUBSCRIBE FOR MORE: <a rel="nofollow" target="blank" href="http://bit.ly/29kBByr">http://bit.ly/29kBByr</a><br /><br />About Netflix:<br />Netflix is the world's leading streaming entertainment service with 214 million paid memberships in over 190 countries enjoying TV series, documentaries, feature films and mobile games across a wide variety of genres and languages. Members can watch as much as they want, anytime, anywhere, on any internet-connected screen. Members can play, pause and resume watching, all without commercials or commitments.<br /><br />Inside the UK's Rapidly Changing Drag Culture | Documentary<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/stillwatchingnetflix">https://www.youtube.com/stillwatchingnetflix</a>{% endraw %}
