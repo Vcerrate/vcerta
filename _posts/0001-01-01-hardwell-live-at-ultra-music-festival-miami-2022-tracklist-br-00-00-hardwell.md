@@ -1,0 +1,15 @@
+---
+title: "Hardwell LIVE at Ultra Music Festival Miami 2022"
+image: "https:\/\/i.ytimg.com\/vi\/L2qDaJcSH_o\/hqdefault.jpg"
+vid_id: "L2qDaJcSH_o"
+categories: "Music"
+tags: ["hardwell","EDM","Bigroom"]
+date: "2022-06-02T17:05:49+03:00"
+vid_date: "2022-03-28T13:14:20Z"
+duration: "PT1H"
+viewcount: "2419515"
+likeCount: "67090"
+dislikeCount: ""
+channel: "Hardwell"
+---
+{% raw %}▬▬▬ TRACKLIST  ▬▬▬▬▬▬▬▬<br />00:00 - HARDWELL - BROKEN MIRROR (INTRO)<br />02:25 - HARDWELL - INTO THE UNKNOWN<br />06:08 - HARDWELL - DOPAMINE<br />10:31 - HARDWELL - SPACEMAN (HARDWELL 2022 REWORK)<br />15:24 - HARDWELL - PACMAN<br />19:34 - HARDWELL - GODD (APOLLO MASHUP)<br />24:37 - HARDWELL - BLACK MAGIC<br />27:31 - HARDWELL - REBELS NEVER DIE (CRAWLING MASHUP)<br />32:03 - HARDWELL - ZERO GRAVITY<br />37:36 - HARDWELL - MIND CONTROL<br />41:32 - HARDWELL - LASER<br />44:29 - HARDWELL - F*CKING SOCIETY (NOTHING ELSE MATTERS MASHUP)<br />49:24 - HARDWELL - REMINISCE<br />53:37 - HARDWELL - I FEEL LIKE DANCING<br />57:21 - HARDWELL - SELF DESTRUCT<br /><br />Hardwell REBELS NEVER DIE - World Tour tickets → <a rel="nofollow" target="blank" href="https://tinyurl.com/rnd-tour">https://tinyurl.com/rnd-tour</a><br />Pre-save the REBELS NEVER DIE album → <a rel="nofollow" target="blank" href="https://revr.ec/HWL-RND">https://revr.ec/HWL-RND</a> <br /><br />For more info:<br /><br /><a rel="nofollow" target="blank" href="http://www.djhardwell.com">http://www.djhardwell.com</a><br /><br /><a rel="nofollow" target="blank" href="http://www.instagram.com/hardwell">http://www.instagram.com/hardwell</a><br /><br /><a rel="nofollow" target="blank" href="http://www.facebook.com/djhardwell">http://www.facebook.com/djhardwell</a><br /><br /><a rel="nofollow" target="blank" href="http://www.twitter.com/hardwell">http://www.twitter.com/hardwell</a><br /><br /><a rel="nofollow" target="blank" href="http://www.soundcloud.com/hardwell">http://www.soundcloud.com/hardwell</a><br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@hardwell">https://www.tiktok.com/@hardwell</a><br /><br /><br /><br /><a rel="nofollow" target="blank" href="http://www.revealedrecordings.com">http://www.revealedrecordings.com</a><br /><br /><a rel="nofollow" target="blank" href="http://www.facebook.com/revealedrecordings">http://www.facebook.com/revealedrecordings</a><br /><br /><a rel="nofollow" target="blank" href="http://www.twitter.com/revealedrec">http://www.twitter.com/revealedrec</a><br /><br /><a rel="nofollow" target="blank" href="http://instagram.com/revealedrec">http://instagram.com/revealedrec</a><br /><br /><a rel="nofollow" target="blank" href="http://soundcloud.com/revealed-recordings">http://soundcloud.com/revealed-recordings</a><br /><br /><a rel="nofollow" target="blank" href="http://open.spotify.com/user/revealedrec">http://open.spotify.com/user/revealedrec</a><br /><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/Revealedrec">https://www.youtube.com/user/Revealedrec</a>{% endraw %}
