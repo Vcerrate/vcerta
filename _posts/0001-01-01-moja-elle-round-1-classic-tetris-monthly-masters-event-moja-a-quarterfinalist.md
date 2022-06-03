@@ -1,0 +1,15 @@
+---
+title: "Moja, Elle | Round 1 | Classic Tetris Monthly Masters Event"
+image: "https:\/\/i.ytimg.com\/vi\/4e4u8MQoTnw\/hqdefault.jpg"
+vid_id: "4e4u8MQoTnw"
+categories: "Gaming"
+tags: ["classic tetris monthly","tetris","nes tetris"]
+date: "2022-06-03T13:55:32+03:00"
+vid_date: "2022-06-02T15:00:04Z"
+duration: "PT26M50S"
+viewcount: "1280"
+likeCount: "31"
+dislikeCount: ""
+channel: "Classic Tetris Monthly"
+---
+{% raw %}Moja, a quarterfinalist in Mega Masters qualifying with an average of two 1,266,950, takes on consistent Masters player Elle, qualifying with  1,216,012, all hosted by vandweller!<br /><br />Tune into our events on our official Twitch streams!<br />   ▶︎ <a rel="nofollow" target="blank" href="https://twitch.tv/MonthlyTetris">https://twitch.tv/MonthlyTetris</a><br />   ▶︎ <a rel="nofollow" target="blank" href="https://twitch.tv/MonthlyTetris2">https://twitch.tv/MonthlyTetris2</a><br /><br />If you want to learn more about CTM or even participate in our events, join the Discord Server!<br />   ▶︎ <a rel="nofollow" target="blank" href="https://ctm.gg/discord">https://ctm.gg/discord</a><br /><br />Contribute to the May Masters prize pool!<br />   ▶︎ <a rel="nofollow" target="blank" href="https://matcherino.com/tournaments/71268">https://matcherino.com/tournaments/71268</a><br /><br />Support us on Patreon!<br />   ▶︎ <a rel="nofollow" target="blank" href="https://patreon.com/vandweller">https://patreon.com/vandweller</a><br /><br />Support us by purchasing merch!<br />   ▶︎ <a rel="nofollow" target="blank" href="https://store.streamelements.com/monthlytetris">https://store.streamelements.com/monthlytetris</a><br /><br />Support us with select Amazon purchases!<br />   ▶︎ <a rel="nofollow" target="blank" href="https://ctm.gg/amazon">https://ctm.gg/amazon</a><br /><br />Classic Tetris Monthly is a series of monthly Nintendo Tetris tournaments, started by founding mother fridaywitch in December 2017, and resurrected by vandweller in October 2018. Nowadays, it's become the biggest online NES Tetris tournament, expanding to seven events: The Masters Event, the Challengers Circuit, the Futures Circuit, the Hopefuls Circuit, the Community Tournament, Tetris Deathmatch and Monday Night Chasedown (with more events to come!) <br /><br />Music by Flexstyle: <a rel="nofollow" target="blank" href="https://flexstyle.bandcamp.com">https://flexstyle.bandcamp.com</a><br />Hosted by vandweller: <a rel="nofollow" target="blank" href="https://twitch.tv/vandweller">https://twitch.tv/vandweller</a><br />YouTube uploads by pumpyheart and danvweller: <a rel="nofollow" target="blank" href="https://twitch.tv/pumpyheart">https://twitch.tv/pumpyheart</a> <a rel="nofollow" target="blank" href="https://twitch.tv/danvweller">https://twitch.tv/danvweller</a><br /><br />Player Twitch (as of upload date)<br />Moja <a rel="nofollow" target="blank" href="https://twitch.tv/moja314">https://twitch.tv/moja314</a><br />Elle: <a rel="nofollow" target="blank" href="https://twitch.tv/trapzone707">https://twitch.tv/trapzone707</a>{% endraw %}
