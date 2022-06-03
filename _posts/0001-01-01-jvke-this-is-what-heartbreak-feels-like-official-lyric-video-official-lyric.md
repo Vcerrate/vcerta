@@ -1,0 +1,15 @@
+---
+title: "JVKE - this is what heartbreak feels like (Official Lyric Video)"
+image: "https:\/\/i.ytimg.com\/vi\/hrAwz6fHYgk\/hqdefault.jpg"
+vid_id: "hrAwz6fHYgk"
+categories: "Music"
+tags: ["heartbreak","feels","(Official"]
+date: "2022-06-03T09:22:27+03:00"
+vid_date: "2022-04-27T07:00:09Z"
+duration: "PT2M37S"
+viewcount: "1948550"
+likeCount: "65675"
+dislikeCount: ""
+channel: "JVKE"
+---
+{% raw %}Official lyric video for &quot;this is what heartbreak feels like&quot; by JVKE.<br /><br />LISTEN HERE: <a rel="nofollow" target="blank" href="https://jvke.ffm.to/heartbreaksong">https://jvke.ffm.to/heartbreaksong</a><br /><br />USE SOUND ON TIKTOK &amp; INSTAGRAM: <a rel="nofollow" target="blank" href="https://jvke.ffm.to/heartbreakaudio">https://jvke.ffm.to/heartbreakaudio</a><br /><br />SUBSCRIBE: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCSOf...">https://www.youtube.com/channel/UCSOf...</a><br /><br />JOIN MY DISCORD:<br /><a rel="nofollow" target="blank" href="https://discord.gg/GGBCptu7">https://discord.gg/GGBCptu7</a><br /><br />CATCH ME LIVE ON TWITCH: <br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/jvketwitch">https://www.twitch.tv/jvketwitch</a><br /><br />FOLLOW ME ON INSTAGRAM @ITSJVKE: <a rel="nofollow" target="blank" href="https://www.instagram.com/itsjvke​">https://www.instagram.com/itsjvke​</a><br /><br />FOLLOW ME ON TIKTOK @JVKE: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@jvke​">https://www.tiktok.com/@jvke​</a><br /><br />FOLLOW ME ON TWITTER @JVKESONGS: <a rel="nofollow" target="blank" href="https://twitter.com/jvkesongs​">https://twitter.com/jvkesongs​</a><br /><br />SNAP ME: <a rel="nofollow" target="blank" href="https://www.snapchat.com/add/imjakela​...">https://www.snapchat.com/add/imjakela​...</a><br /><br />*NEW* MERCH: <a rel="nofollow" target="blank" href="http://itsjvke.com/#shop​">http://itsjvke.com/#shop​</a><br /><br />this is what heartbreak feels like <br />by JVKE<br /><br />Pretty little liar<br />Whatchu gonna say<br />Tell me that you love me<br />Lying to my face<br />i know you double crossed me<br />girl you’re such a fake<br />What a shame<br />Guess my lover was a snake<br /> <br />Yes I Feel like i'm choking’<br />Breakin up cuz we already broken<br />Snake emoji on my phone when you callin<br />cuz our Love Doesn't ‘feel like falling’<br /><br />Hiding your phone when you’re sleeping <br />Stayin out late on the weekend<br />Deep down I knew u were cheating<br />But I didn’t wanna believe it <br /><br />When i Cry myself to sleep<br />I see you in my dreams<br />I can’t breathe <br />‘Bout to hyperventilate<br /><br />Hiding your phone when you’re sleeping <br />Stayin out late on the weekend<br />Deep down I knew u were cheating<br />But I didn’t wanna believe it<br /><br />I'm busy fighting my demons, you were so deceiving’ messin wit my feelings<br />You were my garden of eden, now i'm leaving<br /><br />#JVKE #thisiswhatheartbreakfeelslike #prettylittleliar{% endraw %}
