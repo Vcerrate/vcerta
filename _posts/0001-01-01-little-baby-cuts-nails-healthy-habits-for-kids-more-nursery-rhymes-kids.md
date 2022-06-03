@@ -1,0 +1,15 @@
+---
+title: "Little Baby Cuts Nails | Healthy Habits for Kids + More Nursery Rhymes & Kids Songs - Super JoJo"
+image: "https:\/\/i.ytimg.com\/vi\/iEkM6w4RSi4\/hqdefault.jpg"
+vid_id: "iEkM6w4RSi4"
+categories: "Education"
+tags: ["rhymes","happybirthday","kidsvideosforkids"]
+date: "2022-06-03T14:57:38+03:00"
+vid_date: "2022-02-16T06:59:44Z"
+duration: "PT35M16S"
+viewcount: "3566"
+likeCount: "16"
+dislikeCount: ""
+channel: "Super JoJo _ Kids Songs and Nursery rhymes"
+---
+{% raw %}Little Baby Cuts Nails | Healthy Habits for Kids + More Nursery Rhymes &amp; Kids Songs - Super JoJo<br /><br /><br />Pay attention to kids’ nails, and cut them before they get too long!<br /><br />Lyrics:<br />Nails, nails        <br />Oh, sharp and long nails      <br />Oh…       <br />Be careful        <br />You could hurt other people        <br /><br />Nails, nails       <br />Oh, sharp and long nails    <br />Cut them, please         <br />Keep your nails short and clean         <br /><br />Cut your long nails     <br />Click Click Click Click          <br />Look at your hands      <br />Clean clean clean clean       <br />Long nails         <br />Cut your long nails       <br />Let’s keep them short and clean   <br /><br />Click Click Click Click Click Click        <br />All done !     <br /><br />Nails, nails         <br />Oh, sharp and long nails   <br />Be careful          <br />Germs are hiding under your nails      <br /><br />Nails, nails         <br />Oh, sharp and long nails<br />Cut them, please         <br />Keep your nails short and clean<br />Cut your long nails     <br />Click Click Click Click    <br />Look at your hands     <br />Clean clean clean clean    <br />Long nails         <br />Cut your long nails <br />Let’s keep them short and clean <br /><br /><br />Thank you for watching my video if u like my video then please don't forget to share and like and subscribe👀🙏<br /><br /><br /><br />nursery rhymes, children songs, baby songs, kids songs, cartoons, stories, kids videos, kids cartoon, songs for kids, super jojo, baby jojo, super jojo collection, cartoon, kidsongs, jojo, super jojo english, abc song, jojo baby, happy birthday song, baby cartoon, baby shark, abc, jojo cartoon, rhymes, happy birthday, kids videos for kids, abcd song, wheels on the bus, jojo super, jojo tv, #superjojo, jo jo, I want to be a firefighter, fire truck, Super JoJo firefighter song, rhymes,happybirthday,kidsvideosforkids,jojocartoon,abc,babycartoon,babyshark,abcdsong,wheelsonthebus,icanwalkbymyself,jojowalksong,learntowalk,jojo,#superjojo,jojosuper,jojotv,happybirthdaysong,jojobaby,stories,kidsvideos,kidscartoon,cartoons,kidssongs,childrensongs,babysongs,songsforkids,superjojo,jojo,superjojoenglish,abcsong,kidsongs,cartoon,babyjojo,superjojocollection,nurseryrhymes,superjojo,babyjojo,nurseryrhymes,forkids,jojoenglish,kidssongs,childrensongs,babysongs,kidsongs,kidssong,songsforkids,kidsvideos,singalong,youtubecartoon,kidsvideo,cartoonforkids,jojo,kids,3Danimated,3Danimatedstories,व्लादऔरनिकिता,{% endraw %}
