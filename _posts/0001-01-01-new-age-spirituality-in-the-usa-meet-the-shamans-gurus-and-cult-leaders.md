@@ -1,0 +1,15 @@
+---
+title: "New Age Spirituality in the USA: Meet The Shamans, Gurus and Cult Leaders of America | Documentary"
+image: "https:\/\/i.ytimg.com\/vi\/yYrSoVCjYAw\/hqdefault.jpg"
+vid_id: "yYrSoVCjYAw"
+categories: "News-Politics"
+tags: ["java films","javafilms","javafilmstv"]
+date: "2022-06-04T22:26:41+03:00"
+vid_date: "2021-10-24T13:00:34Z"
+duration: "PT55M13S"
+viewcount: "102867"
+likeCount: "1417"
+dislikeCount: ""
+channel: "Java Discover | Free Global Documentaries & Clips"
+---
+{% raw %}Is the USA undergoing a spiritual awakening, or is it falling victim to fake gurus and new age cult leaders? In an America in search of meaning, gurus, healers, shamans and other modern wizards have become the new providers of worth. Festivals, retreats and detox courses promising spiritual wellness are multiplying. <br /><br />We follow emerging gurus like Unicole, who is convinced she was sent to Earth by aliens to start a new religion and uses social media to gather followers. Meanwhile, in Hollywood, Shaman Durek is adored and charges his disciples nearly $1,000 per hour to attend a seance. However, there is a fine line between a spirituality coach and a professional crook. We follow the comeback of James Arthur Ray, sentenced to ten years in prison when three of his members died during a ceremony, as he re-establishes himself on the spirituality circuit in Las Vegas.<br /><br />This documentary was first released in 2020.<br /><br />---<br /><br />SUBSCRIBE for more amazing stories, including free FULL documentaries. At Java Films we have an incredible library of award-winning documentaries: from world-leading investigations to true crime and history, we have something for everyone! <br />Click the SUBSCRIBE button and make sure to set NOTIFICATIONS to stay updated with all new content!<br /><br />Sign up to the Java Films Clubs for exclusive deals and discounts for amazing documentaries - find out first about FREE FULL docs: <a rel="nofollow" target="blank" href="http://eepurl.com/hhNC69">http://eepurl.com/hhNC69</a><br /><br />Head to <a rel="nofollow" target="blank" href="https://www.watchjavafilms.tv/">https://www.watchjavafilms.tv/</a> to check out our catalogue of documentaries available on Demand. <br /><br />You can also find our docs on :<br />Amazon Prime Video: <a rel="nofollow" target="blank" href="https://www.amazon.com/v/javafilms">https://www.amazon.com/v/javafilms</a><br />Vimeo On Demand: <a rel="nofollow" target="blank" href="https://vimeo.com/javafilms/vod_pages">https://vimeo.com/javafilms/vod_pages</a><br /><br />Like us on Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/JavaFilms/">https://www.facebook.com/JavaFilms/</a><br />Follow us on Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/java_films">https://twitter.com/java_films</a><br />Follow us on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/javafilms.tv/">https://www.instagram.com/javafilms.tv/</a>{% endraw %}
