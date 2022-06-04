@@ -1,0 +1,15 @@
+---
+title: "Red Hood Rap | \"Grave\" | Daddyphatsnaps [DC Comics]"
+image: "https:\/\/i.ytimg.com\/vi\/idbs3tC2I5o\/hqdefault.jpg"
+vid_id: "idbs3tC2I5o"
+categories: "Music"
+tags: ["Daddyphatsnaps","Daddyphatsnaps rap","red hood"]
+date: "2022-06-04T18:49:46+03:00"
+vid_date: "2022-06-04T14:59:48Z"
+duration: "PT3M33S"
+viewcount: "7339"
+likeCount: "2641"
+dislikeCount: ""
+channel: "Daddyphatsnaps YouTube"
+---
+{% raw %}All Music Streaming Sites: <a rel="nofollow" target="blank" href="https://too.fm/avov4q0">https://too.fm/avov4q0</a><br /><br />Red Hood Rap | &quot;Grave&quot; | Daddyphatsnaps [DC Comics]<br /><br />It has been almost three years since I made my first Red Hood rap so I figured it was time to update it. I had alot of fun with this one. Do me and like share and comment it really helps out the channel! Much love yall. <br /><br />Follow me on twitter: <a rel="nofollow" target="blank" href="https://twitter.com/daddyphatsnaps">https://twitter.com/daddyphatsnaps</a><br />Follow me on Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/daddyphatsnaps_official">https://www.instagram.com/daddyphatsnaps_official</a><br />Get your Merch: <a rel="nofollow" target="blank" href="https://teespring.com/stores/daddyphatsnaps-merch">https://teespring.com/stores/daddyphatsnaps-merch</a><br /><br /><br />== CREDITS ==<br />► Raps/Mixing/Mastering/Production: Daddyphatsnaps<br />► Video by Hideki <a rel="nofollow" target="blank" href="https://ffm.to/hideki">https://ffm.to/hideki</a><br />► Thumbnail Thirdphp <a rel="nofollow" target="blank" href="https://ffm.to/thirdphp">https://ffm.to/thirdphp</a><br />► Random Dope Guitar Playin Fabulous Fabvl <a rel="nofollow" target="blank" href="https://ffm.to/fabvl">https://ffm.to/fabvl</a><br /><br />The Red Hood is an alias used by multiple characters appearing in American comic books published by DC Comics.[1] The identity was first used in the 1951 storyline &quot;The Man Behind The Red Hood!&quot;, which provides the earliest origin story for the Joker. The storyline depicts an unnamed criminal wearing a red dome-shaped hood who, after a chance encounter with Batman, is disfigured by chemicals and becomes insane, giving birth to his future Joker persona.<br /><br />Five decades later, the identity was used again in the 2005–2006 story arc, Batman: Under the Hood, in which Jason Todd, Batman's second crime-fighting partner who had been taken out by the Joker, comes back to life as a violent vigilante, using the jokers former alias. Since his return, Jason operates as the Red Hood in the main DC Comics continuity. In The New 52, a 2011 reboot of the DC Comics universe, one storyline introduces a criminal organization called the Red Hood Gang, and retroactively establishes the Joker (prior to his transformation) as its former leader, and Jason as a former member.<br /><br />Both the Joker and Jason Todd incarnations of the Red Hood, as well as the Red Hood Gang, have been adapted into several forms of media outside of comics, such as films, television series, and video games.<br /><br />#redhood #rap #dc{% endraw %}
