@@ -1,0 +1,15 @@
+---
+title: "Types of Teachers ft. Manan Madan | The Timeliners"
+image: "https:\/\/i.ytimg.com\/vi\/lXrJb5H6Ncc\/hqdefault.jpg"
+vid_id: "lXrJb5H6Ncc"
+categories: "Entertainment"
+tags: ["different types of teachers","types of teachers in school","types of teachers at school"]
+date: "2022-06-04T08:44:35+03:00"
+vid_date: "2022-06-03T11:30:19Z"
+duration: "PT5M48S"
+viewcount: "111624"
+likeCount: "9544"
+dislikeCount: ""
+channel: "The Timeliners"
+---
+{% raw %}Teachers shape our personalities. But, in the process expose us to their own Quirky personalities.😝<br /><br />Watch Timeliners' teachers and their quirks and tell us about yours in comments!👇🏻😁<br /><br />Follow The Timeliners:                                                                       <br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/TheTimeliners">https://www.facebook.com/TheTimeliners</a><br />Twitter: <a rel="nofollow" target="blank" href="https://www.twitter.com/Thetimeliners">https://www.twitter.com/Thetimeliners</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/TheTimeliners">https://www.instagram.com/TheTimeliners</a><br /><br />Credit List -<br />Produced by: Arunabh Kumar<br />Channel Head : Anandeshwar Dwivedi<br />Creative Director: Anant Singh 'Bhatu' <br />Creative Head: Ambrish Verma<br />Written by: Upender yadav <br />Directed By: Abhinav Verma<br />Creative Producer: Sneha Mitra<br />DOP: Rijul Sehgal<br />Edited by: Tarun Verma<br />Colour Correction: Rijul Sehgal <br />AD 1: Divya Thakur<br />AD 2:  Aishani Biswas <br />Costume Stylist : Sahiba Jasnoor Chhabra<br />Art Director: Anshul Meena <br />Art asst: Krishna Gopal<br />Music: Tarun Verma<br />Executive Producer: Vijay Koshy<br />Supervising Producer: Aakash Dubey <br />Production Manager: Ayush Tyagi<br />Production Intern: Daksh Puri<br />Post Production Supervisor: Garvit Janshali<br />Post Production Assistant : Abhishek Sharma<br />Graphics: Lengdon Phukan<br />Head of Brand Partnerships: Pranav Thakker<br />Sales and Solutions: Sheetal Dua, Parul Katiyar, Shreya Singh, Rupali Mukherjee <br />Talent Head: Shivani Bengani<br />Talent Team: Aishwarya Esha, Abhimanyu Tripathi<br />Marketing Head: Yogesh Saini <br />Social Media Team: Chim,  Manya Srivastava, Anusha Jain, Sakshi Raj, Siddhanta Abhishek, Jayant Arora, Jatin Sharma, Shifa dutt, Ankita Jalvi, Shivansh sarin, Pallav Soni<br />Legal: Megha Gupta, Shikha Guleria, Chaitrali Dhurandhar<br />Finance: Manish Saini, Nikita Trivedi, Ankit Singh, Nishit Gogri,  Anil Harijan, Ravi Mittal &amp; Priyam Raj<br />Main Cast: Manan Madaan, Dishant Verma, Neha Misra, Anuradha Gautam, Annu Sharma, Sahiba Jasnoor Chhabra, Uppendra Yadav, Ayush Tyagi, Nupur Anand , Rishi Yadav and Kartik Ved  <br />Juniors: Gaurav Madhukar, Harshit Reswal, Nikhil Dadar, Manisha Bhandwal, Hunny Dadar, Annie  Bharadwaj, Jitesh, Himanshu, Ansh, Amit, Divya Thakur and Nupur Anand <br /><br />#thetimeliners #typesofteachers <br /><br />---<br />This channel is owned, operated, and managed by, Contagious Online Media Network Private Limited.{% endraw %}
