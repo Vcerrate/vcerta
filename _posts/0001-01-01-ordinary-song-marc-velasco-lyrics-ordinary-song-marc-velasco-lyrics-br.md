@@ -1,0 +1,15 @@
+---
+title: "Ordinary Song - Marc Velasco (Lyrics)"
+image: "https:\/\/i.ytimg.com\/vi\/AmycftizdIg\/hqdefault.jpg"
+vid_id: "AmycftizdIg"
+categories: "Autos-Vehicles"
+tags: ["Ordinary","Velasco","(Lyrics)"]
+date: "2022-06-05T00:08:24+03:00"
+vid_date: "2020-08-20T08:06:32Z"
+duration: "PT3M53S"
+viewcount: "3705436"
+likeCount: "15636"
+dislikeCount: ""
+channel: "Vhic Playlist"
+---
+{% raw %}Ordinary Song - Marc Velasco (Lyrics)🎶<br /><br />follow my tiktok account:<br />tiktok.com/@victorwatan<br /><br />For Music Submission<br />victorpadua397@gmail.com<br /><br />Learn Video Editing Here<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCWrfH0lASC7SyR6uJXwSngg">https://www.youtube.com/channel/UCWrfH0lASC7SyR6uJXwSngg</a><br /><br />Follow Marc Velasco<br /><a rel="nofollow" target="blank" href="http://marcvelasco.net/">http://marcvelasco.net/</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/marcvelascomanila/">https://www.facebook.com/marcvelascomanila/</a><br /><br />🎤 Ordinary Song<br />Just an ordinary song<br />To a special girl like you<br />From a simple guy<br />Who's so in love with you<br /><br />I may not have much to show<br />No diamonds that glow<br />No limousines<br />To take you where you go<br /><br />But if you ever find yourself<br />Tired of all the games you play<br />When the world seems so unfair<br />You can count on me to stay<br />Just take some time to lend an ear<br />To this ordinary song<br /><br />Just an ordinary song<br />To a special girl like you<br />From a simple guy<br />Who's so in love with you<br /><br />I don't even have the looks<br />To make you glance my way<br />The clothes I wear<br />May just seem so absurd<br /><br />But deep inside of me is you<br />You give life to what I do<br />All those years may see you through<br />Still I'll be waiting here for you<br />If you have time, please, lend an ear<br />To this ordinary song<br /><br />Just an ordinary song<br />To a special girl like you<br />From a simple guy<br />Who's so in love with you<br /><br />---------------------------------------------------------------------<br />Wallpaper I use<br /><a rel="nofollow" target="blank" href="https://unsplash.com/s/photos/sky">https://unsplash.com/s/photos/sky</a><br /><br />No copyright infringement is intended all<br />credit to the owner of the song and Picture that i use.<br />---------------------------------------------------------------------<br />- if you need a song removed from my channel please contact me first victorpadua397@gmail.com<br /><br />Copyright Disclaimer under section 107 of the Copyright Act 1976, allowance is made for “fair use” for purposes such as criticism, comment, news reporting, teaching, scholarship, education and research.<br /><br />Fair use is a use permitted by copyright statute that might otherwise be infringing. <br /><br />Non-profit, educational or personal use tips the balance in favor of fair use.{% endraw %}
