@@ -1,0 +1,15 @@
+---
+title: "DJ Snake - Disco Maghreb (Official Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/M7xQEdKHtv0\/hqdefault.jpg"
+vid_id: "M7xQEdKHtv0"
+categories: "Music"
+tags: ["Snake","Disco","Maghreb"]
+date: "2022-06-04T12:15:57+03:00"
+vid_date: "2022-05-31T15:00:11Z"
+duration: "PT3M58S"
+viewcount: "8264662"
+likeCount: "502322"
+dislikeCount: ""
+channel: "DJSnakeVEVO"
+---
+{% raw %}A song and video that connects DJ Snake back to his roots, “Disco Maghreb” is inspired by the iconic Algerian record label of the same name. <br /><br />Listen to “Disco Maghreb” here: <a rel="nofollow" target="blank" href="https://DJSnake.lnk.to/DiscoMaghreb">https://DJSnake.lnk.to/DiscoMaghreb</a> <br /><br />Get the official Disco Maghreb Cassette: <a rel="nofollow" target="blank" href="http://djsnake.store">http://djsnake.store</a><br /><br />Follow DJ Snake:<br /><br />Instagram: <a rel="nofollow" target="blank" href="https://DJSnake.lnk.to/Instagram">https://DJSnake.lnk.to/Instagram</a> <br />TikTok: <a rel="nofollow" target="blank" href="https://DJSnake.lnk.to/TikTok">https://DJSnake.lnk.to/TikTok</a> <br />Facebook: <a rel="nofollow" target="blank" href="https://DJSnake.lnk.to/Facebook">https://DJSnake.lnk.to/Facebook</a>  <br />Twitter: <a rel="nofollow" target="blank" href="https://DJSnake.lnk.to/Twitter">https://DJSnake.lnk.to/Twitter</a> <br />Official Website: <a rel="nofollow" target="blank" href="https://djsnake.com">https://djsnake.com</a><br /><br />“Disco Maghreb – Aman Outro” Video team:<br /> <br />Director: Elias Belkeddar - Iconoclast<br />Production: iconoclast / 2 horloges/ Birth<br />Producers: Yacine Medkour / Hugo Legrand Nathan<br />Executive: Bachir Aziria<br />Hair: Mika Caiolas<br />Stylist: Coline Bach<br /><br />“Disco Maghreb” Lyrics:<br /><br />Original:<br />AH AH AH AH<br />AYWA AYWA<br />ZID WAHDA ZID WAHDA<br />ERA GADEH ERA GADEH ERA GADEH ERA GADEH<br />CHTAH RDAH CHTAH RDAH YA BABA CHTAH RDAH<br />AYWA AYWA AH AH AH AH<br />ELAAB ELAAB ARWAH ARWAH ELAAB ELAAB ARWAH ARWAH ELAAB ELAAB ARWAH ARWAH<br />ALIK ALIK ALIK ALIK<br />WAHED ZOUDJ TLATA AWOUD<br />WAHED ZOUDJ TLATA AWOUD<br />WAHED ZOUDJ TLATA AWOUD<br />ARA ARA ARA ARA<br /><br />English:<br />AH AH AH AH<br />AYWA AYWA<br />ANOTHER ONE ANOTHER ONE<br />ERA GADEH ERA GADEH ERA GADEH ERA GADEH<br />DANCE AND STOMP (or HIT THE FLOOR) DANCE AND STOMP YA BABA DANCE AND STOMP<br />AYWA AYWA AH AH AH AH<br />PLAY PLAY COME ON COME ON PLAY PLAY COME ON COME ON PLAY PLAY COME ON COME ON<br />LOOK LOOK LOOK LOOK<br />ONE TWO THREE DO IT AGAIN<br />ONE TWO THREE DO IT AGAIN<br />ONE TWO THREE DO IT AGAIN<br />ARA ARA ARA ARA<br /><br />“Disco Maghreb” Audio Credits:<br /> <br />Produced by:<br />DJ Snake<br />Stany (Magnifique)<br /><br />#DJSnake #DiscoMaghreb #MusicVideo<br /><br />Music video by DJ Snake performing Disco Maghreb. © 2022 DJ Snake Music Productions Limited, under exclusive license to Interscope Records<br /><br /><a rel="nofollow" target="blank" href="http://vevo.ly/cUVL1e">http://vevo.ly/cUVL1e</a>{% endraw %}
