@@ -1,0 +1,15 @@
+---
+title: "CLEANING THE NASTIEST AND DUSTIEST HOUSE EVER!!"
+image: "https:\/\/i.ytimg.com\/vi\/hR73fw9kaoY\/hqdefault.jpg"
+vid_id: "hR73fw9kaoY"
+categories: "People-Blogs"
+tags: ["CLEANING","NASTIEST","DUSTIEST"]
+date: "2022-06-06T01:14:35+03:00"
+vid_date: "2022-06-05T14:49:01Z"
+duration: "PT33M33S"
+viewcount: "111324"
+likeCount: "10653"
+dislikeCount: ""
+channel: "Aurikatariina"
+---
+{% raw %}Hi i’m Aurikatariina and I deep clean my followers homes for free! 💕 <br />Today I will teach you how to use different cleaning supplies and tools! I also show you pro cleaning techniques and all about different cleaning products. I was cleaning with my best friend Anni and we had so much fun together! I have never seen this much dust in my life. When i was cleaning i was fully covered on dust. But wait until you see the result, it is amazing! Satisfying cleaning and mini tutorials!<br />Bathroom cleaning, kitchen cleaning, living room cleaning, Organizing, deep cleaning, Washing, before and after pictures, satisfying results.<br /><br />Buy my products: <br /><br />💗Scrub Daddy<br /><a rel="nofollow" target="blank" href="https://amzn.to/3yCTt6l">https://amzn.to/3yCTt6l</a><br /><br />💗Scrub Mommy<br /><a rel="nofollow" target="blank" href="https://amzn.to/3DfvUkn">https://amzn.to/3DfvUkn</a><br /><br />💗Alternative &quot;Steel Daddy&quot;<br /><a rel="nofollow" target="blank" href="https://amzn.to/3iIfrf7">https://amzn.to/3iIfrf7</a><br /><br />💗Power Paste<br /><a rel="nofollow" target="blank" href="https://amzn.to/3DdFtjL">https://amzn.to/3DdFtjL</a><br /><br />💗Oven cleaner<br /><a rel="nofollow" target="blank" href="https://amzn.to/3JVpgSE">https://amzn.to/3JVpgSE</a><br /><br />💗Scraper<br /><a rel="nofollow" target="blank" href="https://amzn.to/37TYD2q">https://amzn.to/37TYD2q</a><br /><br />💗Floor Squeegee<br /><a rel="nofollow" target="blank" href="https://amzn.to/3Dd5nnQ">https://amzn.to/3Dd5nnQ</a><br /><br />💗Microfiber cloths<br /><a rel="nofollow" target="blank" href="https://amzn.to/3Dfg21e">https://amzn.to/3Dfg21e</a><br /><br />Summary:<br /><br />00:00 intro<br />01:43 coming up in this video<br />01:56 kitchen trashes<br />02:26 Washing the kitchen table<br />07:10 moldy dishes<br />07:46 Washing the kitchen sink<br />09:33 Washing a dirtylicious stove<br />11:48 grease on the wall<br />12:30 Washing the oven knobs<br />13:50 AMAZING dusting<br />14:36 Washing the fridge door<br />15:17 emptying kitchen counters<br />17:08 Washing the toaster<br />18:42 Washing a blender<br />19:07 polishing a dirty cup<br />19:50 Washing the Coffee maker<br />22:10 Washing the stove hood<br />23:20 Washing cabinet doors<br />24:09 Washing the microwave<br />24:50 Washing the kitchen floor<br />26:49 Washing the bathroom floor<br />27:47 dusting<br />28:06 Washing the Washing machine<br />28:27 Removing limescale<br />29:28 polishing a light switch<br />30:00 Washing the shower<br />30:58 Washing bathroom floor<br />31:44 Washing the toilet<br />33:08 final results{% endraw %}
