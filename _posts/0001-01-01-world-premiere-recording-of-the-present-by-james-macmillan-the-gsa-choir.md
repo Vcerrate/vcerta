@@ -1,0 +1,15 @@
+---
+title: "World premiere recording of \"The Present\", by James MacMillan"
+image: "https:\/\/i.ytimg.com\/vi\/JDfX2JVcQkc\/hqdefault.jpg"
+vid_id: "JDfX2JVcQkc"
+categories: "Music"
+tags: ["World","premiere","recording"]
+date: "2022-06-05T20:46:48+03:00"
+vid_date: "2022-05-26T23:00:12Z"
+duration: "PT4M50S"
+viewcount: "517"
+likeCount: "23"
+dislikeCount: ""
+channel: "The GSA Choir"
+---
+{% raw %}The GSA Choir presents the world premiere recording of &quot;The Present&quot;, by renowned Scottish composer, Sir James MacMillan, with lyrics by Francis Henry Newbery. The release celebrates the 10th anniversary of the ensemble.<br /><br />Discussing the release, Musical Director, Jamie Sansbury, says, &quot;Over the last ten years the GSA Choir has developed into one of Glasgow's largest choirs and one which, I am still proud to say, is non-auditioned and open to all. The world premiere recording of &quot;The Present&quot; - and the fact that James MacMillan was willing to compose for the ensemble - is testament to the quality of the choir, and the dedication of its singers.<br /><br />&quot;During the last decade we have established a reputation for a commitment to contemporary choral music (having, over the last ten years, commissioned fourteen new choral works) so it is fitting that our anniversary is celebrated with this recording.&quot;<br /><br />Explaining &quot;The Present&quot;, Jamie says, &quot;There is a sense of grandeur and of epic ambition in the piece that one associates more frequently with much longer, multi-movement works. This comes not only from the profound nature of the topic – the transience of the present moment and how, all too quickly, it is consigned to the past, immutable and unforgiving – but from the nature of the music itself. The very extremes of choral writing are present; wordless melodic lines, reminiscent of plainchant, performed by individual sets of voices, giving a feeling of monastic simplicity and calm contrasted, at times, with full- throated cries from the entire chorus; chords of unease and instability, of warning.&quot;<br /><br />Writing about the lyrics he chose to set, James MacMillan explains, “It is a poignant little poem which celebrates the here and now, and counsels that we should live life fully and creatively while it lasts.”<br /><br />Lyrics for The Present have been taken from a poem of the same name, written by Francis (Fra) Henry Newbery which is held in the archives of The Glasgow School of Art. Fra Newbery was the Director of the School from 1885 – 1917.<br /><br />Listen to the release here: <a rel="nofollow" target="blank" href="https://emubands.ffm.to/thepresent">https://emubands.ffm.to/thepresent</a><br /><br />The Present was commissioned with support from Creative Scotland, The Glasgow School of Art, and The Hope Scott Trust.<br /><br />&quot;The Present&quot;, by James MacMillan, is published by Boosey &amp; Hawkes.<br /><br />#GSAChoir #JamesMacMillan #ClassicalMusic{% endraw %}
