@@ -1,0 +1,15 @@
+---
+title: "But Don't Count the Bear Market Rally Out Just Yet"
+image: "https:\/\/i.ytimg.com\/vi\/km3Hu449J_k\/hqdefault.jpg"
+vid_id: "km3Hu449J_k"
+categories: "News-Politics"
+tags: ["steven van metre","steve van metre","bond king"]
+date: "2022-06-06T01:37:15+03:00"
+vid_date: "2022-06-05T19:00:12Z"
+duration: "PT16M27S"
+viewcount: "9843"
+likeCount: "982"
+dislikeCount: ""
+channel: "Steven Van Metre"
+---
+{% raw %}The S&amp;P 500 and Nasdaq-100 are likely to head lower but with strong buying support below, the Bear market rally isn't over yet. The bigger opportunity may be with the Russell 2000 which looks to head higher.<br /><br />A weekly look at the breadth indicators, technical momentum indicators, volume profile, and the charts for the S&amp;P 500 (SPY), Nasdaq-100 (QQQ), Russell 2000 (IWM), and High-Yield or Junk Bonds (HYG).<br /><br />Momentum Timer Pro™<br /><a rel="nofollow" target="blank" href="https://stevenvanmetre.com/momentum-timer-pro/">https://stevenvanmetre.com/momentum-timer-pro/</a><br /><br />Portfolio Shield™<br /><a rel="nofollow" target="blank" href="https://stevenvanmetre.com/portfolio-shield/">https://stevenvanmetre.com/portfolio-shield/</a><br /><br />Website<br /><a rel="nofollow" target="blank" href="http://stevenvanmetre.com/">http://stevenvanmetre.com/</a><br /><br />Social Media<br /><a rel="nofollow" target="blank" href="https://twitter.com/MetreSteven">https://twitter.com/MetreSteven</a><br /><br /><a rel="nofollow" target="blank" href="https://www.linkedin.com/in/steven-van-metre-b4a08b182/">https://www.linkedin.com/in/steven-van-metre-b4a08b182/</a><br /><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/svmfin/">https://www.facebook.com/svmfin/</a><br /><br />Watermark Artwork by Jasmine Miller Twitter: @jazcreative<br /><br />Portfolio Shield™ and Momentum Timer Pro™ are unregistered trademarks of Steven Van Metre Financial.<br /><br />Atlas Financial Advisors, Inc. (AFA) is a registered investment adviser and the opinions expressed by (AFA) on this show are their own and do not reflect the opinions of YouTube. All statements and opinions expressed are based upon information considered reliable although it should not be relied upon as such. Any statements or opinions are subject to change without notice.<br /><br />Information presented is for educational purposes only and does not intend to make an offer or solicitation for the sale or purchase of any specific securities, investments, or investment strategies.  Investments involve risk and unless otherwise stated, are not guaranteed.  <br /><br />Information expressed does not take into account your specific situation or objectives, and is not intended as recommendations appropriate for any individual. Listeners are encouraged to seek advice from a qualified tax, legal, or investment adviser to determine whether any information presented may be suitable for their specific situation.  Past performance is not indicative of future performance.{% endraw %}
