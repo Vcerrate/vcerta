@@ -1,0 +1,15 @@
+---
+title: "7 Steps to ITIL Continual Service Improvement | ITIL Training | Invensis Learning"
+image: "https:\/\/i.ytimg.com\/vi\/9NPc1lv-8lI\/hqdefault.jpg"
+vid_id: "9NPc1lv-8lI"
+categories: "Education"
+tags: ["continual service improvement","7 steps to itil continual service improvement","7 steps to csi"]
+date: "2022-06-05T12:35:04+03:00"
+vid_date: "2020-12-23T08:35:14Z"
+duration: "PT22M15S"
+viewcount: "1952"
+likeCount: "26"
+dislikeCount: ""
+channel: "Invensis Learning"
+---
+{% raw %}This video on &quot;7 steps to ITIL continual service improvement&quot; is a webinar recording. It explains continual service improvement and the 7 steps involved in the process. <br />Areas Covered:<br />1. What is Continual Service Improvement (CSI)?<br />2. 7 Steps to CSI<br />    1. Define what you should measure<br />    2. State what will you measure<br />    3. Collect the data<br />    4. Process the data<br />    5. Analyze the data<br />    6. Present and use the information<br />    7, Implement corrective actions<br />3. Conclusion<br /><br />#ITILContinualServiceImprovement #7StepsToCSI #InvensisLearning<br /><br />Subscribe to our channel: <a rel="nofollow" target="blank" href="https://bit.ly/3dmqNQS">https://bit.ly/3dmqNQS</a><br /><br />Click here to check upcoming webinars on IT service management <a rel="nofollow" target="blank" href="https://goo.gl/M9v8oP">https://goo.gl/M9v8oP</a><br /><br />About Invensis Learning:<br /><br />Invensis Learning is a pioneer in providing globally-recognized certification training courses for individuals and enterprises worldwide. We have trained and certified 15,000+ professionals from 50+ courses through multiple training delivery modes. <br />Invensis Learning provides live online ITIL 4 Foundation certification training which is accredited by AXELOS via PeopleCert: <a rel="nofollow" target="blank" href="http://bit.ly/34DcsxS">http://bit.ly/34DcsxS</a><br />This ITIL 4 Foundation training course includes live instructor led classes by  certified and accredited trainers. Participants enrolling for this ITIL 4 Foundation course will get lifetime access to a Learning Management System (LMS) which contains live class links, class recordings, PDFs, assignments, case-studies, mock exams and other class resources. <br /><br />Enroll now and pass your ITIL 4 Foundation certification exam in the first attempt. <br />If you want to enroll for any other certification related IT Service management visit our website: <a rel="nofollow" target="blank" href="http://bit.ly/2WBGopP">http://bit.ly/2WBGopP</a><br /><br /><br />Follow Us on:<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/invensislearn/">https://www.facebook.com/invensislearn/</a><br />LinkedIN: <a rel="nofollow" target="blank" href="https://www.linkedin.com/company/invensis-learning">https://www.linkedin.com/company/invensis-learning</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/invensiselearn/">https://twitter.com/invensiselearn/</a>{% endraw %}
