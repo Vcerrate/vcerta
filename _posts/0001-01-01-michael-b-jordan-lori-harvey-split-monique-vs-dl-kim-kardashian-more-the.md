@@ -1,0 +1,15 @@
+---
+title: "MICHAEL B JORDAN & LORI HARVEY SPLIT, MONIQUE VS DL,  KIM KARDASHIAN, & MORE| THE CELEBRITY DOCTOR"
+image: "https:\/\/i.ytimg.com\/vi\/VquomjHTHqs\/hqdefault.jpg"
+vid_id: "VquomjHTHqs"
+categories: "Comedy"
+tags: ["storm monroe","entertainment news","MONIQUE VS DL"]
+date: "2022-06-05T15:11:13+03:00"
+vid_date: "2022-06-05T00:39:55Z"
+duration: "PT1H18M31S"
+viewcount: "35602"
+likeCount: "3941"
+dislikeCount: ""
+channel: "Storm Monroe"
+---
+{% raw %}#stormmonroe #celebritygossip<br />Manifestation Bottles: <a rel="nofollow" target="blank" href="https://kingashleyann.myshopify.com/?ref=gd0z0uoouq">https://kingashleyann.myshopify.com/?ref=gd0z0uoouq</a><br /><br />EBOOK: <a rel="nofollow" target="blank" href="https://stormmonroe.samcart.com/products/top-10-mistakes-i-made-on-youtube-and-how-to-avoid-them">https://stormmonroe.samcart.com/products/top-10-mistakes-i-made-on-youtube-and-how-to-avoid-them</a><br /><br />GROW &amp; MONETIZE EBOOK: <a rel="nofollow" target="blank" href="https://stormmonroe.samcart.com/products/how-to-grow--monetize-youtube-in-12-months-ebook">https://stormmonroe.samcart.com/products/how-to-grow--monetize-youtube-in-12-months-ebook</a><br /><br />My Linktree!<br /><a rel="nofollow" target="blank" href="https://linktr.ee/monroeproductions">https://linktr.ee/monroeproductions</a><br /><br />Start your Health Journey: <a rel="nofollow" target="blank" href="https://uforiascience.com/stormmonroe">https://uforiascience.com/stormmonroe</a><br /><br />my.community.com/stormmonroe<br />Text Me: 678-679-6077<br /><br />JOIN MY CHANNEL AS A MEMBER TODAY!: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCQN2Q_Dccg_4Bi2PkupVkHA/join">https://www.youtube.com/channel/UCQN2Q_Dccg_4Bi2PkupVkHA/join</a><br /><br /><br />Need spiritual guidance or wicks of wisdom candles?<br /><a rel="nofollow" target="blank" href="https://lindasalvin.com/">https://lindasalvin.com/</a><br /><br />Personal Email:monroestorm59@gmail.com<br />Biz inquirires:stormmonroebusiness@gmail.com<br />IG:stormmonroetv<br />Twitter:stormhour1<br />Cashapp:stormmonroe2020<br />Biz Cashapp:$monroeproductionsllc<br />Paypal:monroestorm59@gmail.com<br />Biz Paypal: <a rel="nofollow" target="blank" href="https://paypal.me/monroeproductions?country.x=US&amp;locale.x=en_US">https://paypal.me/monroeproductions?country.x=US&amp;locale.x=en_US</a><br />Biz Paypal email: stormmonroebusiness@gmail.com<br />Snap:storm_monroe<br />Patreon:stormmonroe<br /><br />Copyright Disclaimer Under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, comment, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing.<br /><br />Disclaimer: The views and opinions expressed in this video and on the Storm Monroe Youtube Channel do not necessarily reflect the opinion of Storm C. Monroe and the Youtube Channel. All topics are for entertainment purposes only! Comedy satire TV-MA Viewer discretion is advised. All commentary is Alleged.{% endraw %}
