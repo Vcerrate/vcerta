@@ -1,0 +1,15 @@
+---
+title: "where it all began.."
+image: "https:\/\/i.ytimg.com\/vi\/i_zLQKub5aI\/hqdefault.jpg"
+vid_id: "i_zLQKub5aI"
+categories: "Gaming"
+tags: ["vr","joshdub","virtual reality"]
+date: "2022-06-06T15:22:16+03:00"
+vid_date: "2020-07-29T20:35:45Z"
+duration: "PT16M28S"
+viewcount: "5965269"
+likeCount: "253508"
+dislikeCount: ""
+channel: "JoshDub"
+---
+{% raw %}- FOLLOW THESE -<br />INSTRAGRAM - <a rel="nofollow" target="blank" href="https://www.instagram.com/joshdubgaming">https://www.instagram.com/joshdubgaming</a><br />TWITTER - <a rel="nofollow" target="blank" href="https://twitter.com/joshdub">https://twitter.com/joshdub</a><br />FACEBOOK - <a rel="nofollow" target="blank" href="https://facebook.com/joshdubgaming">https://facebook.com/joshdubgaming</a><br />DISCORD - <a rel="nofollow" target="blank" href="https://discord.gg/RBJkYBe">https://discord.gg/RBJkYBe</a><br />MERCHANDISE - <a rel="nofollow" target="blank" href="https://joshdub.store">https://joshdub.store</a><br /><br />- SUB TO THE BOYS -<br />MULLY - <a rel="nofollow" target="blank" href="https://www.youtube.com/c/mullyvr">https://www.youtube.com/c/mullyvr</a><br />NARRATOR - <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UChfYPe-r_5EMHbBMT-YuYsA">https://www.youtube.com/channel/UChfYPe-r_5EMHbBMT-YuYsA</a><br />JUICY - <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCqW1fD8sVPnOXipfuoehCxQ">https://www.youtube.com/channel/UCqW1fD8sVPnOXipfuoehCxQ</a><br />EDDIE - <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCYHnYO50VV8SzsmQq5PChRA">https://www.youtube.com/channel/UCYHnYO50VV8SzsmQq5PChRA</a><br /><br />- MY EQUIPMENT -<br />HTC Vive Pro<br />HTC Wireless Adapter<br />Valve Knuckles Controllers<br />AT9903 Microphone<br />Intel i9 9900k @ 4.8Ghz<br />Nvidia 2080ti<br />16GB RAM<br />3TB Samsung 960 PRO SSD<br /><br />- INTRO MUSIC -<br />BUBBLES by Tokyo Machine<br />Listen on Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/album/6n7nqfu80kPhjZhV9GgHWF">https://open.spotify.com/album/6n7nqfu80kPhjZhV9GgHWF</a><br />iTunes Download Link: <a rel="nofollow" target="blank" href="https://geo.itunes.apple.com/us/album/bubbles-single/id1279429815?uo=4&amp;app=itunes&amp;at=1000lK3L&amp;ct=LFV_f4f26095bdb384487c5c6a5dfc2bb1b9">https://geo.itunes.apple.com/us/album/bubbles-single/id1279429815?uo=4&amp;app=itunes&amp;at=1000lK3L&amp;ct=LFV_f4f26095bdb384487c5c6a5dfc2bb1b9</a><br />iTunes Download Link: <a rel="nofollow" target="blank" href="https://geo.itunes.apple.com/us/album/bubbles-single/id1279429815?uo=4&amp;app=music&amp;at=1000lK3L&amp;ct=LFV_f4f26095bdb384487c5c6a5dfc2bb1b9">https://geo.itunes.apple.com/us/album/bubbles-single/id1279429815?uo=4&amp;app=music&amp;at=1000lK3L&amp;ct=LFV_f4f26095bdb384487c5c6a5dfc2bb1b9</a><br /><br />- MUSIC -<br /><a rel="nofollow" target="blank" href="https://www.purple-planet.com">https://www.purple-planet.com</a><br /><a rel="nofollow" target="blank" href="https://www.epidemicsound.com/">https://www.epidemicsound.com/</a>{% endraw %}
