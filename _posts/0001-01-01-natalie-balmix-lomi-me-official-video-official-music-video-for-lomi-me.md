@@ -1,0 +1,15 @@
+---
+title: "NATALIE BALMIX - LOMI ME (OFFICIAL VIDEO)"
+image: "https:\/\/i.ytimg.com\/vi\/AjRdqwLjIi0\/hqdefault.jpg"
+vid_id: "AjRdqwLjIi0"
+categories: "Entertainment"
+tags: ["idjvideos","cvija","nikolija"]
+date: "2022-06-07T21:05:16+03:00"
+vid_date: "2022-06-06T11:30:08Z"
+duration: "PT3M27S"
+viewcount: "148313"
+likeCount: "6632"
+dislikeCount: ""
+channel: "IDJVideos.TV"
+---
+{% raw %}Official music video for “Lomi Me” by Natalie Balmix.​<br />⤷ Stream/Download: <a rel="nofollow" target="blank" href="https://idjtunes.fanlink.to/lomi-me">https://idjtunes.fanlink.to/lomi-me</a><br /><br />📲 Natalie Balmix - PR &amp; Management: mgmt@idjvideos.tv <br />📲 Natalie Balmix - Booking: Sandra Sasa +381638526467<br /><br />℗ &amp; © 2022 IDJTunes / IDJDigital Limited<br />Digital distribution: <a rel="nofollow" target="blank" href="http://www.idjdigital.com">http://www.idjdigital.com</a><br /><br />🎧 Slušaj &quot;Balkan Hitovi&quot; plejlistu:<br />Spotify → <a rel="nofollow" target="blank" href="http://spotify.idjvideos.tv">http://spotify.idjvideos.tv</a> <br />Deezer → <a rel="nofollow" target="blank" href="http://deezer.idjvideos.tv">http://deezer.idjvideos.tv</a><br />Tidal → <a rel="nofollow" target="blank" href="http://tidal.idjvideos.tv">http://tidal.idjvideos.tv</a><br /><br />🎶 Muzika: Darko Dimitrov<br />🎶 Tekst: Pavle Subotic<br />🎶 Aranzman: Darko Dimitrov<br /><br />📽Video: 3PM  - <a rel="nofollow" target="blank" href="https://www.instagram.com/3pm.belgrade">https://www.instagram.com/3pm.belgrade</a><br />📽 Director: Rebi<br />📽 DOP: Rebi<br />📽 Supervisor: Marija Škokljev<br />📽 Assistant Director: Marija Škokljev<br />📽 Assistant Camera: Pryme<br />📽 Steadicam Operator: Lazar Janković<br />📽 Production Design: Maja Onyx<br />📽 Scenography: Nemanja Gačić<br />📽 Scenography Assistant: Milos Josipović Shommi<br />📽 Scenography Assistant: Leontina<br />📽 Props: Dana Barbara<br />📽 Stylist: Elena Nikolaevna<br />📽 MUA: Milica Djordjević<br />📽 Hairstyle: Aleksandar Filipov<br />📽 Editing &amp; Post Production: Rebi<br />📽 Choreographer: Kaja Ostojić<br />📽 Producers: Andrijano Ajzi &amp; Rebi<br />📽 Executive Producer: IDJWorld d.o.o. Beograd<br /><br />📸 Follow Natalie Balmix:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/natalie.balmix">https://www.instagram.com/natalie.balmix</a><br /><br />📸 Follow IDJVideos: <br /><a rel="nofollow" target="blank" href="http://www.facebook.com/idjvideos">http://www.facebook.com/idjvideos</a><br /><a rel="nofollow" target="blank" href="http://instagram.com/idjvideos">http://instagram.com/idjvideos</a> <br /><a rel="nofollow" target="blank" href="http://tiktok.com/@idjvideos">http://tiktok.com/@idjvideos</a><br /><a rel="nofollow" target="blank" href="http://twitter.com/idjvideos">http://twitter.com/idjvideos</a> <br /><a rel="nofollow" target="blank" href="http://www.idjvideos.tv">http://www.idjvideos.tv</a><br /><br />📌 For business or copyright inquiries contact us by email.{% endraw %}
