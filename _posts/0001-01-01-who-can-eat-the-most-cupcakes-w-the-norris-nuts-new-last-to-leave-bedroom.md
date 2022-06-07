@@ -1,0 +1,15 @@
+---
+title: "WHO CAN EAT THE MOST CUPCAKES w\/The Norris Nuts"
+image: "https:\/\/i.ytimg.com\/vi\/yf1x4RVV3_0\/hqdefault.jpg"
+vid_id: "yf1x4RVV3_0"
+categories: "People-Blogs"
+tags: ["norris nuts","family friendly","family vlog"]
+date: "2022-06-07T15:22:17+03:00"
+vid_date: "2022-06-04T08:30:08Z"
+duration: "PT29M18S"
+viewcount: "1562184"
+likeCount: "41646"
+dislikeCount: ""
+channel: "The Norris Nuts"
+---
+{% raw %}NEW LAST TO LEAVE BEDROOM <a rel="nofollow" target="blank" href="https://youtu.be/vW6pB0gVEKE">https://youtu.be/vW6pB0gVEKE</a><br />HOME ALONE 5 STAR HOTEL - <a rel="nofollow" target="blank" href="https://youtu.be/NrQOPqqccOo">https://youtu.be/NrQOPqqccOo</a><br />SABRE PASSED OUT AT THE CARNIVAL <a rel="nofollow" target="blank" href="https://youtu.be/sAqEYQHR93c">https://youtu.be/sAqEYQHR93c</a><br />WHO CAN MAKE THE BEST D.I.Y. TIE DYE <a rel="nofollow" target="blank" href="https://youtu.be/Kn9-6j2q24Y">https://youtu.be/Kn9-6j2q24Y</a><br /><br />If you liked this video you may also like these other videos...<br />WHO CAN EAT MOST CHICKEN NUGGETS <a rel="nofollow" target="blank" href="https://youtu.be/DtWpSMjP5N4">https://youtu.be/DtWpSMjP5N4</a><br />LAST TO LEAVE THE POOL <a rel="nofollow" target="blank" href="https://youtu.be/T3UTcx31W4s">https://youtu.be/T3UTcx31W4s</a><br /><br />Our Latest challenges here <a rel="nofollow" target="blank" href="https://youtu.be/7VNvxbEN1sI">https://youtu.be/7VNvxbEN1sI</a> <br /><br /><br />#familyvlog #challenge #norrisnuts<br />In this video we find out which Norris Nut will eat the most cupcakes. We also hear more updates about the Norris Nuts moving to Sydney. If you enjoyed LAST TO LEAVE THE POOL then you will enjoy this similar video.. <br /><br />Check out our other channels here <br />NORRIS NUTS GAMING <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSGAMING">http://bit.ly/NORRISNUTSGAMING</a><br />MAIN CHANNEL <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTS">http://bit.ly/NORRISNUTS</a><br />NORRIS NUTS DO STUFF <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSDOSTUFF">http://bit.ly/NORRISNUTSDOSTUFF</a><br />NORRIS NUTS COOKING <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSCOOKING">http://bit.ly/NORRISNUTSCOOKING</a><br />NORRIS NUTS CLIPS <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSCLIPS">http://bit.ly/NORRISNUTSCLIPS</a><br />NORRIS NUTS SQUAD (adventures) <a rel="nofollow" target="blank" href="http://bit.ly/NORRISNUTSSQUAD">http://bit.ly/NORRISNUTSSQUAD</a><br /><br />Our MOST POPULAR VIDEOS HERE <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PL92HrKDrbQZ1ljDSJdh-sQb10oYb_OsoS">https://www.youtube.com/playlist?list=PL92HrKDrbQZ1ljDSJdh-sQb10oYb_OsoS</a><br /><br />*Comment on our Community Tab on the Channel Page<br /><br />MAKE CLOSED CAPTIONS (subtitles) in your language here <a rel="nofollow" target="blank" href="http://www.youtube.com/timedtext_cs_panel?c=UCYd0us2OtW4d4-1cfpT2ktw&amp;tab=2">http://www.youtube.com/timedtext_cs_panel?c=UCYd0us2OtW4d4-1cfpT2ktw&amp;tab=2</a>{% endraw %}
