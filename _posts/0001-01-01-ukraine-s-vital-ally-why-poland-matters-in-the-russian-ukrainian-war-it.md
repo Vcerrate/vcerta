@@ -1,0 +1,15 @@
+---
+title: "Ukraine's vital ally - Why Poland matters in the Russian-Ukrainian war"
+image: "https:\/\/i.ytimg.com\/vi\/sSPhOWDkcPk\/hqdefault.jpg"
+vid_id: "sSPhOWDkcPk"
+categories: "News-Politics"
+tags: ["russia","ukraine","poland"]
+date: "2022-06-07T18:53:26+03:00"
+vid_date: "2022-06-05T12:04:57Z"
+duration: "PT50M43S"
+viewcount: "208236"
+likeCount: "16462"
+dislikeCount: ""
+channel: "Perun"
+---
+{% raw %}It's easy to think of the invasion of Ukraine through the lens of  cold-war American-Russian competition, with Washington having been one of the first to announce substantial weapon shipments and financial support for Ukraine from February onward. <br /><br />But support for Ukraine has been a pan-European affair, with some nations going to extraordinary lengths when contrasted with their limited resources. The Baltic and many Eastern European nations stand out in this regard for the willingness they've shown to dig deep into their military reserves in order to get hardware into Ukrainian hands. <br /><br />In terms of volumes for key heavy equipment like tanks and mobile rocket and artillery systems, Poland stands out as a critical source. Warsaw has emerged as one of Ukraine's staunchest advocates, shipping tanks by the hundred, and allowing its territory to be converted into a logistical hub while opening its doors to Ukrainians by the millions. <br /><br />In this video I try to give historical context to Poland's decision to throw its resources behind Ukraine and put focus on what this nation, with an economy nominally the size of New Jersey's (ppp-aside), has done to keep the Ukrainian army fighting while preserving the lives and wellbeing of millions of Ukrainian civilians. <br /><br />Patreon: <br /><a rel="nofollow" target="blank" href="https://www.patreon.com/PerunAU">https://www.patreon.com/PerunAU</a><br /><br />Timestamps:<br />00:00:00 – For our freedom and yours: Poland and the Ukraine War<br /> 00:00:57 – Ukraine's most important allies (by GDP figures)<br /> 00:01:33 – America has limits<br /> 00:03:02 – What am I covering?<br /> 00:03:43 – History of Polish-Russian relations<br /> 00:05:04 – History: Destruction of the Polish–Lithuanian Commonwealth<br /> 00:08:36 – History: Partition and occupation<br /> 00:11:12 – History: “The Red Flag” - the Polish-Soviet war (1918)<br /> 00:12:13 – History: “The Red Flag” - Soviets are back (1939)<br /> 00:14:28 – Poland's strategic situation<br /> 00:15:56 – The Stakes for Poland<br /> 00:17:52 – Poland's Support: Civilians<br /> 00:20:29 – Poland's Support: Arms<br /> 00:21:53 – Poland's Support: Armoured Vehicles<br /> 00:23:14 – Poland's Support: Small Arms<br /> 00:25:30 – Poland's Support: Artillery &amp; Ordnance<br /> 00:27:49 – Poland's Support: Scale<br /> 00:29:14 – Poland's Support: Logistics<br /> 00:33:21 – Russian retribution<br /> 00:34:52 – Why does all this matter<br /> 00:37:58 – What could have been<br /> 00:40:25 – Poland's Military transformation<br /> 00:43:49 – Poland's post-war possibilities<br /> 00:47:29 – Summary<br /> 00:48:59 – Channel update{% endraw %}
