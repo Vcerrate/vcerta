@@ -1,0 +1,15 @@
+---
+title: "Syria Someplace"
+image: "https:\/\/i.ytimg.com\/vi\/jqjEt3fZQcM\/hqdefault.jpg"
+vid_id: "jqjEt3fZQcM"
+categories: "Music"
+tags: ["siria","musica","inediti"]
+date: "2022-06-08T10:10:56+03:00"
+vid_date: "2019-10-03T18:32:13Z"
+duration: "PT4M51S"
+viewcount: "4804"
+likeCount: "148"
+dislikeCount: ""
+channel: "Someplace"
+---
+{% raw %}Syria<br /><br />Bare feet in the sand<br />Naked bodies in the mist of the land<br />Can you smell the taste of death<br />Foot step of an angel<br />Step of an angel…<br />Aren’t we all great mans or just black souls<br />Taste the smell of fear<br />Zinc, zoulf and in the and incense<br />One last meaningless goodbye<br />One last meaningless goodbye<br />Shoot and destroy the stranger enemy<br />Can you breath in the death whilist I say it<br />Wandering ayes, no hate nor love<br />Hanging toys in horrific playground<br />Wandering ayes, no hate nor love<br />Hanging toys in horrific playground<br />Footsteps, of angels, left in the wind<br />Bloody wings upon cold cement cold cement cold cement<br />Fly again if you can, leave no trace<br />There’s no friendly fire, as far as I know<br />Tear apart the school, tear apart our country<br />Tear apart flash... showering bombs<br />Tears and blood, the air rumbles, the pain isn’t silent<br />While I than whom who shoots<br />Preasing peace preasing peace <br /><br />Traduzione in Italiano<br /><br />Passi scalzi sulla sabbia<br />Nudi corpi tra la nebbia<br />Eliche appese su nuvole vere<br />Ombre di uomini o anime nere<br />Senti che odore ha la paura<br />Di zinco, di zolfo e infine di incenso<br />L’estremo saluto privo di senso<br />L’estremo saluto a che è privo di senso<br />Spara e distruggi l’estraneo nemico<br />Respiri la morte mentre lo dico?<br />Occhi dispersi, né odio né amore<br />Bambini sospesi nei parchi d’orrore<br />Occhi dispersi, né odio né amore<br />Bambini sospesi nei parchi d’orrore<br />Orme di angeli, lasciate dal vento<br />Ali di sangue sul freddo cemento<br />Se puoi vola ancora, non lasciare traccia<br />Non c’è fuoco amico per quanto ne sappia<br />Dilania la scuola, il paese, la carne<br />Pioggia di bombe<br />Lacrime e sangue, frastuono di aria, il dolore non tace<br />“Ringrazia” chi spara in virtù della pace<br /><br /><br />Sonia Tabacco Voce<br />Stefano Pierucci Chitarra Acustica<br />Cristian Flamini Chitarra Elettrica <br />Gianluigi Sebastiani Basso<br />Salvatore Grassini Batteria <br /><br />Siria, nasce come una riflessione in musica; stravolge i canoni regolari della struttura di un brano per mantenere l identità del racconto.<br />Depositato due anni fa,Siria prende forma il 20/07/2019, grazie alla collaborazione empatica tra noi ed il Regista Francesco D'Aloi, Dop Giancarlo Lancioni, Edit Egidio Amendola, aiuto regia Danilo Lommi e Daniela Di Rocco,Special Effects Alice Gentili.Registrazioni Mixaggio e Mastering a cura di IMPRONTE RECORDS .<br /><br />Con la collaborazione di <br />Alessandro Valenzi Chitarra Elettrica<br />Claudio Zampa Chitarra Elettrica (Assolo)<br />Flavio Zampa Suoni D'Ambiente<br />Luigi Del Pinto Batteria{% endraw %}
