@@ -1,0 +1,15 @@
+---
+title: "Wells Fargo Gets Caught AGAIN & Apple Sees Chaos In Europe | Market Update"
+image: "https:\/\/i.ytimg.com\/vi\/KBsy1v-DMaY\/hqdefault.jpg"
+vid_id: "KBsy1v-DMaY"
+categories: "Education"
+tags: ["investing","finance","business"]
+date: "2022-06-08T23:56:53+03:00"
+vid_date: "2022-06-08T14:13:56Z"
+duration: "PT20M44S"
+viewcount: "13933"
+likeCount: "1200"
+dislikeCount: ""
+channel: "Stoic Finance"
+---
+{% raw %}Join Our Exclusive Community, Get Buy/Sell Alerts For My Personal Portfolio, And Loads More:<br />🔥 Stoic Media: <a rel="nofollow" target="blank" href="https://www.patreon.com/StoicMedia">https://www.patreon.com/StoicMedia</a><br /><br />Invest In Fractional Ownership Of Fine Art From World Famous Artists:<br />🎨 Masterworks.io: <a rel="nofollow" target="blank" href="https://masterworks.536u.net/Stoic">https://masterworks.536u.net/Stoic</a><br /><br />Invest In Crypto Through Your IRA And Save Thousands:<br />🪙 iTrustCapital: <a rel="nofollow" target="blank" href="https://itrustcapital.com/referral100?utm_source=partner&amp;utm_medium=youtube&amp;utm_campaign=partner721&amp;oid=10&amp;affid=721&amp;source_id=StoicFinance">https://itrustcapital.com/referral100?utm_source=partner&amp;utm_medium=youtube&amp;utm_campaign=partner721&amp;oid=10&amp;affid=721&amp;source_id=StoicFinance</a><br /><br />Check Out These Other Sites For Free Crypto And Great Opportunities:<br />💰 BlockFi: <a rel="nofollow" target="blank" href="https://blockfi.com/stoicfinance">https://blockfi.com/stoicfinance</a><br />🥇 Vaulted: <a rel="nofollow" target="blank" href="https://vaulted.blbvux.net/StoicFinance">https://vaulted.blbvux.net/StoicFinance</a><br />💸 Crypto.com: <a rel="nofollow" target="blank" href="https://crypto.com/exch/ymyx9jfyec">https://crypto.com/exch/ymyx9jfyec</a><br /><br />Follow &amp; Subscribe To Our Other Platforms Here!<br />📈 Stoic Crypto: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCreVQ_ZnWcCP1tFNqWbXPcg">https://www.youtube.com/channel/UCreVQ_ZnWcCP1tFNqWbXPcg</a><br />🏛️ Stoic Politics: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC_6gISRB6Lo9VR9pOnDdZtA">https://www.youtube.com/channel/UC_6gISRB6Lo9VR9pOnDdZtA</a><br />🐤 My Personal Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/Max_Stoic">https://twitter.com/Max_Stoic</a><br />🐤 Stoic Media's Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/Stoic_Media">https://twitter.com/Stoic_Media</a><br /><br />DISCLAIMERS:<br />I am not a financial advisor and this is not a financial advice channel. All information is provided strictly for educational purposes. It does not take into account anybody's specific circumstances or situation. If you are making investment or other financial management decisions and require advice, please consult a suitably qualified licensed professional.<br /><br />See important Masterworks disclosures: <a rel="nofollow" target="blank" href="https://mw-art.co/37WwvbD">https://mw-art.co/37WwvbD</a>{% endraw %}
