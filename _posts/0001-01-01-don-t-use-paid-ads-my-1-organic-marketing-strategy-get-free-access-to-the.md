@@ -1,0 +1,15 @@
+---
+title: "DON’T Use Paid Ads | My #1 Organic Marketing Strategy"
+image: "https:\/\/i.ytimg.com\/vi\/ItMKGaBu3jU\/hqdefault.jpg"
+vid_id: "ItMKGaBu3jU"
+categories: "Education"
+tags: ["adam erhart","marketing show","digital marketing"]
+date: "2022-06-08T06:02:05+03:00"
+vid_date: "2022-05-06T13:30:03Z"
+duration: "PT7M34S"
+viewcount: "23314"
+likeCount: "1009"
+dislikeCount: ""
+channel: "Adam Erhart"
+---
+{% raw %}Get FREE access to “The One-Page Marketing Cheatsheet” here: <a rel="nofollow" target="blank" href="https://adamerhart.com/cheatsheet">https://adamerhart.com/cheatsheet</a><br /><br />If you don’t understand this one simple thing about advertising your business you’re going to lose a lot of money, very quickly.<br /> <br />And that is, that advertising is an accelerator, not an initiator.<br /> <br />Meaning, advertising can take something that you already have, a good offer, product, or service that people love and is selling well, and can help you get it in front of even more people just like your best customers.<br /><br />But, what advertising can’t do, is take a new offer, a new idea, or an unproven product or service and just magically make it sell.<br /><br />That's why in this video I'm going to show you my #1 organic marketing strategy, and how you can use it too.<br /><br />So, let me show you how it's done. <br /><br />#marketing #digitalmarketing #marketingstrategy<br /><br />***PS - Whenever you’re ready, here are the 3 best ways I can help you…<br />1) The One-Page Marketing Cheatsheet: <a rel="nofollow" target="blank" href="https://adamerhart.com/cheatsheet">https://adamerhart.com/cheatsheet</a><br />2) 1-on-1 Marketing Coaching and Consulting: <a rel="nofollow" target="blank" href="https://adamerhart.com/work-with-me/">https://adamerhart.com/work-with-me/</a><br />3) Join The &quot;Digital Marketing Academy&quot;: <a rel="nofollow" target="blank" href="https://adamerhart.com/academy">https://adamerhart.com/academy</a><br /><br />***Let’s Connect:<br />Website: <a rel="nofollow" target="blank" href="https://adamerhart.com">https://adamerhart.com</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/adamerhart">https://www.instagram.com/adamerhart</a><br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@officialadamerhart">https://www.tiktok.com/@officialadamerhart</a><br />YouTube: <a rel="nofollow" target="blank" href="https://bit.ly/2HxjQRa">https://bit.ly/2HxjQRa</a><br />Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/officialadamerhart">http://facebook.com/officialadamerhart</a><br />Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/adamerhart">http://twitter.com/adamerhart</a><br /><br />***Books &amp; Courses:<br />Reading List: <a rel="nofollow" target="blank" href="https://aerh.co/reading">https://aerh.co/reading</a><br />Marketing Course: <a rel="nofollow" target="blank" href="https://adamerhart.com/academy">https://adamerhart.com/academy</a>{% endraw %}
