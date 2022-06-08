@@ -1,0 +1,15 @@
+---
+title: "OMG HIS VOICE IS UNIQUE- Michael Jackson - Billie Jean | Allie Sherlock & Fabio Rodrigues cover"
+image: "https:\/\/i.ytimg.com\/vi\/WcWA1LoeWU4\/hqdefault.jpg"
+vid_id: "WcWA1LoeWU4"
+categories: "Music"
+tags: ["unique voice","michael jackson billie jean cover","michael jackson billie jean allie sherlock"]
+date: "2022-06-08T16:47:33+03:00"
+vid_date: "2020-07-08T14:00:22Z"
+duration: "PT4M43S"
+viewcount: "56094234"
+likeCount: "896461"
+dislikeCount: ""
+channel: "Allie Sherlock"
+---
+{% raw %}While I was busking on the street, I was joined by this amazing musician, Fabio Rodrigues. I love this guy! This is me and Fabio performing Billie Jean by Michael Jackson. Enjoy!<br /><br />TIPS JAR 💚 <br /><a rel="nofollow" target="blank" href="https://www.paypal.me/Alliesherlock">https://www.paypal.me/Alliesherlock</a><br />or<br /><a rel="nofollow" target="blank" href="https://tipapp.quiktipz.com/tip/alliesherlock">https://tipapp.quiktipz.com/tip/alliesherlock</a><br /><br />MY CD HERE OR SIGNED PHOTO ❤<br /><a rel="nofollow" target="blank" href="https://paypal.me/pools/c/8eacISa5di">https://paypal.me/pools/c/8eacISa5di</a><br /><br />PERSONALIZED VIDEOS<br /><a rel="nofollow" target="blank" href="https://www.thrillz.co.uk/talent/allie.sherlock">https://www.thrillz.co.uk/talent/allie.sherlock</a><br /><br />FABIO <br /><a rel="nofollow" target="blank" href="https://instagram.com/fabiorodrigues.music?igshid=lu1wjoonpf7h">https://instagram.com/fabiorodrigues.music?igshid=lu1wjoonpf7h</a><br /><br />Fabio YouTube <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCmY0vXoaFexFfkgWvS-GvEA">https://www.youtube.com/channel/UCmY0vXoaFexFfkgWvS-GvEA</a><br /><br />Any tips given go towards supporting my music career. Thanks Guys 💙<br /><br />SUBSCRIBE to my YouTube here⬇️<br /><a rel="nofollow" target="blank" href="https://smarturl.it/alliesherlockyt">https://smarturl.it/alliesherlockyt</a><br /><br />Follow me on INSTAGRAM 🤍 <a rel="nofollow" target="blank" href="https://www.instagram.com/AllieSherlock/">https://www.instagram.com/AllieSherlock/</a><br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/alliesherlock2005/">https://www.facebook.com/alliesherlock2005/</a><br /><br />For business enquiries:<br />alliesherlockmusic@gmail.com <br /> <br />And don’t forget to subscribe to my YouTube channel!<br /> <br />Stream my music on Spotify<br /><a rel="nofollow" target="blank" href="http://smarturl.it/AllieSherlockSpotify">http://smarturl.it/AllieSherlockSpotify</a><br /> <br />Download and Stream my music on iTunes and Apple Music<br /><a rel="nofollow" target="blank" href="http://smarturl.it/AllieSherlockITunes">http://smarturl.it/AllieSherlockITunes</a><br /><br />#AllieSherlock #Singer #Guitarist<br /><br />Learning guitar? Guitar Tricks has over 11,000 online video lessons. Get a 14 day trial here: <a rel="nofollow" target="blank" href="https://www.guitartricks.com/trial_splash.php?a_aid=5c672bb574f62">https://www.guitartricks.com/trial_splash.php?a_aid=5c672bb574f62</a>{% endraw %}
