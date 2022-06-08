@@ -1,0 +1,15 @@
+---
+title: "THE THRILL OF THE WESTERN"
+image: "https:\/\/i.ytimg.com\/vi\/bG5MUTsof0U\/hqdefault.jpg"
+vid_id: "bG5MUTsof0U"
+categories: "Music"
+tags: ["Edmond Agopian","Calgary Youth Orchestra","CYO"]
+date: "2022-06-08T05:30:20+03:00"
+vid_date: "2014-06-03T18:07:58Z"
+duration: "PT1H18M58S"
+viewcount: "64477"
+likeCount: ""
+dislikeCount: ""
+channel: "Edmond Agopian"
+---
+{% raw %}Calgary Youth Orchestra, Mount Royal University Conservatory, Edmond Agopian - Music Director<br />Arrangements by Donovan Seidle<br /><br />The Big Country (Suite) - MGM (1958) Jerome Moross<br />The Treasure of the Sierra Madre -- Warner Bros. Pictures (1974) Max Steiner 10:18<br />Ghost Riders in the Sky - Riders in the Sky, Columbia Pictures (1948) Stan Jones 12:37<br />Blazing Saddles - Warner Bros. Pictures (1974) John Morris 18:20<br />How the West Was Won - MGM (1962) Alfred Newman 20:08<br />The Comancheros - Paramount Pictures (1961) Elmer Bernstein 23:06<br /> Cat Ballou (part 1) - Columbia/Tristar (1965) Mack David/Jerry Livingstone 24:51<br />40 Guns to Apache Pass - Universal Studios (1967) Richard LaSalle 27:59<br />The Hallelujah Trail - United Artists (1965) Elmer Bernstein 30:12<br />Cat Ballou (part 2) - Mack David/Jerry Livingstone 34:36<br />Once Upon a Time in Mexico (Malaguena) -  Sony Pictures (2003) Traditional 37:01<br />The Gunfighter - 20th Century Fox ( 1950) Alfred Newman 42:01<br />The Alamo/The Proud Rebel - MGM (1960) /Diamond Ent. (1958) Dimitri Tiomkin/Jerome Moross 44:09<br />The Jayhawkers - Paramount Pictures (1959) Jerome Moross 47:43<br />A Fistful of Dollars - MGM (1967) Ennio Morricone 52:56<br />The Good, the Bad and the Ugly - MGM (1967) Ennio Moricone 56:38<br />Bonanza/Gunsmoke medley - NBC (1959-1973)/CBS (1955-1975) Jay Livingstone and Ray Evans/Rex Koury and Glenn Spencer 1:00:10<br />The Magnificent Seven - MGM (1960) Elmer Bernstein 1:03:06<br />The Big Country (Waltz) - MGM (1958) Jerome Moross 1:06:01<br />The Sons of Katie Elder - Paramount Pictures (1965) Elmer Bernstein 1:08:48<br />The Tin Star - Paramount Pictures (1957) Elmer Bernstein 1:11:58<br />Once Upon a Time in the West (A Dimly Lit Room) - Paramount Studios (1968) Ennio Morricone 1:13:59<br /><br /> &quot;Imaginative interpretation...nicely pulled off...played to the fullest, with enthusiasm and energy...&quot; - Rick Phillips, CBC Radio, &quot;Sound Advice&quot;<br /><br />From the CD liner notes:<br />&quot;The Thrill of the Western program was designed by CYO music director Edmond Agopian to celebrate Alberta's Centennial (2005). This is a fitting musical companion to the &quot;Wild West&quot; spirit which comes to life in Calgary each July, with the arrival of the Calgary Stampede, one of the oldest rodeos in North America.<br />After reviewing over one hundred and fifty Westerns (movies and TV series), Mr. Agopian chose twenty-two scores for this project. Donovan Seidle, CYO alumnus, and presently Assistant Concertmaster of the Calgary Philharmonic Orchestra, was commissioned to arrange this music for the CYO.&quot;{% endraw %}
