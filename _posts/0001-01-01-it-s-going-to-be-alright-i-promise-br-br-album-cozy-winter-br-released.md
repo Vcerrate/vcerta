@@ -1,0 +1,15 @@
+---
+title: "it's going to be alright…"
+image: "https:\/\/i.ytimg.com\/vi\/lotFLGYFTQA\/hqdefault.jpg"
+vid_id: "lotFLGYFTQA"
+categories: "Music"
+tags: ["Lofi mix","Cute lofi","Aesthetic"]
+date: "2022-06-08T09:21:45+03:00"
+vid_date: "2022-03-11T23:08:43Z"
+duration: "PT1H18M5S"
+viewcount: "125697"
+likeCount: "5011"
+dislikeCount: ""
+channel: "Ambition"
+---
+{% raw %}i promise 🌙<br /><br />album: cozy winter<br />released by Lofi Girl<br /><br />Tracklist:<br />0:00 Team Astro - Over The Moon<br />2:53 Hoogway - After You<br />5:12 Purrple Cat - Moonlit Walk<br />8:42 Enluv x E I S U - Fjallstoppur<br />10:48 squeeda - Vulnerable<br />13:44 Towerz x farewell - Sparkler<br />16:22 Jhove - Night Lamp<br />18:32 cxlt. - Overthinking <br />21:04 Elior - Soaring<br />23:44 xander. - Rain Come Again<br />26:47 G Mills x aimless - Drifting<br />28:55  WYS - San Fransisco<br />31:16 Lofty x Pointy Features x Quist - Loves Dissonance<br />33:56 Monma x cocabona - Tetra<br />37:07 aimless x soho - Every Second<br />39:52 Glimlip - Ebs and Flows<br />41:31 TABAL x eaup - Days Will Pass<br />43:31 Ambulo - Serene<br />45:39 Sleepermane x Sling Dilly - Inside Out<br />47:43 Otaam x squeeda - Dreaming of Snow<br />49:39 eaup x Elior - Floating<br />52:04 Bert x Nerok - Campfire<br />54:16 azula x iamalex x Dillan Witherow - Hammock<br />56:26 Anbuu x Blue Wednesday - Sixth Station<br />59:08 tysu x Spencer Hunt - Heated Blanket<br />1:01:32 Kainbeats x S N U G - Formless<br />1:04:02 Chiccote’s Beats x Pueblo Vista - Counting Stars<br />1:06:07 Towerz x Hoogway - Moonfall<br />1:08:38 fourwalls - Waves<br />1:10:41 Celestial Alignment - A Roomful of Memories &amp; Longing<br />1:12:51 Mondo Loops - Always Drifting<br />1:15:30 Laffey - As The Sun Sets<br /><br />+ Listen on Spotify<br /><a rel="nofollow" target="blank" href="https://open.spotify.com/album/2cnaJP2xvzWXH3CNCthGWP?si=7nOVv_sTS1-KVzMx1g-N1Q">https://open.spotify.com/album/2cnaJP2xvzWXH3CNCthGWP?si=7nOVv_sTS1-KVzMx1g-N1Q</a><br /><br />+ Listen on Apple Music <br /><a rel="nofollow" target="blank" href="https://music.apple.com/us/album/cozy-winter/1547787156">https://music.apple.com/us/album/cozy-winter/1547787156</a><br /><br />🌙 Artwork by owakita<br />∷ <a rel="nofollow" target="blank" href="https://instagram.com/owakita_">https://instagram.com/owakita_</a><br />∷ <a rel="nofollow" target="blank" href="https://twitter.com/owakita_">https://twitter.com/owakita_</a><br /><br />੭ ambition<br />∷ <a rel="nofollow" target="blank" href="https://twitter.com/ambitionyt">https://twitter.com/ambitionyt</a><br />∷ <a rel="nofollow" target="blank" href="https://soundcloud.com/ambition-beats">https://soundcloud.com/ambition-beats</a><br />∷ <a rel="nofollow" target="blank" href="https://open.spotify.com/user/ambition-music">https://open.spotify.com/user/ambition-music</a><br />∷ <a rel="nofollow" target="blank" href="https://www.instagram.com/ambitionyt">https://www.instagram.com/ambitionyt</a>{% endraw %}
