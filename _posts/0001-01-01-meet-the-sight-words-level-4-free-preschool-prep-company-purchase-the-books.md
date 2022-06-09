@@ -1,0 +1,15 @@
+---
+title: "Meet the Sight Words Level 4 (FREE) | Preschool Prep Company"
+image: "https:\/\/i.ytimg.com\/vi\/q2StkGjEMD8\/hqdefault.jpg"
+vid_id: "q2StkGjEMD8"
+categories: "Education"
+tags: ["disney sight words","dolch words","fast sight words"]
+date: "2022-06-10T00:45:33+03:00"
+vid_date: "2022-02-11T14:00:09Z"
+duration: "PT36M53S"
+viewcount: "515474"
+likeCount: "1281"
+dislikeCount: ""
+channel: "Preschool Prep Company"
+---
+{% raw %}Purchase the Books &amp; DVDs here: <a rel="nofollow" target="blank" href="http://www.preschoolprepco.com/h/s/msw.php">http://www.preschoolprepco.com/h/s/msw.php</a><br /><br />Many words don't follow basic decoding rules and are taught in pre-k and kindergarten classrooms as &quot;sight words&quot;, &quot;instant words&quot;, &quot;high frequency words&quot; or &quot;star words&quot;. A new reader finds sight words very frustrating until they are memorized. A good reader will be able to instantly recognize &quot;sight words&quot; without having to &quot;figure them out&quot;. Preschool Prep Company makes learning sight words fun and easy. Now children can master &quot;sight words&quot; with the same rapid speed that they learned letters, numbers, shapes and colors. Meet the Sight Words is used in schools across the country.<br /><br />Learning sight words has never been this easy!<br /><br />————————————————————————<br />Subscribe Now:  <a rel="nofollow" target="blank" href="https://www.youtube.com/PreschoolPrep?sub_confirmation=1">https://www.youtube.com/PreschoolPrep?sub_confirmation=1</a><br />————————————————————————<br />Watch the entire Meet the Sight Words 1 playlist: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLqAXA_I1l5r-orOZXb9pr2xQrerPhLiD0">https://www.youtube.com/playlist?list=PLqAXA_I1l5r-orOZXb9pr2xQrerPhLiD0</a><br />Watch the entire Meet the Sight Words 2 playlist: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLqAXA_I1l5r9Zgd5kMt210jfKF7b2K9_K">https://www.youtube.com/playlist?list=PLqAXA_I1l5r9Zgd5kMt210jfKF7b2K9_K</a><br />Watch the entire Meet the Sight Words 3 playlist: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLqAXA_I1l5r9oRm0Mu2nMfiB4HwiUj0Nx">https://www.youtube.com/playlist?list=PLqAXA_I1l5r9oRm0Mu2nMfiB4HwiUj0Nx</a><br />————————————————————————<br />More Educational Products: <a rel="nofollow" target="blank" href="http://www.preschoolprepco.com/index.php">http://www.preschoolprepco.com/index.php</a><br />Merchandise Available Here: <a rel="nofollow" target="blank" href="https://www.cafepress.com/preschoolprepcompany">https://www.cafepress.com/preschoolprepcompany</a><br />————————————————————————<br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/PreschoolPrepCompany">https://www.facebook.com/PreschoolPrepCompany</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/preschoolprepcompany/">https://www.instagram.com/preschoolprepcompany/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/PreschoolPrepCo">https://twitter.com/PreschoolPrepCo</a>{% endraw %}
