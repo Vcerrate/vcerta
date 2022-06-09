@@ -1,0 +1,15 @@
+---
+title: "Why wives should submit to their husbands"
+image: "https:\/\/i.ytimg.com\/vi\/jlZCwJ_YHD8\/hqdefault.jpg"
+vid_id: "jlZCwJ_YHD8"
+categories: "People-Blogs"
+tags: ["wivessubmittoyourhusbands","shouldwivessubmit","whydowiveshavetosubmit"]
+date: "2022-06-09T16:33:08+03:00"
+vid_date: "2021-09-05T15:00:12Z"
+duration: "PT15M31S"
+viewcount: "21072"
+likeCount: "1358"
+dislikeCount: ""
+channel: "NowBloom w\/ Sarah & Adam"
+---
+{% raw %}Why wives should submit to their husbands - In this video I'm talking about wives submitting to their husbands, what that looks like biblically, practical ways to respect and honour our husbands and why I believe our culture has made it so difficult to do so! This is something that the Lord has put on my heart and I've been personally convicted of, I'm definitely not perfect at doing this but I'm trying to be more mindful to submit and respect my husband the way God intended it! <br /><br />Disclaimer: I just wanted to clarify that I don't necessarily believe that the Feminist Movement in and of itself is evil, there was unfair inequality that needed to be addressed and in certain parts of the world still does. But I believe what started as a genuine cry has turned into a device of the enemy to cause hatred and division between men and women. <br /><br />Love and Respect book: <a rel="nofollow" target="blank" href="https://amzn.to/3tfAGJC">https://amzn.to/3tfAGJC</a> <br /><br />If you liked this video please like and share it and subscribe to my channel! <br /><br />JOIN ME ON SOCIAL MEDIA: <a rel="nofollow" target="blank" href="https://www.instagram.com/sarahnowbloom/?hl=en">https://www.instagram.com/sarahnowbloom/?hl=en</a> <br /><br />BOOK COACHING WITH ME: <a rel="nofollow" target="blank" href="https://www.nowbloom.life/contact">https://www.nowbloom.life/contact</a> <br /><br />BECOME A PATREON: <a rel="nofollow" target="blank" href="https://www.patreon.com/sarahnowbloom">https://www.patreon.com/sarahnowbloom</a> <br /><br />SHOP COVERED BY GRACE CLOTHING LINE: <a rel="nofollow" target="blank" href="https://coveredbygraceco.com">https://coveredbygraceco.com</a> <br /><br />LISTEN TO THE COVERED BY GRACE PODCAST: <a rel="nofollow" target="blank" href="https://podcasts.apple.com/ca/podcast/covered-by-grace/id1534756806">https://podcasts.apple.com/ca/podcast/covered-by-grace/id1534756806</a> <br /><br />FILMING EQUIPMENT (affiliate links): <br /><br />Camera: <a rel="nofollow" target="blank" href="https://amzn.to/3xnY3RX">https://amzn.to/3xnY3RX</a> <br />Tripod: <a rel="nofollow" target="blank" href="https://amzn.to/3gtkvU9">https://amzn.to/3gtkvU9</a> <br />Mic: <a rel="nofollow" target="blank" href="https://amzn.to/3zxxQ5g">https://amzn.to/3zxxQ5g</a> <br />Lights: <a rel="nofollow" target="blank" href="https://amzn.to/3xqY9bw">https://amzn.to/3xqY9bw</a> <br />Lens: <a rel="nofollow" target="blank" href="https://amzn.to/3wwKksb">https://amzn.to/3wwKksb</a> #wivessubmittoyourhusbands <br /><br />#shouldwivessubmittotheirhusbands #whydoIhavetosubmittomyhusband<br />#biblicalviewofsubmission{% endraw %}
