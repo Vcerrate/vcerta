@@ -1,0 +1,15 @@
+---
+title: "Mental Health in the LGBTI+ Community Webinar"
+image: "https:\/\/i.ytimg.com\/vi\/ylmqwJWdb_o\/hqdefault.jpg"
+vid_id: "ylmqwJWdb_o"
+categories: "Nonprofits-Activism"
+tags: ["Mental","Health","LGBTI+"]
+date: "2022-06-11T02:02:31+03:00"
+vid_date: "2022-06-08T13:10:02Z"
+duration: "PT1H1M8S"
+viewcount: "136"
+likeCount: "5"
+dislikeCount: ""
+channel: "Aware"
+---
+{% raw %}This webinar Mental Health in the LGBTI+ Community looks at the complexity and unique challenges the LGBTQI+ Community faces every day. The panel acknowledges three important psychological feelings, Shame, Anxiety and Depression. Finding out you're not alone, being part of a community can help carry difficult conversations such as coming out to your parents.  Shame, Anxiety and Depression do not have to be a life sentence.  There are all sorts of treatments and options available, please refer to the resources below if you wish to find out more.<br /><br />Today’s Panel:<br />Moninne Griffith, CEO of BeLonG To Youth Services<br />Dr Paul D’Alton, Clinical Psychologist and Assoc. Professor of Psychology, UCD<br />Stephen McBride, Director of Services at Aware and Chartered Counselling Psychologist &amp; Group Psychotherapist<br />________________________________________________________________________________________________<br /><br />June Webinar Resources:<br /><br />Websites<br /><a rel="nofollow" target="blank" href="https://www.belongto.org/">https://www.belongto.org/</a><br /><a rel="nofollow" target="blank" href="https://lgbt.ie/get-information/mental-health/">https://lgbt.ie/get-information/mental-health/</a><br /><a rel="nofollow" target="blank" href="https://www.childrensrights.ie/">https://www.childrensrights.ie/</a><br /><a rel="nofollow" target="blank" href="https://gcn.ie/">https://gcn.ie/</a><br /><a rel="nofollow" target="blank" href="https://www.teni.ie/">https://www.teni.ie/</a><br /><a rel="nofollow" target="blank" href="https://www.iccl.ie/">https://www.iccl.ie/</a><br /><a rel="nofollow" target="blank" href="https://www.aware.ie/">https://www.aware.ie/</a><br /><br />Literature: <br />Better Out Than In Booklet, from BeLonG To (great for parents/allies)<br />Mindfulness &amp; Acceptance for Gender Identity - <a rel="nofollow" target="blank" href="https://www.newharbinger.com/9781626254305/mindfulness-and-acceptance-for-gender-and-sexual-minorities/">https://www.newharbinger.com/9781626254305/mindfulness-and-acceptance-for-gender-and-sexual-minorities/</a><br />Document produced by HSE - <a rel="nofollow" target="blank" href="https://www.hse.ie/eng/services/list/4/mental-health-services/nosp/resources/mental-health-and-lgbti.pdf">https://www.hse.ie/eng/services/list/4/mental-health-services/nosp/resources/mental-health-and-lgbti.pdf</a><br /><br />#mentalhealth #lgbti #depression #anxiety #shamelovessilence #chatnow #love #difficultconversations #treatments #inventions #norightorwrongway #takeyourtime #increaseawareness #shouldertoshoulder{% endraw %}
