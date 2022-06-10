@@ -1,0 +1,15 @@
+---
+title: "Glaring - Restless"
+image: "https:\/\/i.ytimg.com\/vi\/qL4G5-k6wZU\/hqdefault.jpg"
+vid_id: "qL4G5-k6wZU"
+categories: "Music"
+tags: ["Glaring - Restless","Restless by Glaring","sound in the distance"]
+date: "2022-06-10T13:56:35+03:00"
+vid_date: "2021-10-11T14:54:50Z"
+duration: "PT4M2S"
+viewcount: "2741"
+likeCount: ""
+dislikeCount: ""
+channel: "Sound in the Distance"
+---
+{% raw %}New song from the upcoming album 'Nebula', to be released October 15th, 2021.<br />Restless by Glaring (releases October 15, 2021)<br />Follow and support the artist<br /><a rel="nofollow" target="blank" href="https://glaring.bandcamp.com/album/nebula">https://glaring.bandcamp.com/album/nebula</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/glaringband/">https://www.facebook.com/glaringband/</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/glaring.anna/">https://www.instagram.com/glaring.anna/</a><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/glaring_none">https://soundcloud.com/glaring_none</a><br /><a rel="nofollow" target="blank" href="https://noneannanin.bandcamp.com/music">https://noneannanin.bandcamp.com/music</a><br /><a rel="nofollow" target="blank" href="https://open.spotify.com/artist/576kYuY4OrauYNEzESyxDE?si=Qv0HJnztSsmJOS1m_47KcQ&amp;nd=1">https://open.spotify.com/artist/576kYuY4OrauYNEzESyxDE?si=Qv0HJnztSsmJOS1m_47KcQ&amp;nd=1</a><br />official channel<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCpkDqiGOSjRXSOAEkRhXOOw">https://www.youtube.com/channel/UCpkDqiGOSjRXSOAEkRhXOOw</a><br />Vinyl released by Peripheral Minimal Records <br /><a rel="nofollow" target="blank" href="https://peripheralminimal.bandcamp.com/album/nebula">https://peripheralminimal.bandcamp.com/album/nebula</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/peripheralminimalrecords">https://www.facebook.com/peripheralminimalrecords</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/peripheral_minimal_records/">https://www.instagram.com/peripheral_minimal_records/</a><br /><a rel="nofollow" target="blank" href="https://www.peripheralminimal.com/">https://www.peripheralminimal.com/</a><br />Tape released by Wave Tension Records <br /><a rel="nofollow" target="blank" href="https://wavetensionrecords.bandcamp.com/album/nebula">https://wavetensionrecords.bandcamp.com/album/nebula</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/wavetensionrecords/">https://www.facebook.com/wavetensionrecords/</a><br /><a rel="nofollow" target="blank" href="https://wavetensionrecords.bigcartel.com/products">https://wavetensionrecords.bigcartel.com/products</a><br />I do not get any financial benefit from these videos.All copyright resides with the artists and labels involved.I only use the material to help support the group and promote their music.If the legitimate copyright owner wants to withdraw the video,then please notify me and it will be removed immediately.Music is life. Enjoy it.Thank you.{% endraw %}
