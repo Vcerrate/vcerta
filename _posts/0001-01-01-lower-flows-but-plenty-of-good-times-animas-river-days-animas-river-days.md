@@ -1,0 +1,15 @@
+---
+title: "\"Lower flows but plenty of good times!\" | ANIMAS RIVER DAYS"
+image: "https:\/\/i.ytimg.com\/vi\/Y1J0lRBmnwU\/hqdefault.jpg"
+vid_id: "Y1J0lRBmnwU"
+categories: "Sports"
+tags: ["Dane Jackson YouTube","YouTube Dane Jackson","dane jackson"]
+date: "2022-06-11T02:24:28+03:00"
+vid_date: "2022-06-10T15:00:32Z"
+duration: "PT12M17S"
+viewcount: "1716"
+likeCount: "130"
+dislikeCount: ""
+channel: "Dane Jackson"
+---
+{% raw %}ANIMAS RIVER DAYS <br /><br />Subscribe: <a rel="nofollow" target="blank" href="https://bit.ly/subDane">https://bit.ly/subDane</a> | IG: <a rel="nofollow" target="blank" href="https://instagram.com/danejacksonkayak/">https://instagram.com/danejacksonkayak/</a> <br />Watch my NEWEST videos: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLZDsJL4wnZi3pZMO59RGaayLtC1WF7dnY&amp;playnext=1&amp;index=2">https://youtube.com/playlist?list=PLZDsJL4wnZi3pZMO59RGaayLtC1WF7dnY&amp;playnext=1&amp;index=2</a> <br /><br />Starting at the end of May, Colorado has an event every weekend through June, making it a super fun month to tour around. No matter what type of kayaking you like to do there are so many different events and races. This previous weekend was the Animas River Days in Durango, a fun event to check out. Whether the river is low or high it's always a good time!<br /> <br />Follow Dane Jackson:<br />Facebook: <a rel="nofollow" target="blank" href="https://facebook.com/dane.jackson.kayak">https://facebook.com/dane.jackson.kayak</a> <br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/danejacksonkayak/">https://instagram.com/danejacksonkayak/</a> <br />Snapchat: <a rel="nofollow" target="blank" href="https://snapchat.com/add/kayakdane">https://snapchat.com/add/kayakdane</a><br /> <br />Official Website: <a rel="nofollow" target="blank" href="https://jacksonadventures.com/">https://jacksonadventures.com/</a> <br /> <br />Watch More Dane Jackson:<br />GoPro Throwbacks: <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLZDsJL4wnZi2Xrj1ZwMolivmidm6gTXGB&amp;playnext=1&amp;index=1">https://youtube.com/playlist?list=PLZDsJL4wnZi2Xrj1ZwMolivmidm6gTXGB&amp;playnext=1&amp;index=1</a> <br />Top Videos: <a rel="nofollow" target="blank" href="https://.youtube.com/playlist?list=PLZDsJL4wnZi0R9Q2B_RCQomfqigbikGUf&amp;playnext=1&amp;index=1">https://.youtube.com/playlist?list=PLZDsJL4wnZi0R9Q2B_RCQomfqigbikGUf&amp;playnext=1&amp;index=1</a> <br />Highlight Reels: <a rel="nofollow" target="blank" href="https://.youtube.com/playlist?list=PLZDsJL4wnZi0FhmIhfgku7U-hIDbJQSGf&amp;playnext=1&amp;index=2">https://.youtube.com/playlist?list=PLZDsJL4wnZi0FhmIhfgku7U-hIDbJQSGf&amp;playnext=1&amp;index=2</a> <br />Newest Videos:  <a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLZDsJL4wnZi3pZMO59RGaayLtC1WF7dnY&amp;playnext=1&amp;index=2">https://youtube.com/playlist?list=PLZDsJL4wnZi3pZMO59RGaayLtC1WF7dnY&amp;playnext=1&amp;index=2</a> <br /><br />#Kayak #Kayaking #ExtremeKayaking{% endraw %}
