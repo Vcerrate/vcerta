@@ -1,0 +1,15 @@
+---
+title: "Are We On The Verge of Collapse? This May SHOCK You"
+image: "https:\/\/i.ytimg.com\/vi\/SgXdYhT_HAU\/hqdefault.jpg"
+vid_id: "SgXdYhT_HAU"
+categories: "People-Blogs"
+tags: ["Kirk Cameron The Homeschool Awakening","Ruslan KD Christian Youtuber","Ruslan KD"]
+date: "2022-06-10T22:12:11+03:00"
+vid_date: "2022-06-04T01:13:06Z"
+duration: "PT24M33S"
+viewcount: "36331"
+likeCount: "2377"
+dislikeCount: ""
+channel: "Ruslan KD"
+---
+{% raw %}🤝: Partner with us on Patreon <a rel="nofollow" target="blank" href="https://www.patreon.com/kingsdream">https://www.patreon.com/kingsdream</a><br />🔓: FREE Freedom Habits (Course w/My Therapist): <a rel="nofollow" target="blank" href="https://www.mastermyhabits.com">https://www.mastermyhabits.com</a><br />📚: FREE How to Study the Bible Course: <a rel="nofollow" target="blank" href="https://www.mastermydevo.com">https://www.mastermydevo.com</a><br />🤝: Partner with us on Patreon <a rel="nofollow" target="blank" href="https://www.patreon.com/kingsdream">https://www.patreon.com/kingsdream</a><br />▶️: Apparel I'm wearing: <a rel="nofollow" target="blank" href="http://www.Ruslankd.com">http://www.Ruslankd.com</a><br />►:  FREE Find Your Niche Youtube Training: <a rel="nofollow" target="blank" href="http://www.mastermyniche.com/">http://www.mastermyniche.com/</a><br />🥇: *Make a One Time Donation* Via Paypal: <a rel="nofollow" target="blank" href="https://bit.ly/3m1ivWg">https://bit.ly/3m1ivWg</a><br />🥳: Cashapp: <a rel="nofollow" target="blank" href="https://cash.app/$ruslankd">https://cash.app/$ruslankd</a> <br />🏅: Venmo <a rel="nofollow" target="blank" href="https://bit.ly/3nuoMJB">https://bit.ly/3nuoMJB</a> @ Ruslankd  <br />🎥: How I Live Stream (Course) <a rel="nofollow" target="blank" href="https://www.masteryoutubelive.com/">https://www.masteryoutubelive.com/</a><br />🙏: My Testimony: <a rel="nofollow" target="blank" href="https://bit.ly/2Qmq6Bw">https://bit.ly/2Qmq6Bw</a><br />💦: Intro/Outro Song: <a rel="nofollow" target="blank" href="https://go.ruslankd.com/new">https://go.ruslankd.com/new</a><br />💰: Get debt free with Dave: <a rel="nofollow" target="blank" href="https://youtu.be/H2Zd0-0XLBU">https://youtu.be/H2Zd0-0XLBU</a><br />📲: <a rel="nofollow" target="blank" href="https://www.superphone.io/?aff=ruslankd">https://www.superphone.io/?aff=ruslankd</a><br />💸: Invest with robinhood: <a rel="nofollow" target="blank" href="http://join.robinhood.com/ruslank30">http://join.robinhood.com/ruslank30</a><br />► Subscribe: <a rel="nofollow" target="blank" href="http://goo.gl/A3eVy8">http://goo.gl/A3eVy8</a><br />► Text Ruslan (Don't Send Links Please) 714-710-1017<br />Tip the Stream Here: <a rel="nofollow" target="blank" href="https://bit.ly/3ILNPBH">https://bit.ly/3ILNPBH</a><br /><br />Kirk Cameron VS. Christian Homeschool Dad<br /><br />My Equipment: <a rel="nofollow" target="blank" href="https://kit.co/RuslanKD/livestream-studio-equipment">https://kit.co/RuslanKD/livestream-studio-equipment</a><br />Are We On The Verge of Collapse? This May SHOCK You<br />#lastdays #endtimes #collapse{% endraw %}
