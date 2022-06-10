@@ -1,0 +1,15 @@
+---
+title: "Increase or Decrease by a Percentage (Using a Multiplier!) | Grade 5 Crossover | GCSE Maths Tutor"
+image: "https:\/\/i.ytimg.com\/vi\/kLqvFDgdOKI\/hqdefault.jpg"
+vid_id: "kLqvFDgdOKI"
+categories: "Education"
+tags: ["percentages","percentage increase","percentage decrease"]
+date: "2022-06-10T20:15:34+03:00"
+vid_date: "2021-10-25T15:30:11Z"
+duration: "PT15M21S"
+viewcount: "13834"
+likeCount: "287"
+dislikeCount: ""
+channel: "The GCSE Maths Tutor"
+---
+{% raw %}Join this channel to get access to perks:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCStPzCGyt5tlwdpDXffobxA/join">https://www.youtube.com/channel/UCStPzCGyt5tlwdpDXffobxA/join</a><br /><br />A video revising the techniques and strategies for calculating percentage increases and decreases using a multiplier (Higher and Foundation).<br /><br />This video is part of the Fractions, Decimals and Percentages module in GCSE maths, see my other videos below to continue with the series.<br /><br />These are the calculators that I recommend:<br /><br />Casio fx-83GTX Scientific Calculator, Black - <a rel="nofollow" target="blank" href="https://amzn.to/2P2cyGG">https://amzn.to/2P2cyGG</a><br />Casio Fx-991ex Scientific Calculator Fx 991 Ex - New + 552 Function - Classwiz - <a rel="nofollow" target="blank" href="https://amzn.to/2sw2Moz">https://amzn.to/2sw2Moz</a><br /><br />🔹 Watch the video<br />🔹 Make notes<br />🔹 Practice the questions<br />🔹 Mark your work<br />🔹 Review what you have learnt on the exam questions<br /><br />Part 1 - Fractions of an Amount - <a rel="nofollow" target="blank" href="https://youtu.be/vi_m5qe8zMA">https://youtu.be/vi_m5qe8zMA</a><br /><br />Part 2 - Converting between FDP - <br /><br />Part 3 - Percentages of an Amount - <a rel="nofollow" target="blank" href="https://youtu.be/6Ra9Sc3fS1M">https://youtu.be/6Ra9Sc3fS1M</a><br /><br />Part 4 - Increase/Decrease by a Percentage - <a rel="nofollow" target="blank" href="https://youtu.be/kLqvFDgdOKI">https://youtu.be/kLqvFDgdOKI</a><br /><br />Part 5 - Calculating Percentage Changes - <a rel="nofollow" target="blank" href="https://youtu.be/aH7d2QfnAmM">https://youtu.be/aH7d2QfnAmM</a><br /><br />Part 6 - Fraction Calculations with Mixed Numbers - <a rel="nofollow" target="blank" href="https://youtu.be/xhh3vyVhuaU">https://youtu.be/xhh3vyVhuaU</a><br /><br />Part 7 - Problem Solving with Fractions, Percentages and Ratios - <a rel="nofollow" target="blank" href="https://youtu.be/YFcc2jx0_A8">https://youtu.be/YFcc2jx0_A8</a><br /><br />Please like ✅ please comment ✅ please subscribe ✅<br /><br />Enjoy the video! <br /><br />Follow me here:<br />Instagram: <a rel="nofollow" target="blank" href="https://instagram.com/gcse_maths_tutor?igshid=5w4wll4u3zqv">https://instagram.com/gcse_maths_tutor?igshid=5w4wll4u3zqv</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/gcsemathstutor">https://twitter.com/gcsemathstutor</a><br /><br />Music: Over N Over<br />Musician: Not The King.👑{% endraw %}
