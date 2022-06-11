@@ -1,0 +1,15 @@
+---
+title: "Collect the Coin in the SOUNDWAVE SERIES GEN HOSHINO Concert Featured in Epics Picks - Fortnite"
+image: "https:\/\/i.ytimg.com\/vi\/0Tpan0Lh7kg\/hqdefault.jpg"
+vid_id: "0Tpan0Lh7kg"
+categories: "Gaming"
+tags: ["fortnite","fortnite update","chapter 3 season 3"]
+date: "2022-06-11T03:02:21+03:00"
+vid_date: "2022-06-09T12:39:27Z"
+duration: "PT1M"
+viewcount: "100274"
+likeCount: "1265"
+dislikeCount: ""
+channel: "EveryDay FN"
+---
+{% raw %}How to Get Soundwave Series - Gen Hoshino Spray! in Fortnite Chapter 3 Season 3 - Free Rewards - Collect the Coin in the SOUNDWAVE SERIES GEN HOSHINO Concert Featured in Epics Picks<br /><br />To jump into the show, players can enter the SOUNDWAVE SERIES: GEN HOSHINO Discover tile (or input the Island code 6831-7094-7130) starting June 9, 2022, at 8 AM ET.<br /><br />The show will repeat non-stop for 72 hours (until Sunday, June 12, at 8 AM ET), so don’t worry if you can’t jump in right away. After you complete the experience, you’ll get some XP and a memento: the Soundwave Series - Gen Hoshino Spray!<br /><br />⚡INTERESTING VIDEOS<br />Playlist Chapter 3 Season 3 ➟ <a rel="nofollow" target="blank" href="https://bit.ly/Chapter3Season3">https://bit.ly/Chapter3Season3</a><br />Storyline of Chapter 3 Season 3 ➟ <a rel="nofollow" target="blank" href="https://bit.ly/StorylineC3S3">https://bit.ly/StorylineC3S3</a><br />Evolution of Fortnite ➟ <a rel="nofollow" target="blank" href="https://bit.ly/FortniteEvolutionPlaylist">https://bit.ly/FortniteEvolutionPlaylist</a><br /><br />👇GUIDES (C3S3)<br />All Mythic Weapons ➟ <a rel="nofollow" target="blank" href="https://youtu.be/XzPXP8sw_WQ">https://youtu.be/XzPXP8sw_WQ</a><br />All Exotic Weapons ➟ <a rel="nofollow" target="blank" href="https://youtu.be/YkrUNz2PeYo">https://youtu.be/YkrUNz2PeYo</a><br />All 25 Characters ➟ <a rel="nofollow" target="blank" href="https://youtu.be/WybPYepS2XU">https://youtu.be/WybPYepS2XU</a><br /><br />🍀SUPPORT THE CHANNEL<br />Wanna support me? Use my support-a-creator code for Fortnite! I would greatly appreciate it! (If you use my code, I will earn a portion of your spendings in Fortnite or Epic Games Launcher)<br />My Support-A-Creator-Code: EVERYDAY<br />Join this channel to get access to perks: <a rel="nofollow" target="blank" href="https://bit.ly/JoinEveryDayFN">https://bit.ly/JoinEveryDayFN</a><br /><br />If you enjoyed don't forget to like, subscribe and share! <br />Don't click this: <a rel="nofollow" target="blank" href="https://bit.ly/EverydayFortnite">https://bit.ly/EverydayFortnite</a><br /><br />👀 SOCIAL MEDIA<br />TikTok ➟ <a rel="nofollow" target="blank" href="https://www.tiktok.com/@everydayfn">https://www.tiktok.com/@everydayfn</a><br />Discord Server ➟ <a rel="nofollow" target="blank" href="https://discord.io/EveryDayFN">https://discord.io/EveryDayFN</a><br />Twitter ➟ <a rel="nofollow" target="blank" href="https://twitter.com/EveryDay_FN">https://twitter.com/EveryDay_FN</a><br /><br />#Fortnite #Season3 #GenHoshino{% endraw %}
