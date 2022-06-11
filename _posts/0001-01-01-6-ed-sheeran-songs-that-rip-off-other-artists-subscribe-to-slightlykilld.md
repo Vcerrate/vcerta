@@ -1,0 +1,15 @@
+---
+title: "6 Ed Sheeran Songs That 'Rip Off' Other Artists"
+image: "https:\/\/i.ytimg.com\/vi\/_V4ktmwIFAw\/hqdefault.jpg"
+vid_id: "_V4ktmwIFAw"
+categories: "Education"
+tags: ["ed sheeran","comparison","stolen"]
+date: "2022-06-11T19:45:57+03:00"
+vid_date: "2020-07-05T15:51:04Z"
+duration: "PT11M23S"
+viewcount: "595707"
+likeCount: "10277"
+dislikeCount: ""
+channel: "David Bennett Piano"
+---
+{% raw %}Subscribe to Slightlykilld on YouTube: <a rel="nofollow" target="blank" href="https://youtu.be/kr-DyN4mAJU">https://youtu.be/kr-DyN4mAJU</a><br />Slightlykilld on Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/artist/1k7FQyn86WAdPW42liso5u">https://open.spotify.com/artist/1k7FQyn86WAdPW42liso5u</a><br /><br />When you think of pop song lawsuits, Ed Sheeran is one of the first songwriters to come to mind. He has been tangled up in various legal disputes over the apparent plagiarism in many of his songs. <br /><br />Sheeran singing &quot;Let's Get It On&quot;: <a rel="nofollow" target="blank" href="https://youtu.be/RxZjVZKVN7k">https://youtu.be/RxZjVZKVN7k</a><br />Shape of You interview (2017): <a rel="nofollow" target="blank" href="https://youtu.be/ZpMNJbt3QDE">https://youtu.be/ZpMNJbt3QDE</a><br />Photograph lawsuit: <a rel="nofollow" target="blank" href="http://www.bbc.co.uk/newsbeat/article/36486648/ed-sheeran-is-being-sued-for-20m-by-two-songwriters-over-his-track-photograph">http://www.bbc.co.uk/newsbeat/article/36486648/ed-sheeran-is-being-sued-for-20m-by-two-songwriters-over-his-track-photograph</a> <br />Sami Switch lawsuit: <a rel="nofollow" target="blank" href="https://www.smoothradio.com/artists/ed-sheeran/copyright-court-case-shape-of-you-royalties/">https://www.smoothradio.com/artists/ed-sheeran/copyright-court-case-shape-of-you-royalties/</a><br />Marvin Gaye lawsuit: <a rel="nofollow" target="blank" href="https://www.bbc.co.uk/news/newsbeat-44653107">https://www.bbc.co.uk/news/newsbeat-44653107</a><br />Jasmine Rae lawsuit: <a rel="nofollow" target="blank" href="https://www.digitalmusicnews.com/2018/11/12/latest-ed-sheeran-the-rest-of-our-life-lawsuit-settled/">https://www.digitalmusicnews.com/2018/11/12/latest-ed-sheeran-the-rest-of-our-life-lawsuit-settled/</a><br /><br />An extra special thanks goes to Vidad Flowers, Austin Russell, Christopher Ryan, Bruce Mount, Toot &amp; Paul Peijzel, the channel’s Patreon saints! 😇<br /><br />Outro music: &quot;Running Man&quot; by David Bennett (<a rel="nofollow" target="blank" href="https://youtu.be/mE0uSHy4gYo)">https://youtu.be/mE0uSHy4gYo)</a><br /><br />SUPPORT ME ON PATREON: <a rel="nofollow" target="blank" href="https://www.patreon.com/davidbennettpiano">https://www.patreon.com/davidbennettpiano</a><br /><br />0:00 Introduction<br />0:35 Photograph VS Amazing<br />1:40 Thinking Out Loud VS Let's Get It On<br />4:20 Shape Of You VS No Scrubs<br />5:03 Shape Of You VS Sami Switch<br />5:45 Strip That Down VS It Wasn't Me<br />6:33 The Rest Of Our Life VS When I Found You<br />8:17 Don't VS Don't Mess With My Man{% endraw %}
