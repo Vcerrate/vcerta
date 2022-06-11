@@ -1,0 +1,15 @@
+---
+title: "Complete Process of Textile Manufacturing Fiber to Complete Garments"
+image: "https:\/\/i.ytimg.com\/vi\/5nUjGNDImIk\/hqdefault.jpg"
+vid_id: "5nUjGNDImIk"
+categories: "People-Blogs"
+tags: ["textile study","textile vlog","textile education"]
+date: "2022-06-11T10:25:29+03:00"
+vid_date: "2021-10-07T12:55:26Z"
+duration: "PT10M54S"
+viewcount: "33071"
+likeCount: "848"
+dislikeCount: ""
+channel: "Textile Vlog"
+---
+{% raw %}A 2 Z textile manufacturing process.<br />Textiles have been a part of human civilization for centuries, but most people don't know how it all comes together. This time you learned about the production process that goes into making your clothes so you can make smarter choices on what to buy next. So, join with me as I take you through the entire journey of textiles Manufacturing, from raw materials like cotton or wool to finished products such as T-shirts or dresses.<br />This content include bellow tropics:<br /><br />0:00 Intro<br />0:40 flow chart of textile<br />1:18 Source Fiber<br />1:58  Yarn Manufacturing Process<br />3:44 Fabric Manufacturing Process<br />6:03 Wet processing<br />6:33 Singing, De sizing, Bleaching<br />7:16 Dyeing process<br />7:46 Printing<br />8:22 Apparel Manufacturing Process<br />10:08 Cartooning and shipment<br /><br />Process Flow Chart of Textile Manufacturing: <a rel="nofollow" target="blank" href="https://textilelearner.net/textile-manufacturing-process/?fbclid=IwAR1R4I1a8-qYjgeW0AfIDs5eVwzEBY-t72FVsC8b6waClxI_vZW9HYmD_4g">https://textilelearner.net/textile-manufacturing-process/?fbclid=IwAR1R4I1a8-qYjgeW0AfIDs5eVwzEBY-t72FVsC8b6waClxI_vZW9HYmD_4g</a><br /><br />Subscribe To My Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCYAjdXX7izQw50aBELJwkWA?sub_confirmation=1">https://www.youtube.com/channel/UCYAjdXX7izQw50aBELJwkWA?sub_confirmation=1</a><br /><br /><br />ˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍ<br /><br />Follow Textile Vlog Socially <br /><br />Join Facebook Page <a rel="nofollow" target="blank" href="https://www.facebook.com/textilevlog">https://www.facebook.com/textilevlog</a><br /><br />Follow Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/textilevlog1/">https://www.instagram.com/textilevlog1/</a><br /><br />Follow Twitter:  <a rel="nofollow" target="blank" href="https://twitter.com/TextileVlog">https://twitter.com/TextileVlog</a> <br /><br />ˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍˍ<br /><br /><br />Disclaimer: ========= <br />This channel may use some copyrighted materials without specific authorization of the owner but contents used here falls under the “Fair Use” Copyright Disclaimer under Section 107 of the Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, comment, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational or personal use tips the balance in favor of fair use.<br />Related Tag<br /><br />#textile  #manufacturing #garments{% endraw %}
