@@ -1,0 +1,15 @@
+---
+title: "Lych Normal Tutorial  ||  No Monkey Knowledge + No Hero Achievement  ||  Cubism (BTD6)"
+image: "https:\/\/i.ytimg.com\/vi\/MS5HtX2jHCg\/hqdefault.jpg"
+vid_id: "MS5HtX2jHCg"
+categories: "Gaming"
+tags: ["Lych","Elite","Lych Normal"]
+date: "2022-06-12T02:47:50+03:00"
+vid_date: "2022-06-11T08:56:52Z"
+duration: "PT28M14S"
+viewcount: "9912"
+likeCount: "314"
+dislikeCount: ""
+channel: "BTD6 FenixKillah"
+---
+{% raw %}Lych Normal Tutorial. This is a tutorial / guide on how to beat every Boss Bloon. I didn't use any Monkey Knowledge in this tutorial. So everyone can follow this video safely and easily. From now on Boss events will switch between Bloonarius, Lych and Vortex. We get the  David vs Goliath achievement. Win a Boss battle without a Hero.<br /><br /><br />⇩ Feel free to join our Discord Server ⇩<br /><a rel="nofollow" target="blank" href="https://discord.gg/tkqZuYxdDN">https://discord.gg/tkqZuYxdDN</a><br /><br />Vortex Normal<br /><a rel="nofollow" target="blank" href="https://youtu.be/WeW-CFkeRoY">https://youtu.be/WeW-CFkeRoY</a><br />Vortex Elite<br /><a rel="nofollow" target="blank" href="https://youtu.be/daSw9X7dWPU">https://youtu.be/daSw9X7dWPU</a><br />Bloonarius Normal<br /><a rel="nofollow" target="blank" href="https://youtu.be/1--eQLQA1Es">https://youtu.be/1--eQLQA1Es</a><br />Bloonarius Elite <br /><a rel="nofollow" target="blank" href="https://youtu.be/k7poYH19S9E">https://youtu.be/k7poYH19S9E</a><br />Lych Elite<br /><a rel="nofollow" target="blank" href="https://youtu.be/qDTLspJn1l8">https://youtu.be/qDTLspJn1l8</a><br />Lych Normal - No Monkey Knowledge tutorial:<br /><a rel="nofollow" target="blank" href="https://youtu.be/Dl8uprbVuRU">https://youtu.be/Dl8uprbVuRU</a><br />BTD6 Race Tutorial / Guide :<br /><a rel="nofollow" target="blank" href="https://youtu.be/PsnlRQyalEM">https://youtu.be/PsnlRQyalEM</a><br />BTD6 Odyssey - Hard Mode Tutorial<br /><a rel="nofollow" target="blank" href="https://youtu.be/lg5E8xyeMuc">https://youtu.be/lg5E8xyeMuc</a><br />BTD6 Memes that will haunt your Dreams!<br /><a rel="nofollow" target="blank" href="https://youtu.be/6dlRARxeUsQ">https://youtu.be/6dlRARxeUsQ</a><br />How To Properly Buff the Vengeful True Sun God:<br /><a rel="nofollow" target="blank" href="https://youtu.be/Jn4X4oG_h7U">https://youtu.be/Jn4X4oG_h7U</a><br />How to build the Dark Vengeful True Sun God: <br /><a rel="nofollow" target="blank" href="https://youtu.be/gbEsWEOQ92w">https://youtu.be/gbEsWEOQ92w</a><br />The Easiest Way To Farm Monkey Knowledge<br /><a rel="nofollow" target="blank" href="https://youtu.be/IF2QeFnMfDs">https://youtu.be/IF2QeFnMfDs</a><br />Collection Event Farming<br /><a rel="nofollow" target="blank" href="https://youtu.be/BY6bDtuc_zg">https://youtu.be/BY6bDtuc_zg</a><br /><br /><br /><br />0:00 Farming Early Game<br />9:21 Lych Stage 1<br />15:06 Lych Stage 2<br />19:27 Lych Stage 3<br />23:23 Lych Stage 4 <br />36:28 Lych Stage 5 (Final Boss)<br /><br />#btd6<br />#bloonstd6<br />#Lych<br />#btd6Lych{% endraw %}
