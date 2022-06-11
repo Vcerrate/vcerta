@@ -1,0 +1,15 @@
+---
+title: "Did Confucius Actually Say the Things He Said?"
+image: "https:\/\/i.ytimg.com\/vi\/0BljBF6nGQc\/hqdefault.jpg"
+vid_id: "0BljBF6nGQc"
+categories: "Education"
+tags: ["today i found out","tifovidz12","tifo"]
+date: "2022-06-11T06:33:34+03:00"
+vid_date: "2022-06-10T16:00:00Z"
+duration: "PT14M43S"
+viewcount: "21233"
+likeCount: "1769"
+dislikeCount: ""
+channel: "Today I Found Out"
+---
+{% raw %}Check out Squarespace: <a rel="nofollow" target="blank" href="http://squarespace.com/BRAINFOOD">http://squarespace.com/BRAINFOOD</a> for 10% off on your first purchase.<br /><br />This video is #sponsored by Squarespace.<br /><br />Love content? Check out Simon's other YouTube Channels:<br /><br />Biographics: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UClnDI2sdehVm1zm_LmUHsjQ">https://www.youtube.com/channel/UClnDI2sdehVm1zm_LmUHsjQ</a><br />Geographics: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCHKRfxkMTqiiv4pF99qGKIw">https://www.youtube.com/channel/UCHKRfxkMTqiiv4pF99qGKIw</a><br />Warographics: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC9h8BDcXwkhZtnqoQJ7PggA">https://www.youtube.com/channel/UC9h8BDcXwkhZtnqoQJ7PggA</a><br />MegaProjects: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC0woBco6Dgcxt0h8SwyyOmw">https://www.youtube.com/channel/UC0woBco6Dgcxt0h8SwyyOmw</a><br />SideProjects: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC3Wn3dABlgESm8Bzn8Vamgg">https://www.youtube.com/channel/UC3Wn3dABlgESm8Bzn8Vamgg</a><br />Into The Shadows: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/IntotheShadows">https://www.youtube.com/c/IntotheShadows</a><br />TopTenz: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/toptenznet">https://www.youtube.com/user/toptenznet</a><br />Highlight History: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCnb-VTwBHEV3gtiB9di9DZQ">https://www.youtube.com/channel/UCnb-VTwBHEV3gtiB9di9DZQ</a><br />Business Blaze: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCYY5GWf7MHFJ6DZeHreoXgw">https://www.youtube.com/channel/UCYY5GWf7MHFJ6DZeHreoXgw</a><br />Casual Criminalist: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/TheCasualCriminalist">https://www.youtube.com/c/TheCasualCriminalist</a><br />Decoding the Unknown: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCZdWrz8pF6B5Y_c6Zi6pmdQ">https://www.youtube.com/channel/UCZdWrz8pF6B5Y_c6Zi6pmdQ</a><br /><br />→Some of our favorites: <a rel="nofollow" target="blank" href="https://www.youtube.com/playlist?list=PLR0XuDegDqP10d4vrztQ0fVzNnTiQBEAA">https://www.youtube.com/playlist?list=PLR0XuDegDqP10d4vrztQ0fVzNnTiQBEAA</a><br />→Subscribe for new videos every day! <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/TodayIFoundOut?sub_confirmation=1">https://www.youtube.com/user/TodayIFoundOut?sub_confirmation=1</a>{% endraw %}
