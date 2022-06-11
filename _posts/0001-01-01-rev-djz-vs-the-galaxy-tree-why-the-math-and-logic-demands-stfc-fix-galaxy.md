@@ -1,0 +1,15 @@
+---
+title: "Rev & Djz vs The Galaxy Tree | Why the Math, and Logic, Demands STFC fix Galaxy Research NOW"
+image: "https:\/\/i.ytimg.com\/vi\/xGos-fHwO4I\/hqdefault.jpg"
+vid_id: "xGos-fHwO4I"
+categories: "Gaming"
+tags: ["stfc","star trek","star trek fleet command"]
+date: "2022-06-11T16:30:45+03:00"
+vid_date: "2022-06-10T20:20:51Z"
+duration: "PT16M43S"
+viewcount: "6332"
+likeCount: "600"
+dislikeCount: ""
+channel: "Rev Deuce"
+---
+{% raw %}This week has had one unified theme from @everyone : The update (particularly the Galaxy Tree extension of research) is bad for the players, the game today, and for the long term viability of the game. Three content creators come together, myself, UltimatDJz, and Ripper (via his database) to explain why the math simply doesn't support these new researches and what DJ and I are choosing to do to personally combat it's current iteration. <br /><br />Topics covered:<br /><br />1. Rev &amp; DJz putting their foot down? Oh boy!<br />2. Examples of how the math just doesn't support this tree, at all<br />3. What content creators are personally doing to show their displeasure.<br />4. If you have any game mechanic questions, feel free to drop those questions in the comments!<br /><br />Join the Twitch Family!<br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/revdeuce">https://www.twitch.tv/revdeuce</a><br /><br />#StarTrekFleetCommand<br />#STFC<br />#getrektm8<br /><br />***********************************<br /><br />Sick merch is here! (That means it's cool!) <br /><br /><a rel="nofollow" target="blank" href="https://teespring.com/stores/rev-deuce-gaming">https://teespring.com/stores/rev-deuce-gaming</a><br /><br />Help keep us on the air! For less than a bucket of chicken and a drink you can support the show! Drop 5 dollars a month on Patreon? Special awards await!<br /><br /><a rel="nofollow" target="blank" href="https://www.patreon.com/whodatconfessional">https://www.patreon.com/whodatconfessional</a><br /><br />Or, drop a small donation through paypal/venmo?<br /><br /><a rel="nofollow" target="blank" href="https://www.paypal.me/DeuceWindham">https://www.paypal.me/DeuceWindham</a><br /><br /><a rel="nofollow" target="blank" href="https://www.venmo.com/Deuce-Windham">https://www.venmo.com/Deuce-Windham</a><br /><br />***********************************<br /><br />Come hang out on Twitch!<br /><a rel="nofollow" target="blank" href="https://www.twitch.tv/revdeuce">https://www.twitch.tv/revdeuce</a><br /><br />Join the Discord channel!<br /><a rel="nofollow" target="blank" href="https://discord.gg/4GJVPTe">https://discord.gg/4GJVPTe</a><br /><br />***********************************<br /><br />A very big thank you to my Patreon subscribers and everyone who donates to the show, for making this possible. Our Rewards program is up and going now! Make sure you check it out!<br /><br />Wanna buy Deuce something? Here's the Amazon wish list!:<br /><a rel="nofollow" target="blank" href="http://a.co/4qwWOt2">http://a.co/4qwWOt2</a>{% endraw %}
