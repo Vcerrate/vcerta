@@ -1,0 +1,15 @@
+---
+title: "10 Bizarre Drinks That People Actually Consume On Purpose"
+image: "https:\/\/i.ytimg.com\/vi\/CnNUNCWe84I\/hqdefault.jpg"
+vid_id: "CnNUNCWe84I"
+categories: "Entertainment"
+tags: ["top 10","toptenz","top10"]
+date: "2022-06-11T07:46:04+03:00"
+vid_date: "2022-06-10T17:00:04Z"
+duration: "PT9M10S"
+viewcount: "13653"
+likeCount: "1124"
+dislikeCount: ""
+channel: "TopTenz"
+---
+{% raw %}A human can only live for about three days without access to water, but you could go your whole life without knowing these drinks existed.<br /><br />Love content? Check out Simon's other YouTube Channels:<br /><br />Biographics: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UClnDI2sdehVm1zm_LmUHsjQ">https://www.youtube.com/channel/UClnDI2sdehVm1zm_LmUHsjQ</a><br />Geographics: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCHKRfxkMTqiiv4pF99qGKIw">https://www.youtube.com/channel/UCHKRfxkMTqiiv4pF99qGKIw</a><br />Warographics: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC9h8BDcXwkhZtnqoQJ7PggA">https://www.youtube.com/channel/UC9h8BDcXwkhZtnqoQJ7PggA</a><br />MegaProjects: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC0woBco6Dgcxt0h8SwyyOmw">https://www.youtube.com/channel/UC0woBco6Dgcxt0h8SwyyOmw</a><br />SideProjects: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC3Wn3dABlgESm8Bzn8Vamgg">https://www.youtube.com/channel/UC3Wn3dABlgESm8Bzn8Vamgg</a><br />Into The Shadows: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/IntotheShadows">https://www.youtube.com/c/IntotheShadows</a><br />Today I Found Out: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/TodayIFoundOut">https://www.youtube.com/user/TodayIFoundOut</a><br />Highlight History: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCnb-VTwBHEV3gtiB9di9DZQ">https://www.youtube.com/channel/UCnb-VTwBHEV3gtiB9di9DZQ</a><br />Business Blaze: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCYY5GWf7MHFJ6DZeHreoXgw">https://www.youtube.com/channel/UCYY5GWf7MHFJ6DZeHreoXgw</a><br />Casual Criminalist: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/TheCasualCriminalist">https://www.youtube.com/c/TheCasualCriminalist</a><br />Decoding the Unknown: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCZdWrz8pF6B5Y_c6Zi6pmdQ">https://www.youtube.com/channel/UCZdWrz8pF6B5Y_c6Zi6pmdQ</a><br /><br />Simon's Social Media:<br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/SimonWhistler">https://twitter.com/SimonWhistler</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/simonwhistler/">https://www.instagram.com/simonwhistler/</a><br /><br />→Subscribe for new videos every day! <a rel="nofollow" target="blank" href="https://www.youtube.com/user/toptenznet?sub_confirmation=1">https://www.youtube.com/user/toptenznet?sub_confirmation=1</a><br /><br />Find more lists at <a rel="nofollow" target="blank" href="http://www.toptenz.net">http://www.toptenz.net</a>{% endraw %}
