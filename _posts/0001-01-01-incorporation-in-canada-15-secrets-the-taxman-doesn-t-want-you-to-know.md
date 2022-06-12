@@ -1,0 +1,15 @@
+---
+title: "Incorporation in Canada | 15 Secrets the Taxman Doesn't Want You to Know Vol III"
+image: "https:\/\/i.ytimg.com\/vi\/m0Be409w9Vs\/hqdefault.jpg"
+vid_id: "m0Be409w9Vs"
+categories: "Education"
+tags: ["ccpc","incorporation","incorporation of a company"]
+date: "2022-06-12T03:35:12+03:00"
+vid_date: "2020-05-18T18:45:57Z"
+duration: "PT8M28S"
+viewcount: "11753"
+likeCount: "353"
+dislikeCount: ""
+channel: "Thomas C Chan - Financial Services"
+---
+{% raw %}- Want To Learn More With Thomas? - <br />■  💸Not sure If you are on the right path in saving?<br />💪  Download this FREE Financial Clarity Checklist:  <br /><a rel="nofollow" target="blank" href="https://ter.li/pve5h2">https://ter.li/pve5h2</a><br />■  💰Book a 30 min Complimentary Consultation with Thomas 🕵<br /><a rel="nofollow" target="blank" href="https://ter.li/r93220">https://ter.li/r93220</a><br /><br /><br />Pros and Cons of Incorporating Small Business | 15 Secrets the Taxman Doesn't Want You to Know Vol III<br /><br />To Incorporate or Not to Incorporate. That is the question<br />if you own a business,  you have a chance to change the tax rule <br />and pay much less tax compared to an employee.<br />Is this a myth or a fact?<br /><br />In today’s video, we will explore:<br /> - the benefits of having a corporation <br />-  Do you want to go into Sole Proprietorship, Partnership, or Corporation?<br />-  What are .ltd, .inc. corp<br />- And What kind of tax advantage you have a limited vs unlimited liability company?<br />- What is CCPC, Canadian Control Partner Corporation?<br /><br /><br />📕 Book link: <a rel="nofollow" target="blank" href="https://www.amazon.ca/Secrets-Taxman-Doesnt-Want-Know/dp/1897010559">https://www.amazon.ca/Secrets-Taxman-Doesnt-Want-Know/dp/1897010559</a> <br />📂Type of Corporations: <a rel="nofollow" target="blank" href="https://www.canada.ca/en/revenue-agency/services/tax/businesses/topics/corporations/type-corporation.html">https://www.canada.ca/en/revenue-agency/services/tax/businesses/topics/corporations/type-corporation.html</a><br /><br />#incorporation #incorporateincanada #selfemployed<br />1:05 Reason to incorporate<br />2:05 Unlimited Liability Company<br />2:35 Pros and Cons for Sole Proprietorship, Partnership<br />3:37 Limited Liability Company<br />4:13 CCPC Canadian Control Partner Corporation<br />5:00 Pros and Cons of CCPC<br /><br />Enjoy! <br /><br />DISCLAIMER: These videos are for educational purposes only. Please talk to professionals for your own tax plans. <br /><br />----------- <br /><br />Thomas is a 10-year veteran advisor in the insurance and investment industry. He understands the life stages and challenges that people are going through. Therefore, the purpose of this channel is to bring awareness to the importance of financial education. No matter what age group you are in, knowledge has the potential to unlock wealth. <br /><br />Better Mindset | Better Life! <br /><br />Facebook｜<a rel="nofollow" target="blank" href="https://fb.me/ThomaswithNovella">https://fb.me/ThomaswithNovella</a> <br />Mail｜thomaschan@novellawealth.com{% endraw %}
