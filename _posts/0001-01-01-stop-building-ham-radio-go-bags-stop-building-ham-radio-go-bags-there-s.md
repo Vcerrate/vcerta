@@ -1,0 +1,15 @@
+---
+title: "Stop Building Ham Radio Go Bags"
+image: "https:\/\/i.ytimg.com\/vi\/5FgB-LZLodk\/hqdefault.jpg"
+vid_id: "5FgB-LZLodk"
+categories: "Education"
+tags: ["ham radio go bag","ham radio go box","ham radio go bags"]
+date: "2022-06-12T03:58:34+03:00"
+vid_date: "2022-06-10T13:00:02Z"
+duration: "PT9M1S"
+viewcount: "4686"
+likeCount: "429"
+dislikeCount: ""
+channel: "KM4ACK"
+---
+{% raw %}Stop building ham radio go bags! There's a better way.<br /><br />🔹My Favorite Gear - <a rel="nofollow" target="blank" href="https://www.amazon.com/shop/km4ack">https://www.amazon.com/shop/km4ack</a><br /><br />🔹Links mentioned in the video<br />Download my checklist - <a rel="nofollow" target="blank" href="https://mailchi.mp/28e7a0c18fe1/radio-checklist">https://mailchi.mp/28e7a0c18fe1/radio-checklist</a><br />Zip Bag for Pi Cables - <a rel="nofollow" target="blank" href="https://amzn.to/3mpismn">https://amzn.to/3mpismn</a><br />Two meter Go Bag - <a rel="nofollow" target="blank" href="https://youtu.be/r6KstfSq8wI">https://youtu.be/r6KstfSq8wI</a><br />Travel HF Go Bag - <a rel="nofollow" target="blank" href="https://youtu.be/uGblFNTXbsc">https://youtu.be/uGblFNTXbsc</a><br />My First Go Box - <a rel="nofollow" target="blank" href="https://youtu.be/X8H7IQjm2JM">https://youtu.be/X8H7IQjm2JM</a><br /><br /><br />🔹Raspberry Pi Build Guide - <a rel="nofollow" target="blank" href="http://tiny.cc/pi4guide">http://tiny.cc/pi4guide</a><br /><br />🔹Frequently Asked Questions - <a rel="nofollow" target="blank" href="http://tiny.cc/km4ack-faq">http://tiny.cc/km4ack-faq</a><br /><br />🔹Weekly Newsletter - <a rel="nofollow" target="blank" href="https://mailchi.mp/40da1fe472e3/km4acknewsletter">https://mailchi.mp/40da1fe472e3/km4acknewsletter</a><br /><br />🔹Follow Me<br />Twitter @km4ack<br /><br />🔹FREE Get Started Guide - <a rel="nofollow" target="blank" href="http://tiny.cc/getstartedguide">http://tiny.cc/getstartedguide</a><br /><br />🔹Cool Ham Gear - <a rel="nofollow" target="blank" href="http://km4ack.com">http://km4ack.com</a><br /><br />🔹Support the channel through Patreon - <a rel="nofollow" target="blank" href="https://www.patreon.com/km4ack">https://www.patreon.com/km4ack</a><br /><br />🔹Did you just get a raspberry pi and want to hook it up to your radio? Start here <a rel="nofollow" target="blank" href="https://youtu.be/E1SEgPFQk4M">https://youtu.be/E1SEgPFQk4M</a><br /><br />Want your raspberry pi to play nice with your ham radio? Are you into digital modes like FT8, JS8Call, FLDIGI, Winlink, APRS, Digipeaters and others? Each week I put out new content showing you exactly what steps to take to get the latest ham radio software on your raspberry pi. Whether you just want to ragchew or are seriously into emergency preparedness, emcomm, or ARES and want to learn all you can about using the raspberry pi to drive your ham radio, this channel has something for you. Be sure to click the subscribe button and ring the bell before heading off. That way you will get notified of all future videos.<br />🔹🔹🔹🔹🔹<br /><br />As an Amazon Associate I earn from qualifying purchases{% endraw %}
