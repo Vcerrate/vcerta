@@ -1,0 +1,15 @@
+---
+title: "History-Makers: Quintus of Smyrna and the Fall of Troy"
+image: "https:\/\/i.ytimg.com\/vi\/wfHGQAzwEKo\/hqdefault.jpg"
+vid_id: "wfHGQAzwEKo"
+categories: "Education"
+tags: ["Funny","Summary","OSP"]
+date: "2022-06-12T09:54:19+03:00"
+vid_date: "2022-06-10T15:00:30Z"
+duration: "PT11M30S"
+viewcount: "150909"
+likeCount: "13526"
+dislikeCount: ""
+channel: "Overly Sarcastic Productions"
+---
+{% raw %}✨NEW PINS✨ - the FINAL gods in the Olympian pantheon! Round out the collection HERE: <a rel="nofollow" target="blank" href="https://crowdmade.com/collections/overlysarcasticproductions/products/overly-sarcastic-productions-aphrodite-and-hephaestus-pin-pack">https://crowdmade.com/collections/overlysarcasticproductions/products/overly-sarcastic-productions-aphrodite-and-hephaestus-pin-pack</a><br /><br />Why is it that the Iliad and the Odyssey don't actually cover the Fall of Troy? Seems relevant to the narrative, no? Well as it happens that story was recounted in a series of smaller epic poems, but they were lost to time at the end of the Classical Period. Thankfully, one storyteller who actually gave a crap was able to preserve the story of Troy's final fall, so let's investigate the PostHomerica of Quintus Smyrnaeus.<br /><br />SOURCES &amp; Further Reading: Loeb Classical Library &quot;PostHomerica&quot; and supplemental notes as edited by Jeffrey Henderson, &quot;Heroes and heroism in Quintus of Smyrna’s Posthomerica&quot; by Tine Scheijnen, &quot;Stuck in the Middle with You: Quintus of Smyrna’s Reception of Homer&quot;, Quote from page 731 of Easterling, Pat and Bernard Knox edd. 1985. &quot;The Cambridge History of Classical Literature&quot;. Cambridge: Cambridge University Press.<br /><br />Our content is intended for teenage audiences and up.<br /><br />PATREON: <a rel="nofollow" target="blank" href="https://www.Patreon.com/OSP">https://www.Patreon.com/OSP</a><br /><br />PODCAST: <a rel="nofollow" target="blank" href="https://overlysarcasticpodcast.transistor.fm/subscribe">https://overlysarcasticpodcast.transistor.fm/subscribe</a><br /><br />DISCORD: <a rel="nofollow" target="blank" href="https://discord.gg/osp">https://discord.gg/osp</a><br /><br />MERCH LINKS: <a rel="nofollow" target="blank" href="http://rdbl.co/osp">http://rdbl.co/osp</a><br /><br />OUR WEBSITE: <a rel="nofollow" target="blank" href="https://www.OverlySarcasticProductions.com/">https://www.OverlySarcasticProductions.com/</a><br />Find us on Twitter <a rel="nofollow" target="blank" href="https://www.Twitter.com/OSPYouTube">https://www.Twitter.com/OSPYouTube</a><br />Find us on Reddit <a rel="nofollow" target="blank" href="https://www.Reddit.com/r/OSP/">https://www.Reddit.com/r/OSP/</a><br /><br />Want this video in another language? Check out our guide to contributing translated captions: <a rel="nofollow" target="blank" href="https://www.overlysarcasticproductions.com/community-captions">https://www.overlysarcasticproductions.com/community-captions</a>{% endraw %}
